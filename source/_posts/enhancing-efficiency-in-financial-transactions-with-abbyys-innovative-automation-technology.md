@@ -1,7 +1,7 @@
 ---
 title: Enhancing Efficiency in Financial Transactions with ABBYY's Innovative Automation Technology
-date: 2024-08-19 12:14:14
-updated: 2024-08-22 11:16:16
+date: 2024-08-21T15:11:21.386Z
+updated: 2024-08-22T15:11:21.386Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/64de9954aaa9872e4109ed0fb3bd88e929af8b2024c5f17c9a376420ca579cf7.jpg
@@ -21,6 +21,9 @@ English
 
 ![Cheryl Chiodi](https://static4.abbyy.com/abbyycommedia/32900/75-cherylchiodi-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Cheryl Chiodi
 
 Solution Marketing Manager, Financial Services, **ABBYY**
@@ -29,6 +32,12 @@ Solution Marketing Manager, Financial Services, **ABBYY**
 
 ![88 Aurelielhostis 198X198](https://static4.abbyy.com/abbyycommedia/33886/88-aurelielhostis-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Aurelie L'Hostis
 
 Senior Analyst, **Forrester**
@@ -37,6 +46,9 @@ Senior Analyst, **Forrester**
 
 The challenges of the recent global crisis have exposed the fact that the events and trends in financial services move fast. Financial institutions need the velocity necessary to keep up and meet the needs of their customers by creating the differentiated experiences they demand. In a world where things can change with little or no warning, speed matters.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### What you will learn
 
 In this webinar, ABBYY's financial services expert Cheryl Chiodi and guest speaker Aurelie L'Hostis, Senior Analyst from Forrester, will cover:
@@ -48,11 +60,17 @@ In this webinar, ABBYY's financial services expert Cheryl Chiodi and guest speak
 
 ### Watch now
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## Thank you, enjoy your webinar.
 
 ### Check out some of the best moments and watch the full recording below.

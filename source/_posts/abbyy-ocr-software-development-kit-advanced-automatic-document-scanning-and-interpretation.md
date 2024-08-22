@@ -1,7 +1,7 @@
 ---
 title: "Abbyy OCR Software Development Kit: Advanced Automatic Document Scanning & Interpretation"
-date: 2024-08-19 20:21:25
-updated: 2024-08-22 12:45:33
+date: 2024-08-21T15:11:21.145Z
+updated: 2024-08-22T15:11:21.145Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1477ca2012895e861bfdb26b444c7a0eb6d638cc1df6527be4105c5f43b0af39.jpg
@@ -31,6 +31,9 @@ As a result, the ABBYY FineReader Engine is able to specify text areas and field
 
 The results of this analysis are used for document structure and layout retrieval if documents are processed for further reuse – which means that the documents need be exactly reconstructed. All pictures and diagrams will be preserved in their original form - without recognizing the text inside pictures or logos.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ### Manual blocks specification for field-level recognition
 
 The text recognition areas can be set up manually. In this case, the relevant recognition field is directly defined and the automated document analysis is not necessary. During the later recognition step, the recognizer receives information about the coordinates and properties of the requested fields and applies OCR only to the specified zone.

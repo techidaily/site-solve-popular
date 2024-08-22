@@ -1,7 +1,7 @@
 ---
 title: Effiziente Automa­tionstechnologien Im Versicherungssektor
-date: 2024-08-19 12:55:18
-updated: 2024-08-22 10:13:56
+date: 2024-08-21T15:11:21.315Z
+updated: 2024-08-22T15:11:21.315Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0e76410444c7c01d9e8ad4e31c08df5ce8b625bff84337aa8bb982a08609d9e6.jpg
@@ -21,6 +21,9 @@ German
 
 ![45 Marcobrandt 198X198](https://static4.abbyy.com/abbyycommedia/29484/45-marcobrandt-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Marco Brandt
 
 Leiter Marketing & Vertrieb, **AGILA Haustierversicherung**
@@ -29,6 +32,9 @@ Leiter Marketing & Vertrieb, **AGILA Haustierversicherung**
 
 ![46 Christianmichel 198X198](https://static5.abbyy.com/abbyycommedia/29481/46-christianmichel-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Christian Michel
 
 Gründer und CEO, **insinno**
@@ -37,18 +43,34 @@ Gründer und CEO, **insinno**
 
 ![Falkhoessler 198X198](https://static1.abbyy.com/abbyycommedia/35556/falkhoessler-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Falk Hößler
 
 Project Manager, **insinno**
 
 ![02 Alexandrejanicki 198X198](https://static4.abbyy.com/abbyycommedia/35123/logo-2021-90x27.svg) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ![02 Alexandrejanicki 198X198](https://static2.abbyy.com/abbyycommedia/25101/02-alexandrejanicki-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Alexandre Janicki
 
 Senior Enterprise Sales Manager, **ABBYY**
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Übersicht
 
 In diesem praxisorientierten Webinar mit Marco Brandt, Leiter Marketing & Vertrieb bei der AGILA Haustierversicherung sowie Christian Michel und Falk Hößler von insinno, präsentieren wir Ihnen, wie der Einsatz von Robotern, künstlicher Intelligenz, Low Code und Cloud-Lösungen die internen Prozesse des etablierten Versicherungsunternehmens revolutioniert hat. Innerhalb von drei Monaten konnte 25% Dunkelverarbeitung von Rechnungen und Faxen erreicht werden!
@@ -63,6 +85,13 @@ Weitere Informationen zu dieser Lösung erhalten Sie auch im Whitepaper ["Dunkel
 
 ### Webinar-Aufzeichnung hier anfordern
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   

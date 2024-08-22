@@ -1,7 +1,7 @@
 ---
 title: "ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み"
-date: 2024-08-21 18:57:31
-updated: 2024-08-22 11:48:17
+date: 2024-08-21T15:11:22.691Z
+updated: 2024-08-22T15:11:22.691Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7d954d5ef5beb31b578dcda4509d16e23f0ef0d1b79a76b01e4834ddb01328ea.jpg
@@ -51,10 +51,16 @@ SDGsでは以下の17のゴールが設定されています。
 16. 平和と公正をすべての人に
 17. パートナーシップで目標を達成しよう
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ## ABBYYの8番と10番の取り組みについて
 
 ![Sustainable Development Goals 働きがいも経済成長も](https://static1.abbyy.com/abbyycommedia/34584/13907-icon-8.png) ![Sustainable Development Goals 人や国の不平等をなくそう](https://static1.abbyy.com/abbyycommedia/34585/13907-icon-10.png)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYYは、これまで教育とキャリア開発の面で不平等を減らすために、さまざまなバックグラウンドを持つ人々をサポートしてきました。私たちは多様性を重視し、採用と昇進の決定を行う際にも平等な機会を提供しております。
 
 例として現在、ABBYYは女性従業員が約42％に達しており、これは一つの証左です。 ABBYYには、女性従業員をサポートするための「Woman at ABBYY」という内部コミュニティが存在します。 全体として、ABBYYの従業員は、職場での多様性と包摂性をサポートするための取り組みを高く評価しています。隔週の従業員エンゲージメント調査に基づくと、DEIの全体的なスコア（たとえば、性別、民族性、障害、社会経済的地位の観点から、多様性と包摂性をサポートするABBYYの取り組みに満足しています）は8.7/10です。こちらはテクノロジー企業のベンチマークを0.5ポイント上回っており、上位25％にランクインしています。
@@ -65,10 +71,17 @@ ABBYYは、社内の包摂的な文化をサポートすることに重点を置
 
 一部の地域では、さまざまな能力を持つ人々や貧しい家庭や農村地域からの学生を雇用するための特別なプロジェクトがあります。 また、地域に根付いたチャリティー活動（クリスマス関連のチャリティーなど）も実施しています。デジタルインテリジェンス企業として、技術人材の育成に取り組んでいます。一部の地域では、教育活動を推進し、恵まれない／過小評価されている人々のためのメンターシッププログラムや奨学金を通じての技術人材育成をサポートしています。
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ## ABBYYの13番と15番の取り組みについて
 
 ![Sustainable Development Goals 気候変動に具体的な対策を](https://static1.abbyy.com/abbyycommedia/34586/13907-icon-13.png) ![Sustainable Development Goals 陸の豊かさも守ろう](https://static1.abbyy.com/abbyycommedia/34587/13907-icon-15.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 私たちはデジタルインテリジェンス企業として、ペーパーレスのビジネスプロセスにつながるデジタルトランスフォーメーション（DX）の推進に取り組んでいます。ABBYYのデジタルテクノロジーは、デジタル（ハードコピーではなく）ドキュメントに焦点を当てることにより、お客様がより環境に優しいものになるように支援します。
 
 2021年、ABBYYは、気候変動との戦い、生物多様性の保全、景観の回復、コミュニティの強化を支援するために獲得した取引のために植樹を行うことを約束する新しい「Plant a Treeキャンペーン」を開始しました。これについての詳細は、こちらのリンクをご参照ください。
@@ -83,6 +96,9 @@ ABBYYは、サステナビリティの重要性を従業員に思い出させる
 
 [カスタマエクスペリエンス](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

@@ -1,7 +1,7 @@
 ---
 title: Automated Customer Engagement with Cookiebot Technology
-date: 2024-08-21 21:50:36
-updated: 2024-08-22 11:43:19
+date: 2024-08-21T15:11:22.347Z
+updated: 2024-08-22T15:11:22.347Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/31fd63ab910fdd0bfef9c588934b4c990590f2025d46dff0a5963e90a62a92d8.jpg
@@ -82,3 +82,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->

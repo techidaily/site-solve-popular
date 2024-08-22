@@ -1,7 +1,7 @@
 ---
 title: Excellence Recognized and Best Practices Established!
-date: 2024-08-19 19:27:32
-updated: 2024-08-22 10:14:11
+date: 2024-08-21T15:11:21.783Z
+updated: 2024-08-22T15:11:21.783Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bf1aa2624ef83ca4793045372b8a4d65e582b534521041d47a00805c4d5db19c.jpg
@@ -39,6 +39,18 @@ GARTNER is a registered trademark and service mark, and MAGIC QUADRANT and PEER 
 
 Gartner Peer Insights content consists of the opinions of individual end users based on their own experiences with the vendors listed on the platform, should not be construed as statements of fact, nor do they represent the views of Gartner or its affiliates. Gartner does not endorse any vendor, product or service depicted in this content nor makes any warranties, expressed or implied, with respect to this content, about its accuracy or completeness, including any warranties of merchantability or fitness for a particular purpose."
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Danke für Ihr Interesse an ABBYY. 
 
 [Bericht lesen](https://www.gartner.com/reprints/?id=1-2HU9T8IX&ct=240614&st=sb "Read the report") 

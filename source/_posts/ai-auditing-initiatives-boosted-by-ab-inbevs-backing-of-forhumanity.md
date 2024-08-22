@@ -1,7 +1,7 @@
 ---
 title: AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity
-date: 2024-08-21 18:28:21
-updated: 2024-08-22 11:27:59
+date: 2024-08-21T15:11:21.605Z
+updated: 2024-08-22T15:11:21.605Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8d4f635de6f8288e79a21d2dcf9027cad8747323c88b4f310acedbe966d2fadc.jpg
@@ -48,6 +48,10 @@ Consultez ces liens pour :
 
 ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous combinons l'innovation et l'expérience pour transformer les informations issues de documents stratégiques en résultats exploitables et pertinents, dans plus de 200 langues et en temps réel. Nous permettons à plus de 10 000 entreprises dans le monde, y compris de nombreuses entreprises du classement Fortune 500, d'avoir un impact majeur là où cela compte le plus : l'expérience client, l'excellence opérationnelle et la compétitivité. ABBYY est une entreprise mondiale dont le siège social se trouve à Milpitas, en Californie, et qui dispose de bureaux dans 14 pays. ABBYY est le partenaire [officiel d’intelligente automation du club de football féminin d'Arsenal](https://tools.techidaily.com/abbyy/products/). Pour plus d'informations, consultez le site www.abbyy.com/company et rejoignez-nous sur [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware?ref%5Fsrc=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) et [Facebook](https://www.facebook.com/ABBYYsoft/?locale=fr%5FFR).
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ### À PROPOS DE FORHUMANITY
 
 ForHumanity (<https://forhumanity.center/>) est une organisation à but non lucratif (501(c)(3)) et ForHumanity Europe, une association française 1901, se consacrent à l’éthique, aux biais, à la vie privée, à la confiance et à la cybersécurité dans le domaine de l’intelligence artificielle et des systèmes autonomes. ForHumanity utilise un processus ouvert et transparent qui s’appuie sur plus de 2000 contributeurs de 96 pays pour élaborer des critères d’audit, des systèmes de certification et des programmes éducatifs destinés aux professionnels du droit et de la conformité, aux éducateurs, aux auditeurs, aux développeurs et aux législateurs, afin d’atténuer les préjugés, d’améliorer l’éthique, de protéger la vie privée, de renforcer la confiance, d’améliorer la cybersécurité et d’encourager la responsabilité et la transparence dans l’intelligence artificielle et les systèmes autonomes. ForHumanity s’efforce de rendre l’IA sûre et digne de confiance pour tous.

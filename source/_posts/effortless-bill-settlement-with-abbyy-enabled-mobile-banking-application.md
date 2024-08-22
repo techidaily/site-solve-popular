@@ -1,7 +1,7 @@
 ---
 title: Effortless Bill Settlement with ABBYY-Enabled Mobile Banking Application
-date: 2024-08-21 15:28:31
-updated: 2024-08-22 10:39:56
+date: 2024-08-21T15:11:22.123Z
+updated: 2024-08-22T15:11:22.123Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f4f9accb76c2f0e56a5b696898639186341161f48fdcc3e0304d957b51f658e3.jpg
@@ -23,6 +23,9 @@ Finance/Banking | Mobile Capture
 
 Banques et Finance | Capture mobile 
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

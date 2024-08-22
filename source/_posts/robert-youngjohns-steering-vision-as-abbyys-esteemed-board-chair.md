@@ -1,7 +1,7 @@
 ---
 title: "Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair"
-date: 2024-08-20 17:25:10
-updated: 2024-08-22 11:11:57
+date: 2024-08-21T15:11:21.960Z
+updated: 2024-08-22T15:11:21.960Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/157145562d322ac42b18debf7cc17b6e328143a79a361dfc0ab65e3b0afbaf26.jpg
@@ -39,3 +39,7 @@ Robert holds a Master’s degree with honors in Physics and Philosophy from Oxfo
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->

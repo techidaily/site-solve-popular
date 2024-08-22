@@ -1,7 +1,7 @@
 ---
 title: Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog
-date: 2024-08-21 11:41:57
-updated: 2024-08-22 10:33:36
+date: 2024-08-21T15:11:22.311Z
+updated: 2024-08-22T15:11:22.311Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a9de22e1aa59a5e7f9127b24.jpg
@@ -31,14 +31,23 @@ A new breed of competitor—Insuretechs—target smart technologies at the custo
 
 [Read the article.](https://iireporter.com/the-human-touch-the-untapped-opportunity-for-making-ai-work-for-insurance/)
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Social Distancing Has Raised the Bar for the Digital Experience
 
 ![technology trends 2020](https://static1.abbyy.com/abbyycommedia/31572/blog-digital-intelligence-1-848x444.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 With social distancing measures in place and businesses across diverse industries that temporarily closed their store fronts, the digital experience has never been more critical for businesses and the customers who depend on them. Consumers develop brand loyalty and trust in accordance to the degree a company can best meet their needs—both in everyday circumstances and especially during a crisis. That makes it even more important for businesses to leverage [mobile capabilities](https://tools.techidaily.com/abbyy/products/) and optimize the digital experience across customer-facing operations now to serve consumer expectations. Companies that pivot the customer experience accordingly will be poised to emerge ahead of the curve in the post COVID-19 world.
 
 [Read the article.](https://www.cmswire.com/digital-experience/social-distancing-has-raised-the-bar-for-the-digital-experience/)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Data Insight Plays a Key Role in How ABBYY Supplies Vital Pieces of the RPA Puzzle
 
 Digital Intelligence tools are becoming more essential for enterprise companies as interest in automation continues to grow. One of the hottest fields in the space has been Robotic Process Automation (RPA), which involves the use of software robots to automate repetitive, mundane tasks. Robert Youngjohns, Chairman of the Board at ABBYY, spoke with Dave Vellante, Chief Analyst at market research firm Wikibon and co-host of SiliconANGLE Media’s video studio theCUBE.
@@ -59,10 +68,16 @@ COVID-19 is the defining event of 2020, and with it, ”social distancing” ent
 
 ![ideas for improving customer service](https://static1.abbyy.com/abbyycommedia/31624/blog-digital-intelligence-1-848x444.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 The pandemic shifted many IT resources toward business continuity efforts, and many workers and leaders reached the point where they were struggling to ramp up or resume digital transformation projects. Organizations looked to tap into the benefits attained from scaling end-to-end digital transformation but needed direction on the right strategies to accelerate higher-value initiatives. The challenges stem from a lack of understanding of business processes coupled with an inability to turn a company’s data into actionable, valuable information that drives strategic business decisions. ABBYY shared six fundamental steps to help implement digital transformation.
 
 [Read the article.](https://www.cmswire.com/leadership/6-steps-to-revive-your-digital-transformation-projects/)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 6\. Five Crucial Insurance Questions for the Post-COVID 'New Normal'
 
 ![process improvement in insurance](https://static1.abbyy.com/abbyycommedia/31573/blog-digital-intelligence-cover-848x444.jpg)
@@ -75,6 +90,9 @@ We shared five questions to help leaders at insurance companies evaluate if ther
 
 [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

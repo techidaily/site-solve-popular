@@ -1,7 +1,7 @@
 ---
 title: Utilizing Cookiebot Technology for Optimized Site Customization and Improved Engagement
-date: 2024-08-19 19:20:45
-updated: 2024-08-22 12:59:26
+date: 2024-08-21T15:11:22.672Z
+updated: 2024-08-22T15:11:22.672Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/501cfbb0674181793ce2cd8353fd1c77b58868d2c9678fbe9da8ac95eb395e1d.jpg
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/501cfbb0674181793ce2cd8353fd1c77b58868d2c
 
 Enabling Pega BPM and RPA to transform documents and unstructured content automatically into actionable information for customer service and operational excellence.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY FlexiCapture Connector for Pega
 
 ABBYY FlexiCapture Connector for Pega enables Pega BPM and RPA to transform documents and unstructured content automatically into actionable information for customer service and operational excellence.

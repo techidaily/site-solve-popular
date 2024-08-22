@@ -1,7 +1,7 @@
 ---
 title: ABBYY FlexiCapture の正式日本市場発売開始
-date: 2024-08-21 20:15:27
-updated: 2024-08-22 11:33:29
+date: 2024-08-21T15:11:23.290Z
+updated: 2024-08-22T15:11:23.290Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/623365f2ffae0d2d8c9a44d31ae5f64f961d3fb3d2838be2d2e5cf0ae63c28b6.jpg
@@ -81,3 +81,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->

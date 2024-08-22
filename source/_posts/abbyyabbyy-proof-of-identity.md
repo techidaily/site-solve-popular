@@ -1,7 +1,7 @@
 ---
 title: ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内
-date: 2024-08-20 19:58:44
-updated: 2024-08-22 10:53:54
+date: 2024-08-21T15:11:21.098Z
+updated: 2024-08-22T15:11:21.098Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d9925e82a959f50569bbd42483d903b11385c17bd02f16f205258c110d37af55.jpg
@@ -59,6 +59,9 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ### 報道関係者お問い合わせ先
 
 #### 株式会社井之上パブリックリレーションズ 

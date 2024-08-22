@@ -1,7 +1,7 @@
 ---
 title: Evaluierung Von Volkswagens Infotainmentsystemen Mit Hilfe Der Software Von ABBYY
-date: 2024-08-21 15:42:39
-updated: 2024-08-22 12:23:58
+date: 2024-08-21T15:11:21.411Z
+updated: 2024-08-22T15:11:21.411Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3092233dd7a3eec690ede8061b1cb9bd7087808138a5d4f0dd6cc9938518b6ac.jpg
@@ -90,6 +90,9 @@ Die Testabteilung stellte hohe Anforderungen an den Einsatz der ABBYY OCR Engine
 
 Teilen  True ?  : "" 
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

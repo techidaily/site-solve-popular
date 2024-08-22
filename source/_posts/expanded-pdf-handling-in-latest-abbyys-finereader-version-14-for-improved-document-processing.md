@@ -1,7 +1,7 @@
 ---
 title: Expanded PDF Handling in Latest ABBYY's FineReader Version 14 for Improved Document Processing
-date: 2024-08-21 16:39:44
-updated: 2024-08-22 11:52:21
+date: 2024-08-21T15:11:22.885Z
+updated: 2024-08-22T15:11:22.885Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8dff629c3669eeacd81da2258d66f3b6e2ba5af06b80b9aa947e69afc78af4df.jpg
@@ -66,3 +66,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools
-date: 2024-08-19 10:38:55
-updated: 2024-08-22 10:27:10
+date: 2024-08-21T15:11:23.298Z
+updated: 2024-08-22T15:11:23.298Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8b677f86d933a2dc57f7b5d236aa4e6146da7e283f8be4d58f50e47e9bc2eba3.jpg
@@ -47,6 +47,9 @@ ABBYY macht Ihre Informationen mit speziell entwickelter KI nutzbar. Unsere Lös
 
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden. 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Über ForHumanity
 
 ForHumanity [(https://forhumanity.center/)](https://forhumanity.center/) ist eine 501(c)(3) gemeinnützige Organisation und ForHumanity Europe, ein französischer Verein aus dem Jahr 1901, widmet sich den Themen Ethik, Voreingenommenheit, Datenschutz, Vertrauen und Cybersicherheit in künstlicher Intelligenz und autonomen Systemen. ForHumanity nutzt ein offenes und transparentes Verfahren, das aus einem Pool von mehr als 2.000 Mitwirkenden aus 96 Ländern gespeist wird, um Prüfkriterien, Zertifizierungssysteme und Bildungsprogramme für Fachleute aus den Bereichen Recht und Compliance, Pädagogen, Prüfer, Entwickler und Gesetzgeber zu entwickeln, um Voreingenommenheit zu mindern, die Ethik zu verbessern, die Privatsphäre zu schützen, Vertrauen aufzubauen, die Cybersicherheit zu verbessern und die Rechenschaftspflicht und Transparenz bei KI und autonomen Systemen zu fördern. ForHumanity arbeitet daran, KI für alle Menschen sicher und vertrauenswürdig zu machen. 

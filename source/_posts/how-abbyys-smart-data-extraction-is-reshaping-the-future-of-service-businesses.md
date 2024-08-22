@@ -1,7 +1,7 @@
 ---
 title: How ABBYY's Smart Data Extraction Is Reshaping the Future of Service Businesses
-date: 2024-08-20 18:45:57
-updated: 2024-08-22 11:26:16
+date: 2024-08-21T15:11:23.514Z
+updated: 2024-08-22T15:11:23.514Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d0cb748bcb0f62a12329bda108fa11c6c1e0878f52106a0e40a69c79938a6a30.jpg
@@ -42,6 +42,15 @@ Here are some of the key benefits that intelligent capture brings to digital tra
 * Knowledge workers can focus on problem resolution instead of processing routine transactions
 * Customers can be offered additional goods and services during their transaction based on content analytics
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ## Application of Intelligent Capture in the service industry
 
 There are many possible uses for intelligent capture in service industries:
@@ -50,6 +59,9 @@ There are many possible uses for intelligent capture in service industries:
 * **Contract negotiation and management**, where different versions of contracts, must be carefully reviewed and compared to minimize legal and financial risk. Intelligent capture can automatically identify document sections, and the terms and conditions within that section, to compare with standard clauses.
 * **Employee onboarding**. When a new employee starts with a company, they may have to submit many documents, such as identity and tax forms. Intelligent capture allows them to photograph or submit these using their mobile device, then automatically extract the information and upload it to the HR system.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Points to consider before implementation
 
 Intelligent capture solutions employ a suite of technologies, depending on the documents and data to be captured: recognition, classification, text analytics, and even photo recognition. It’s essential that the solution that you select has been tested on the type of documents that you will be capturing to ensure that documents are properly classified, and the content extracted for use in the downstream business processes. If your customers will be capturing their documents directly, the solution needs to support mobile device cameras and uploading from their own PCs, which may require a cloud solution to support secure scanning and upload.
@@ -60,6 +72,9 @@ However, you also need to ensure that the downstream business processes are as a
 
 ![Sandy Kemsley](https://static4.abbyy.com/abbyycommedia/25712/sandykemsley-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Sandy Kemsley
 
 Process Automation Industry Analyst at Column 2
@@ -70,6 +85,9 @@ During her career of more than 20 years, she has started and run successful prod
 
 Since 2001, she has returned to private consulting practice as a BPM/DPA architect, performing engagements for financial services and insurance organizations across North America, and as an analyst working with BPM/DPA vendors. In addition to writing her blog, she often speaks at conferences about BPM/DPA and digital transformation, and is a contributing author to books on social BPM and adaptive case management. Sandy is the recipient of the 2016 Marvin L. Manheim award for significant contributions in the field of workflow, and the 2019 winner of the Workflow Management Coalition’s award for Outstanding Business Transformation Consultant.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

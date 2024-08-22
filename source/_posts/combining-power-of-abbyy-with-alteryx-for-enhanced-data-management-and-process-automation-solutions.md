@@ -1,7 +1,7 @@
 ---
 title: Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions
-date: 2024-08-21 22:52:32
-updated: 2024-08-22 11:42:36
+date: 2024-08-21T15:11:22.376Z
+updated: 2024-08-22T15:11:22.376Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b44ba119c3a3d46ced364c534eba92d8a8e7f5db9a0f3270b71a79e318ccd253.jpg
@@ -39,6 +39,9 @@ Timeline’s process analytics, query, and filtering capabilities can provide in
 
 Timeline’s process monitoring provides Alteryx users with a way to monitor current business processes, even those where process steps are performed across multiple back-end systems. Users can quickly specify business conditions that require an Alteryx analytic process to be initiated.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Integration benefits
 
 "Process aware" the Alteryx Analytics Platform™
@@ -59,6 +62,9 @@ Monitor the performance of Alteryx APA data-driven processes, process deviations
 
 Automatically generate a foundation for data-driven decisions with quantifiable process metrics, including cost, duration, and volume.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ## Alteryx APA Platform™ with Process Intelligence
 
 Process-aware APA to optimize end-to-end business process outcomes.
@@ -73,6 +79,9 @@ ABBYY connector for Alteryx delivers the integration between ABBYY Timeline plat
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/alteryx.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Usage scenarios
 
 Combining analytics and data science automation with Process Intelligence to accelerate digital transformation.
@@ -103,6 +112,9 @@ This document explains the key benefits of combining ABBYY Timeline with your Al
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ![Infographic](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
 
 ##### Video 
@@ -115,6 +127,9 @@ See how the integration of ABBYY Timeline and Alteryx APA™ enables visibility 
 
 ![Webpage](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ##### Webinar 
 
 #### Analytic Automation and Process Intelligence – Two Sides of the Same Coin 
@@ -125,6 +140,9 @@ See how you can gain a 360-degree view of your business operations, enabling bus
 
 ![Solution brief](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Solution brief 
 
 #### ABBYY Timeline Connector for Alteryx
@@ -147,6 +165,9 @@ See how the integration of ABBYY Timeline and Alteryx APA™ enables visibility 
 
 ![Webpage](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Webinar 
 
 #### Analytic Automation and Process Intelligence – Two Sides of the Same Coin 
@@ -157,6 +178,9 @@ See how you can gain a 360-degree view of your business operations, enabling bus
 
 ![Solution brief](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ##### Solution brief 
 
 #### ABBYY Timeline Connector for Alteryx
@@ -169,6 +193,9 @@ This document explains the key benefits of combining ABBYY Timeline with your Al
 
 ![Infographic](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ##### Video 
 
 #### How to integrate ABBYY Timeline with Alteryx Analytic Platform™ 

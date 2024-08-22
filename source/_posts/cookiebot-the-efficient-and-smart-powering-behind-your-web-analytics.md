@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: The Efficient and Smart Powering Behind Your Web Analytics"
-date: 2024-08-19 15:54:59
-updated: 2024-08-22 12:58:48
+date: 2024-08-21T15:11:22.092Z
+updated: 2024-08-22T15:11:22.092Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6c8487e0b404251fb12aeaebde28154ddd618ecb4b5d51b0cd4522eee48c4e1f.jpg
@@ -47,6 +47,9 @@ AABBYY puts your information to work with purpose-built AI. We combine innovatio
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ### About Novelis 
 
 At Novelis, we specialize in offering comprehensive solutions and services that seamlessly combine our distinct Process Expertise with Process Intelligence, Intelligent Automation, AI Advancements, Innovative Architectures, and Cybersecurity. This fusion of capabilities empowers us to deliver solutions that not only leverage cutting-edge technologies but also draw on our in-depth understanding of processes. Our holistic approach to driving process efficiency ensures that every facet of your business receives the Novelis touch.

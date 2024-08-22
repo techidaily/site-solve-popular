@@ -1,7 +1,7 @@
 ---
 title: Empowering Websites with Cookiebot Technology for Enhanced User Experience
-date: 2024-08-19 12:12:25
-updated: 2024-08-22 11:53:33
+date: 2024-08-21T15:11:23.169Z
+updated: 2024-08-22T15:11:23.169Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a05de89bd7149842bbd8e67a6.jpg
@@ -31,6 +31,9 @@ AI OCRは常に進化しており、クラウド上のサービスも多く、�
 
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35333/clovaocr-content-1-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FlexiCaptureは複雑な文書の処理が可能
 
 FlexiCaptureは、複雑な文書にも広く対応しており、他では取得できないフォーマットでも、定型、非定型問わずに、読み取り可能です。これは、一般的なAI OCRに用いられている学習による解析だけでなく、人間が見て判断するように、特定の文字からの相対位置や何行目、何列目といった表構造の中での位置、スキャン時に発生する解像度のばらつきや傾きの補正などの機能FlexiCaptureが有しているからです。加えて、上記の機能により文書を誤認識してしまった際にもロジカルに原因追及が可能となっています。
@@ -39,6 +42,9 @@ FlexiCaptureは、複雑な文書にも広く対応しており、他では取�
 
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35332/clovaocr-content-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FlexiCaptureは検証機能も充実
 
 AI OCRを導入するためには新たな業務が必要となります。すべてのAI OCRに対して言えることですが、どんな文書でも100%正しく認識することはできません。必然的に重要な文書であるほどOCRの結果を人の目で見て確認するという作業（以降、検証）が重要となってきます。
@@ -47,6 +53,9 @@ AI OCRを導入するためには新たな業務が必要となります。す�
 
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35331/clovaocr-content-3-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ## FlexiCaptureは業務使用に最適
 
 [FlexiCapture](https://tools.techidaily.com/abbyy/products/)はカスタマイズ性の強さからお客様の業務に合わせた導入が可能です。各種APIおよびファイル連携により様々な入出力に対応しており、既存のシステムと合わせて導入できます。
@@ -55,12 +64,18 @@ AI OCRを導入するためには新たな業務が必要となります。す�
 
 認識率や対応フォーマットに目が行きがちですが、ご利用を予定されているAI OCRを業務に組み込んだ際にどのように利用するのか、検証や細かなユーザーの権限管理に対応されているか確認されることをお勧めいたします。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## CLOVA OCRの特徴
 
 CLOVA OCRは横書きや縦書きだけでなく、丸く湾曲して書かれた文字や傾いた文字などの悪条件下での読み取り、アジア地域の言語の認識、専門用語の認識などで高い精度と評価されているエンジンとなります。詳しくは、[CLOVA OCRのサイト](https://clova.line.me/clova-ocr/?utm%5Fsource=abbyy&utm%5Fmedium=blog)をご覧ください。
 
 また、FlexiCaptureと連携したときに、項目単位の細かな設定が必要ないことも特徴の一つです。CLOVA OCR（General）以外のエンジンとの連携では、項目ごとにどんな文字が入るか、文字数はどうかなど細かい調整が必要ですが、CLOVA OCR（General）との連携では、どんな項目も同じ設定で簡単に行うことができます。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ## まとめ
 
 FlexiCaptureは単体でも認識、検証、ワークフローにおいて優れた機能を有しておりますが、手書き日本語文字に対応していないこともあり、日本語OCRに関して不十分な点があります。一方でAI OCRのフレームワークとしては、FlexiCaptureは優れた点を有しており、CLOVA OCRと組み合わせることで高精度の手書き日本語認識を実現することが可能な上、FlexiCaptureの様々な優れた機能を使用することが可能です。
@@ -73,6 +88,13 @@ FlexiCaptureは単体でも認識、検証、ワークフローにおいて優�
 
 [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

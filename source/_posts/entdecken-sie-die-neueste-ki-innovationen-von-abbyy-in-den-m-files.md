@@ -1,7 +1,7 @@
 ---
 title: Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files
-date: 2024-08-21 13:36:24
-updated: 2024-08-22 10:39:59
+date: 2024-08-21T15:11:22.530Z
+updated: 2024-08-22T15:11:22.530Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6db3345e6b05b14e1b02d624eebb2a2ce8b63469f2261321211e5e8c5934467b.jpg
@@ -90,3 +90,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

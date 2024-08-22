@@ -1,7 +1,7 @@
 ---
 title: Enhancing KYC Compliance in Finance with AI & ML Techniques - Download Our Comprehensive Guide
-date: 2024-08-19 12:25:25
-updated: 2024-08-22 11:35:58
+date: 2024-08-21T15:11:23.197Z
+updated: 2024-08-22T15:11:23.197Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4e90942cb4f7cac0b8179c9a85473a893720905506787f6d97b44b698d179a25.jpg
@@ -29,12 +29,18 @@ Download this eBook to learn how Digital Intelligence enables banks to
 * Gain insight into the ways that people interact with documents
 * Discover patterns of suspicious behavior in processes
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY and its technologies.
 
 [Read eBook](https://digital.abbyy.com/hubfs/content/ebook-banking-on-intelligence-en.pdf "Read eBook") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

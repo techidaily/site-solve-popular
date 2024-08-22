@@ -1,7 +1,7 @@
 ---
 title: "Optimized With Cookiebot: Next-Level Analytics & Conversion Boost"
-date: 2024-08-21 19:22:40
-updated: 2024-08-22 11:26:55
+date: 2024-08-21T15:11:21.878Z
+updated: 2024-08-22T15:11:21.878Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/46220d4e5de752c9f9121bc5fe5314f52ef333630dc70248125ef90566a42a71.jpg
@@ -43,6 +43,9 @@ L’OCR commence par un dossier dont vous voulez extraire des informations. Il p
 
 Les données extraites sont ensuite comparées à un ensemble de modèles et de schémas prédéfinis, représentant des caractères et symboles connus. Pour ce faire, on peut avoir recours à des technologies comme le machine learning et les réseaux neuronaux, pour améliorer la précision de la reconnaissance et gérer différentes polices et différentes langues ou des mises en page compliquées comme des tableaux, des listes ou des codes-barres. Si un problème est détecté, il peut être signalé pour qu’un humain intervienne. Une fois que le processus de reconnaissance des caractères est terminé, il peut être nécessaire de vérifier d’éventuelles erreurs ou d’améliorer la précision à l’aide de la vérification orthographique, de l’analyse du contexte ou de la modélisation linguistique. Puis, le logiciel OCR produira le texte final, lisible par les machines et pouvant être intégré au système informatique de votre entreprise.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ### Les avantages de l’OCR
 
 [L'OCR](https://tools.techidaily.com/abbyy/products/) est une technologie essentielle pour chaque secteur d’activité où l’on traite beaucoup de documents, qu’il s’agisse du travail quotidien des employés avec des documents, de la numérisation d’archives, ou de la création de répertoires numériques accessibles, en traitant de grandes quantités de documents, par exemple des lots de documents de soins ou de logistique.
@@ -62,6 +65,21 @@ Parmi les exemples habituels d’utilisation de l’OCR, il y a l’usage qu’e
 
 ![](https://static1.abbyy.com/abbyycommedia/37779/ds-122-how-idp-works-2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Comment cela fonctionne-t-il 
 
 L’IDP utilise la reconnaissance optique de caractères (OCR) pour convertir du texte imprimé ou manuscrit en texte dactylographié/lisible par des machines. L’IDP utilise également des techniques d’intelligence artificielle (IA) et de machine learning (ML) pour lire, comprendre et traiter les données structurées, semi-structurées ou non structurées contenues dans des documents, comme le ferait un humain.
@@ -123,6 +141,10 @@ Des recherches indiquent que 90% des organisations observent que de potentiels c
 
 Grâce au traitement intelligent des documents, vous pouvez éliminer les goulots d’étranglement qui entraînent ces abandons. Les [entreprises peuvent profiter de la technologie IDP pour la preuve de l’identité](https://tools.techidaily.com/abbyy/products/) et la confirmation de l’identité, ce qui facilite la tâche aux clients et sécurise les choses pour les entreprises. L’IDP peut capturer et catégoriser les pièces d’identité, telles que les permis de conduire ou les passeports, ou des pièces justificatives, comme des relevés bancaires ou des factures, demandées pour prouver son adresse. Par exemple, il peut être utilisé par le service des cartes grises pour le renouvellement d’un permis de conduire ou par une banque pour des demandes de prêts.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ## OCR vs. IDP : lequel est le mieux pour votre activité ?
 
 **L’OCR peut parfois être pris, à tort, pour une plateforme d’IDP, alors que, de fait, l’IDP a bien plus de fonctionnalités.** . L’OCR se concentre avant tout sur l’extraction du texte issu d’images et de documents afin que ce texte puisse être transféré et modifié sur un écran d’ordinateur. Il reconnaît différentes polices, images, notes manuscrites et les retranscrit en texte numérique, modifiable et interrogeable. Pour les entreprises en quête de solutions d’archivage numérique ou de technologies d’assistance, lesquelles nécessitent d’excellentes fonctionnalités de reconnaissance de texte, de conversion en PDF, et de capture des données, une solution OCR est la mieux adaptée. Vous pourrez profiter d’excellentes fonctionnalités de capture de documents avec [le Kit de développement logiciel OCR ABBYY](https://tools.techidaily.com/abbyy/products/) (SDK).
@@ -131,6 +153,11 @@ Grâce au traitement intelligent des documents, vous pouvez éliminer les goulot
 
 [Demander une démo](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ## FAQ
 
 [L’IDP utilise-t-il l’OCR ?](https://tools.techidaily.com/abbyy/products/)
@@ -171,6 +198,10 @@ Les technologies OCR (reconnaissance optique de caractères) et IDP (traitement 
 
 ![Slavena Hristova ABBYY](https://static4.abbyy.com/abbyycommedia/25713/slavenahristova-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 Slavena Hristova
 
 Directrice du Marketing Produit, groupe Vantage chez ABBYY

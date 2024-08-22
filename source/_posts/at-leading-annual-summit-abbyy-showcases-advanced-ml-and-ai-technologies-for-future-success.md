@@ -1,7 +1,7 @@
 ---
 title: At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success
-date: 2024-08-19 14:23:30
-updated: 2024-08-22 11:31:58
+date: 2024-08-21T15:11:22.025Z
+updated: 2024-08-22T15:11:22.025Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3bea074e02c00367c73eda64c4dc35b2b7531a1754ee9632a9d2f7f9073f37e2.jpg
@@ -53,3 +53,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成"
-date: 2024-08-19 21:48:38
-updated: 2024-08-22 10:49:20
+date: 2024-08-21T15:11:22.703Z
+updated: 2024-08-22T15:11:22.703Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7ff9df7bb6af3b5e4d65d67011a30e37297e02c3911882325d80adc38323e6c.jpg
@@ -127,6 +127,9 @@ DXの必要性が謳われ、多くの企業がDXに取り組んでいるが、�
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。

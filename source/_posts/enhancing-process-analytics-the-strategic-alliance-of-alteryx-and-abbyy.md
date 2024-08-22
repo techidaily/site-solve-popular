@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY"
-date: 2024-08-20 17:56:34
-updated: 2024-08-22 12:13:21
+date: 2024-08-21T15:11:22.504Z
+updated: 2024-08-22T15:11:22.504Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3f6c6bea7939b70a1c035d96c63060bf36a01be87fa819f994489367d6bd8b9a.jpg
@@ -83,3 +83,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->

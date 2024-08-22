@@ -1,7 +1,7 @@
 ---
 title: Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem
-date: 2024-08-19 18:47:39
-updated: 2024-08-22 12:42:11
+date: 2024-08-21T15:11:22.323Z
+updated: 2024-08-22T15:11:22.323Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/99ddeff4dd981a34b1bf66d98e84fae1038add51e63fa5e698f7136621990952.jpg
@@ -47,6 +47,9 @@ Deutliche Zeitersparnis bei der Korrektur von Prüfungsbögen sowie starke Arbei
 
 **An Universitäten werden jedes Semester zahlreiche schriftliche Prüfungen mit 1.000 und mehr teilnehmenden durchgeführt – entsprechend zeitaufwändig und umfangreich sind manuelle korrekturaufgaben, mit denen Dozierende belastet werden. Ein effizientes Management der Unterlagen wird so schnell zum Prüfstein für die Verwaltung. Die Universität Zürich unterstützt diese Prozesse daher mit [ABBYY Flexicapture](https://tools.techidaily.com/abbyy/products/) zur elektronischen Verarbeitung und entlastet durch die automatisierte Formularauswertung der Prüfungen ihre Mitarbeiter.**
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ### Herausforderung
 
 Der Bologna-Prozess zur Schaffung eines einheitlichen europäischen Hochschulraums hat wegen der damit einhergehenden, veränderten Modalitäten der Leistungsbewertung zu einem signifikanten Anstieg schriftlicher Prüfungen an den europäischen Hochschulen geführt.
@@ -55,6 +58,9 @@ Kommt dann noch - wie im Falle der Universität Zürich - ein stetiger Anstieg d
 
 Aus diesen Gründen hat die Leitung der Universität Zürich bereits vor einigen jahren beschlossen, ein gesamtuniversitäres Projekt zur elektronischen Unterstützung schriftlicher Prüfungen zu lancieren. Im rahmen dieses Projekts sollen die organisatorischen und technischen Voraussetzungen geschaffen werden, um das Management schriftlicher Prüfungen bestmöglich mit elektronischen Mitteln zu unterstützen. Vordringliches Ziel dieses Ansatzes ist es, eine nachhaltige und spürbare entlastung der Dozierenden bei Vorbereitung, Durchführung und korrektur schriftlicher Prüfungen zu schaffen.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ### Lösung
 
 In der Theorie werden die optimalen Effizienzgewinne mit der elektronischen Prüfungsdurchführung erzielt. Diese Variante hat jedoch - neben der damit verbundenen technischen Komplexität - den Nachteil, dass die hierzu benötigte IT-Infrastruktur einen erheblichen Kostenfaktor darstellt. Dies gilt insbesondere im Hinblick auf hochvolumige Prüfungen. An der Universität Zürich sind jedoch Prüfungen mit 1.000 und mehr Teilnehmenden keine Seltenheit. Daher wurde der elektronischen Prüfungsdurchführung die automatisierte Auswertung papierbasierter Prüfungen zur Seite gestellt.
@@ -68,6 +74,10 @@ _Jürgen Petry,_
 
  _Projektleiter,Universität Zürich_ 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ### Ergebnis
 
 Um die automatische Verarbeitung der ausgefüllten Prüfungsbögen mit ABBYY FlexiCapture zu optimieren, wird über ein Vorsystem ein auf die konkreten Prüfungsinhalte abgestimmter Fragebogen generiert. Durch die Berücksichtigung der Layout-Empfehlungen von ABBYY ist im Nachgang eine optimale Verarbeitung der digitalisierten Prüfungsbögen durch ABBYY FlexiCapture gewährleistet. Bei Bedarf können diese Prüfungsbögen auch mit einem personalisierten Barcode erzeugt werden, was den Automatisierungsgrad bei der elektronischen Verarbeitung sogar noch weiter erhöht. Zur Digitalisierung der Prüfungsbögen werden Kodak-Produktionsscanner eingesetzt. Vorteil: Für den Import der Indexierungsinformationen aus der Kodak-Scansoftware besitzt ABBYY FlexiCapture bereits standardmäßig eine passend ausgelegte XML-Schnittstelle. Mittels der in ABBYY FlexiCapture integrierten Workflow-Steuerung wird die Prüfungsauswertung dann in zwei Phasen abgearbeitet: Zuerst werden die OCR/OMR-Ergebnisse - hier also die markierten bzw. nicht markierten Kontrollkästchen - im Rahmen der Datenverifizierung nachbearbeitet.
@@ -82,6 +92,9 @@ Der hohe Funktionsumfang von ABBYY FlexiCapture wurde bereits in der Pilotphase 
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -90,6 +103,9 @@ Der hohe Funktionsumfang von ABBYY FlexiCapture wurde bereits in der Pilotphase 
 
 Teilen 
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

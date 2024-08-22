@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Welcomes Anthony Macciola as Their Latest Appointment: Chief Innovation Officer"
-date: 2024-08-20 18:24:54
-updated: 2024-08-22 11:56:30
+date: 2024-08-21T15:11:21.161Z
+updated: 2024-08-22T15:11:21.161Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bfe527075b76486c457bb40593f28ebdf4420fa39a7d079da9e7faa5dde71ba1.jpg
@@ -60,3 +60,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->

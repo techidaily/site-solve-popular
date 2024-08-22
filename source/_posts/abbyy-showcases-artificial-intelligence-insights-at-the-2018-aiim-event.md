@@ -1,7 +1,7 @@
 ---
 title: ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event
-date: 2024-08-19 22:16:41
-updated: 2024-08-22 10:18:55
+date: 2024-08-21T15:11:21.600Z
+updated: 2024-08-22T15:11:21.600Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ae69a61ee431cd865eb63071b7e7dab33df662eeb4d068d44c620780bca6c82.jpeg
@@ -61,3 +61,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Global IDPトレンドの最新発表:成果報告書解説"
-date: 2024-08-19 22:13:56
-updated: 2024-08-22 11:21:28
+date: 2024-08-21T15:11:22.677Z
+updated: 2024-08-22T15:11:22.677Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7a938c8213dc5d370405bab4afa736e010a188d2f4d2dd7c34adab834ad1c13.jpg
@@ -61,6 +61,9 @@ ABBYY IDPの導入とパーソナライズに関する詳細については、[w
 
 ABBYYは、貴社の情報を有効に運用するお手伝いをします。 当社のソリューションは、あらゆる文書、あらゆるフォーマット、あらゆる言語、あらゆる時間のデータを、インテリジェントな実用的成果へと変換します。 当社は、世界10,000社以上の企業をサポートし、その中にはフォーチュン500に名を連ねる企業も多数含まれており、最も重要な分野で当社との提携による恩恵を得ることができます。 ABBYYは、米国に本社を置き、世界14カ国にオフィスを構えるグローバル企業です。 詳細については、[www.abbyy.com/ja/company](https://tools.techidaily.com/abbyy/products/)をご参照ください。 [LinkedIn](https://www.linkedin.com/company/abbyy)、[Twitter](https://twitter.com/ABBYY%5FSoftware)、[Facebook](https://www.facebook.com/ABBYYsoft)でのフォローもお待ちしております。
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 報道関係者お問い合わせ先
 
 #### 株式会社井之上パブリックリレーションズ 

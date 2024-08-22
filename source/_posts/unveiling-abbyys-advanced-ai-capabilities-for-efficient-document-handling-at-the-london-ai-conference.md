@@ -1,7 +1,7 @@
 ---
 title: Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference
-date: 2024-08-20 13:47:43
-updated: 2024-08-22 12:13:15
+date: 2024-08-21T15:11:21.966Z
+updated: 2024-08-22T15:11:21.966Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea7246067d0e64ce56f240c9081.jpg
@@ -61,3 +61,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

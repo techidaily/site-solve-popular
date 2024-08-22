@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content"
-date: 2024-08-21 19:12:50
-updated: 2024-08-22 10:45:19
+date: 2024-08-21T15:11:22.776Z
+updated: 2024-08-22T15:11:22.776Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/78d24648f206f65b94f12ac351c4b3ce727b02ece4c292665e0f6b95fb5f60be.jpg
@@ -29,12 +29,18 @@ Customer engagement applications are now an integral part of our daily life and 
 
 If you have invested in your digital initiatives, you probably expect your ROI in the form of speed of execution and agility to reduce existing business latencies and inefficiencies. However, documents like bills of lading, customs declarations, claims documents, proof of delivery, driver logs, catering and fuel receipts, carrier invoices and expenses still drive and support most 3PL business processes. Drawing on the use of the latest document processing technologies like _Intelligent Capture,_ as well as increasing efficiency through cloud-based solutions, are essential to the success of digitization of transport. Even if a relatively small percentage of logistic data is still locked in paper, it slows down the workflow process. Repetitive and mundane tasks like scanning, tracking and tracing or monitoring shipment schedules, invoicing validation and credit collections can complicate the digital efforts and drive away customers.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Improve Workflow Transparency
 
 Having a digitized and efficient workflow will provide customers transparency into the logistics process, so they have feedback into how their transactions are progressing and what, if any, additional documentation is required to move the process forward. Users want to feel like they are in control of the process.
 
 However, to have a dynamic workflow, intelligent capture is needed to automate the process of classifying document types. Auto-classification of document types into classes and subclasses delivers a tremendous business value. It reduces the cognitive tasks and burden on workers, thereby minimizing errors and operational labor costs, improving worker satisfaction and accelerating the transaction.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Gain Context from Data
 
 Real-time data can be a competitive game changer for 3PL practitioners. It facilitates and accelerates the decision-making process on carrier selection, load optimization, centralized track and trace, and claims management. Management of costs and visibility are important to your customers as well. Armed with metadata, your customers have granular visibility into shipment and on-time delivery validations, duplicate billings, and more.
@@ -43,6 +49,9 @@ Digital transformation in needed in the transportation industry to evolve your o
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

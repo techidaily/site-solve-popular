@@ -1,7 +1,7 @@
 ---
 title: The Role of Artificial Intelligence & ML in Streamlining KYC Processes for Financial Services.
-date: 2024-08-21 23:14:43
-updated: 2024-08-22 12:44:49
+date: 2024-08-21T15:11:23.605Z
+updated: 2024-08-22T15:11:23.605Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/88c6b83c6e65598f301ec5b1e8fb9b13fd16a0c81d9ff03972a4b84d06ac7c03.jpg
@@ -29,12 +29,18 @@ Téléchargez cet eBook pour découvrir comment la Digital Intelligence permet a
 * Obtenir des informations sur la façon dont les gens interagissent avec les documents
 * Découvrir les schémas de comportements suspects dans les processus
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Merci de votre intérêt pour ABBYY.
 
 [Lire l’eBook](https://digital.abbyy.com/hubfs/content/ebook-financialservices-banking-on-intelligence-fr.pdf "Lire l’eBook") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

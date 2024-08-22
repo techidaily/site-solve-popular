@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Success: Boost Your Site's Visibility and Conversions"
-date: 2024-08-19 17:41:12
-updated: 2024-08-22 11:27:18
+date: 2024-08-21T15:11:23.381Z
+updated: 2024-08-22T15:11:23.381Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f567a9fec699d773d0b269b2abfaf091f129a875a6f111520a97150e50266041.jpg
@@ -37,12 +37,18 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35675/1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 2つ目は、「ノイズのある文書が読めない」というものです。請求書などの会社発行の書類では、自社情報の付近に押印されているケースがあります。このような押印が会社情報に被ると会社情報を抽出するのが難しくなります。画像処理により押印部分を除去することで改善、解決することができますが、OCR製品によっては画像処理を行えないものがあります。
 
 3つ目は、OCR製品の多くは「異なる種類の文書をひとつのまとまりとして扱えない」というものです。申請業務などでは、申請書の他に免許証やパスポートの写しなど本人確認の書類が付属することがあります。また自動振込の依頼書などその他の書類が添付されることも良くあります。世の中にはフォーマットが別々でも同一処理を行う必要性のある書類群が存在しますが、OCRは一般的にページ単位や書類単位で処理されるため、
 
 繋がりを考慮しない処理しかできないケースがあります。先ほどの例で申しますと、本来であれば異なる種類の申請書に記載のある氏名と本人確認書類の氏名が一致しているか、など書類間で確認すべき事項があっても、繋がりを意識できないOCR製品の場合は目視での確認のみに留まります。
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## OCR導入に失敗する要因その2：業務利用に起因する問題
 
 二つ目に挙げられるのは、業務利用を検討する際に発生する問題です。
@@ -61,10 +67,16 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35677/3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 3つ目は、「セキュリティと接続性」です。OCR処理を行う帳票には、個人情報や会社の機密情報が含まれることが多々あります。OCR製品の選択では、充分なセキュリティを保てない、あるいは社内のセキュリティ基準を満たせない場合が無いか検討が必要です。
 
 また、社内の認証手続きに合致しない、社内ネットワーク基準に干渉するためアクセスできない、といったことが無いように、シングルサインオンや多段階認証への対応であるとか様々なシステムとの接続性にも事前に目を向ける必要があります。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ## OCR導入に失敗する要因その3：ワークフローに起因する問題
 
 三つ目に挙げられるのは、求められるフローを実現できない問題です。
@@ -85,6 +97,13 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35678/4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## AI OCRの自動化で失敗しないためには
 
 今まで見てきたように、OCR導入とその自動化は、「識字率、AI自動学習、簡単さ」といったOCRそのものの性能・特徴だけではなく、「文書レイアウトへ柔軟に対応できるのか、業務での利用に耐えうる製品か、望むフローを構成できるのか」といった領域についても考慮することが重要です。

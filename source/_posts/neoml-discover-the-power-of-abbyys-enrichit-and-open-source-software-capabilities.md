@@ -1,7 +1,7 @@
 ---
 title: "NeoML: Discover the Power of ABBYY's Enrichit and Open-Source Software Capabilities"
-date: 2024-08-20 17:54:44
-updated: 2024-08-22 11:17:50
+date: 2024-08-21T15:11:23.695Z
+updated: 2024-08-22T15:11:23.695Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/71ccc2fedcffdaa9357153f28278ee3778285e29e6f3d8460fc68588e03103f5.jpg
@@ -64,3 +64,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: Understanding The Complexities in Organizational Process Management – Lessons From the ABBYY Blog
-date: 2024-08-21 20:34:22
-updated: 2024-08-22 10:34:55
+date: 2024-08-21T15:11:23.624Z
+updated: 2024-08-22T15:11:23.624Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/81bdcc97eef551e0f3a9b3144d7c585e9e69ed51245c289c479d5dc0d390d590.jpg
@@ -27,6 +27,10 @@ The true insights to be gained from this survey are not in pitting one industry�
 
 Government leaders are not unique but make clear what needs to be front and center of conversations about process: people. Processes are made to make people more productive, consistent and accountable, yet they so often are designed and budgeted around data, workflow, training technologies and not on usability. Government workers are knowledge workers, dedicated to solving problems for their constituents. In this context, the data reveal that the three most cited reasons why staff did not follow processes were to meet customer needs (44%), processes are too complex (38%) and not enough time to follow them (31%). This indicates that government employees are willing to take shortcuts in order to meet constituents’ expectations because the _processes aren’t working for them_.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## A Different Look at Process, Mining and Automation
 
 With the widespread adoption of robotic process automation (RPA) tools, a new wave of intelligent document processing and OCR tools, and with growing frequency, Process Mining, comes the expectation that processes can be made to work better with the right technologies. That is true to a point, but if those tools are not deployed with honest understanding of how people – knowledge workers in particular – rely on and use processes to assist their productivity, the results of such investments will be the same as with past technology trends. Instead, looking at processes not just as workflows of events and data but as _interactions_ between people, processes and content can yield a better approach.
@@ -37,6 +41,9 @@ _Process Intelligence_ is an innovative approach to mining processes to show and
 
 [![Infographic of Process Mining ABBYY Survey Results July 2020](https://static1.abbyy.com/abbyycommedia/29019/11982_infographics_process-mining_abbyy-survey_eng_300dpi-5.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The data shown here illustrate that government workers do not get adequate decision and action support from their existing processes and systems to facilitate resolution fast enough, so they ‘go around them.’ Not unique to government, the primary reason why so many process automation solutions are failing (RPA, for example, where it is recognized that over 65% of these implementations are failing to achieve their goals) is because they do not adequately address how knowledge workers do their jobs. Process mining can be part of the same problem if it does not focus on work journeys.
 
 Solutions such as [Process Intelligence](https://tools.techidaily.com/abbyy/products/) enable organizations to discover, assess, visualize, analyze, and monitor process flows as interactions between people, processes and content. Powered by artificial intelligence and machine learning technologies, Process Intelligence delivers accurate, in-depth and real-time process discovery, analysis, and monitoring, which help automation leaders to accelerate digital transformation initiatives as facilitators of better decisions and customer service instead of just incremental efficiency gains with the status quo.
@@ -47,8 +54,14 @@ Learn more about [ABBYY solutions for government](https://tools.techidaily.com/a
 
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Reginald J. Twigg
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

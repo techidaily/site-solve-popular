@@ -1,7 +1,7 @@
 ---
 title: Master Your Connections Using iOS 12 Features for Business Cards - Tips From ABBYB Log
-date: 2024-08-20 21:27:25
-updated: 2024-08-22 10:22:23
+date: 2024-08-21T15:11:22.225Z
+updated: 2024-08-22T15:11:22.225Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c55765d4297ec3f7740baed77892bf0fb723d7f4075e0073128d68c9a2027591.jpg
@@ -190,12 +190,18 @@ Android Pie phones will learn to save their batteries sparingly. The system will
 
 For more information about the new features in Android Pie, please [see the official Android website](https://www.android.com/versions/pie-9-0/). The supported devices are listed [here](https://www.mobileheadlines.net/android-pie-9-0/).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **ABBYY Tip: Storing Your Business Cards the Smart Way**
 
 If you are often visit conferences or trade shows or if you are an event organizer yourself, you will have lots and lots of business cards from people you meet there. We have produced a small and but very instructive video to share some tips on how you can store and manage your business cards on your phone.Click here to see the tutorial:
 
 Business Card Reader app can be downloaded [here](http://qrs.ly/iw4uqj5).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## **App of the Week: Merge – Couple Organizer**
 
 This is an organizer app for you and your other half. When you create an account, three tabs will become available, one for yourself, another for your spouse, and a third for both of you.
@@ -203,13 +209,23 @@ This is an organizer app for you and your other half. When you create an account
 ![Couple organizer app](https://static1.abbyy.com/abbyycommedia/31876/23-300x549.png)  
 ![Couple organizer Merge](https://static1.abbyy.com/abbyycommedia/31877/24-300x551.png)  
 ![Merge app for couples](https://static1.abbyy.com/abbyycommedia/31878/25-300x552.png)
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 
 You can create tasks and keep a budget. Now one will be left behind.
 
 ![tasks for sharing chores](https://static1.abbyy.com/abbyycommedia/31879/26-300x578.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 Available on [iOS](https://itunes.apple.com/us/app/merge-to-do-list-app-for-couples/id1227082205?ls=1&mt=8).
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **First-Hand Experience: Advice From a Colleague**
 
 _By Sonya Oronova, Junior Project Manager_ 
@@ -240,6 +256,9 @@ P.S. You can find the previous issue of this newsletter [here](https://tools.tec
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

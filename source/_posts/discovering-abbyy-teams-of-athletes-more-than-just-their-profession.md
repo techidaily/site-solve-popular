@@ -1,7 +1,7 @@
 ---
 title: "Discovering ABBYY Teams of Athletes: More than Just Their Profession"
-date: 2024-08-19 21:43:12
-updated: 2024-08-22 10:13:28
+date: 2024-08-21T15:11:22.120Z
+updated: 2024-08-22T15:11:22.120Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b88f149e018190d8db992f5fa62ce84a76816eeb035902ad86368ed1da64a17e.jpg
@@ -40,10 +40,16 @@ When asked this question, Pierre was quick to correct us “bodybuilding is not 
 
 Bodybuilding has taught Pierre valuable lessons in discipline and consistency. "There really are no secrets, you show up and do the work!" He also highlights how the sport teaches perseverance through challenging tasks and fosters a sense of community and mentorship. These skills translate well into his professional life, helping him approach work with the same dedication and willingness to share knowledge.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Greta Banaityte, Field Marketing and Demand Generation Specialist, UK
 
 ![abbyy-greta-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-sports-enthusiasts-of-abbyy/abbyy-greta-848.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 Greta’s passion for kickboxing not only keeps her fit but also boosts her confidence and relieves stress. Here’s how kickboxing plays a crucial role in her work-life balance and professional development.
 
 ##### What is special about kickboxing to you?
@@ -58,10 +64,16 @@ Kickboxing provides Greta with a great way to stay active and unwind, ensuring s
 
 Several skills and lessons from kickboxing are highly transferable to Greta's work at ABBYY. She highlights patience and stamina as invaluable when managing various marketing situations. "Kickboxing has taught me the importance of perseverance," she notes, explaining how this mindset helps her navigate setbacks. Additionally, kickboxing has shown her not to be intimidated by others, allowing her to approach interactions with courage and determination. “Everyone has their weak spots, and this understanding helps me approach interactions with confidence and assertiveness, ensuring that my voice and ideas are heard within the team”, she told us.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Aniko Biro, Hungary-based Customer Excellence Business Operations Specialist, Hungary
 
 ![aniko-abbyy-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-sports-enthusiasts-of-abbyy/aniko-abbyy-848.png)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Aniko’ commitment to the gym has not only improved her physical health but also provided her with valuable skills that enhance her performance at ABBYY. We sat down with her to find out more about how passion for fitness contributes positively to her day job at ABBYY.
 
 ##### What made you choose this hobby/how did you come across this activity?
@@ -84,10 +96,16 @@ Aniko highlights several transferable skills developed through her gym training:
 * Stress Management: Regular physical activity is a great way to manage stress, helping her stay calm and focused under pressure.
 * Time Management: Balancing gym time with other responsibilities improves her ability to manage time efficiently, ensuring she stays productive both at work and in her personal life.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Oksana Motrunchyk, Renewals Manager, Ukraine
 
 ![oksana-abbyy-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-sports-enthusiasts-of-abbyy/oksana-abbyy-848.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 Oksana found her passion in powerlifting, a sport that has significantly influenced her professional life at ABBYY. Here’s how her dedication to powerlifting helps her achieve a better work-life balance and develop essential skills.
 
 ##### What made you choose this hobby/how did you come across this activity?

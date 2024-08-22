@@ -1,7 +1,7 @@
 ---
 title: "ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska"
-date: 2024-08-19 23:32:40
-updated: 2024-08-22 12:59:40
+date: 2024-08-21T15:11:23.074Z
+updated: 2024-08-22T15:11:23.074Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3f74865abe3cde83f5178213b8f2028e6688a23ca37959ec467d0c79369ad79b.jpg
@@ -33,12 +33,18 @@ I am Director of Customer Success North America and am based 30 miles from Bosto
 
 I’ve been with ABBYY since 2004, so basically, I ‘grew up’ professionally here. I started at an ABBYY office in Eastern Europe and later, when my family moved to the USA, I continued my career with the company. In a previous position, as a Technical Product Marketing Manager for the software development kit (SDK) team, I was responsible for technical product marketing activities for ABBYY FineReader. Prior to that, I was a Technology Licensing Manager.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Your top advice to someone working in your field?
 
 * Treat your customer as you would like to be treated.
 * Listen and try to understand what problem your customer is trying to solve, and proactively provide solutions and answers.
 * Enjoy what you are doing! We spend a huge part of our life at work, so if we do not enjoy what we are doing, it’s a straight path to feeling miserable.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### Do you have any hobbies or fun interests?
 
 I treasure every minute I spend with my family. My son’s climbing competitions and soccer games were a very important part of my life before he left for college. My daughter, who is now a high school junior, keeps us entertained with her dance competitions.
@@ -49,12 +55,21 @@ As a family we hiked to the top of the two tallest peaks in the White Mountains�
 
 ![two children and two adults family at Mt. Washington summit](https://static1.abbyy.com/abbyycommedia/34361/larysalototska-mount.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 My two other hobbies are more relaxing. I absolutely love egg painting using old beeswax and color dyeing techniques. It’s an art called "pysanka" in Ukraine. I also love embroidery, mainly cross stitching. I decorate traditional Ukrainian clothes and make embroidery pictures.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ### If you had one wish come true, what would it be?
 
 I lost my mom to a very aggressive and untreatable cancer. If I had one wish, it would be to create a magic pill to cure any kind of cancer.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### What’s your pet peeve?
 
 People lying. My parents taught me many good life lessons—and one was to never lie. My dad used to say, “Sooner or later the truth will be uncovered, and you will be in a much worse situation than if you stated the truth at the beginning”.
@@ -67,6 +82,9 @@ It also bothers me when I hear anyone say, “I do not know how to do this”. W
 
 [Meet Our Team](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

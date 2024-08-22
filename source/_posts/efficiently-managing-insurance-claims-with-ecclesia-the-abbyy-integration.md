@@ -1,7 +1,7 @@
 ---
 title: "Efficiently Managing Insurance Claims with Ecclesia: The ABBYY Integration"
-date: 2024-08-21 16:20:44
-updated: 2024-08-22 12:21:21
+date: 2024-08-21T15:11:23.465Z
+updated: 2024-08-22T15:11:23.465Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/302790bfdd6c387be2ce7104b2f0ec7045e52a09e036ffbf26a83ecf9455ec5e.jpg
@@ -91,6 +91,9 @@ ABBYY’s technology enabled Ecclesia to fundamentally increase efficiencies in 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

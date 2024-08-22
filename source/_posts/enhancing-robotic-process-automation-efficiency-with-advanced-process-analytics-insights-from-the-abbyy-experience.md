@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Robotic Process Automation Efficiency with Advanced Process Analytics: Insights From the ABBYY Experience"
-date: 2024-08-20 22:17:46
-updated: 2024-08-22 12:33:36
+date: 2024-08-21T15:11:21.748Z
+updated: 2024-08-22T15:11:21.748Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/064bb5c43db4056e998dcb4f406cb778296c7343d435216b9b3443b144736cca.jpg
@@ -89,3 +89,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

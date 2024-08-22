@@ -1,7 +1,7 @@
 ---
 title: "Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days"
-date: 2024-08-21 20:16:23
-updated: 2024-08-22 10:46:40
+date: 2024-08-21T15:11:23.261Z
+updated: 2024-08-22T15:11:23.261Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6aaf83c5a09999402e25379b87750585dedbdeb12f25c6a6196a672ab852e088.jpg
@@ -23,6 +23,9 @@ Government | Accounts Payable Automation
 
 Secteur public | Comptes fournisseurs 
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

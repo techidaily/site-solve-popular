@@ -1,7 +1,7 @@
 ---
 title: "Revolutionize Your Paperwork: Unveiling the Power of ABBYY Vantage Version 2.1"
-date: 2024-08-21 11:11:25
-updated: 2024-08-22 12:17:18
+date: 2024-08-21T15:11:23.572Z
+updated: 2024-08-22T15:11:23.572Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0637330b995d15dd54d33a9215c8a5f8a705636812bbbbc0bf18d5302643fdc0.jpg
@@ -45,6 +45,18 @@ Training a skill and then reviewing the results got a lot easier with a redesign
 
 To get started, users of Vantage can access the FREE [online training and certifications](https://tools.techidaily.com/abbyy/products/) courses.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## New supply chain document skills
 
 No release of Vantage is complete without introducing a new set of pre-trained machine learning (ML) models delivered as document skills. In Vantage v2.1 we’ve added new out-of-the-box, production-ready skills for several documents that are common in supply chain.
@@ -60,6 +72,13 @@ A new set of framework skills for processing tax documents including 1098 and 10
 
 What’s important to point out about the trained skills is that these document skill models can be further trained by users based on their own customer documents. The power of continuously collecting documents and data and retraining the model is built into the Vantage human-in-the-loop capabilities. Once you publish a skill(s) into production and enable online learning, every time a human operator validates exceptions or makes corrections, that information is stored and used to update the learning model. Eventually, your document processes achieve a higher degree of accuracy and straight through processing.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ## ABBYY Marketplace growing momentum
 
 We first launched the marketplace in August 2021, and since then, 30 more assets have been added by ABBYY and our partners. New assets include pre-trained skills, connectors, and solutions that are simple-to-use and accelerate the deployment of IDP projects. Expect this marketplace to lead the way into the future on how enterprises will want to start every document automation project.
@@ -70,16 +89,25 @@ Technology alliance partners like [Pipefy](https://tools.techidaily.com/abbyy/pr
 
 [Calling ISVs and Partners: Upskill Your Business Solutions to Intelligently Process Documents](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Advancing document skills training for the developer
 
 In this release, we have something for every type of user, including the skilled expert who understands the fine art of machine learning, natural language processing (NLP), and named entity recognition (NER). We are pleased to introduce the new Vantage Advanced Skill Designer (available in controlled release), a point-and-click design studio that opens the door to building out the processing pipeline of a trained document skill model.
 
 ![Advanced Designer ABBYY Vantage interface](https://static1.abbyy.com/abbyycommedia/34963/14194-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 The Advanced Skill Designer includes a set of activities for parsing address fields, training NLP for segmentation, or leveraging trained NER to extract entities like names, address, business, dates, and currency. An activity for defining data extraction for edge case document variations that machine learning is unable to pick up at a high degree of accuracy is also possible for a skilled user to create rules.
 
 All this means that no document is too challenging for Vantage to solve. If you have the human skill set, the new advanced designer will give you the tools to show off your expert skills and further developed trained document skills for your business groups.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Building out the delivery of a Cloud native platform with flexibility
 
 Native Cloud and all the buzzwords associated with the next wave of automation platforms can be mind-numbing for a business user, but have special meaning to the IT architect. To the IT architect team, the platform design is key to any purchase decision. The IT team wants to know they are not locking into any delivery model or working with a platform that is closed off and difficult to integrate with all their other cloud native apps.
@@ -102,6 +130,9 @@ If you have a trial of Vantage in the Cloud today, you already have access to al
 
 Bill Galusha
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

@@ -1,7 +1,7 @@
 ---
 title: Enhanced Customer Insights with the Help of Cookiebot Technology
-date: 2024-08-19 16:33:35
-updated: 2024-08-22 10:53:28
+date: 2024-08-21T15:11:21.347Z
+updated: 2024-08-22T15:11:21.347Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a23b6166dff1d71405deccff3c580ba47c280d1fae23b982db1e3d6f2479cd12.jpg
@@ -33,6 +33,9 @@ However, the content needs to be transformed into more than a mere digital facsi
 
 In order to do this, it is first necessary to classify the nature of the content, i.e. determine what it represents and, therefore, identify the context of the information it contains. This can be achieved by _Content Intelligence_ through utilization of AI algorithms capable of automating this time-consuming activity.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## AI-based Classification and Extraction
 
 ABBYY’s FlexiCapture platform incorporates and AI-based auto-classifier. This can be trained to autonomously recognize different types of documents. This evaluates both image and textual information contained in the content. These mechanisms can be deployed either independently or in combination in order to maximize accuracy and performance.
@@ -43,6 +46,9 @@ If all the documents of a particular type were identical, e.g. copies of the sam
 
 The ability to accommodate such diversity comes from a combination AI and business rules to identify, extract and validate the information within the content regardless of the specific layout. The accuracy of the information is maximized through additional validation with external databases, e.g. a vendor database for invoices.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Machine Learning
 
 While a degree of training is necessary during implementation, the system also “self-trains” as an inherent part of the systems normal operations. It does this by incorporating the input from data verification operators.
@@ -51,6 +57,11 @@ This ensures that the accuracy of the information extracted is maintained at an 
 
 What this all means is, that the original content, through _Content_ _Intelligence,_ is now able to speak the right language to technologies such as BPM, RPA and IoT.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ## Example: Setting Up E-Bill Payment
 
 One of the advantages of web-based banking, is the ability of customers to take control of banking transactions that used require talking to a representative of the bank.
@@ -71,6 +82,9 @@ Once the bank, receives the email, FlexiCapture processes the attachment, automa
 
 This extracted information is passed to an RPA application to configure the automated payment and await final activation. Given that the request came in via email, the customer is notified via their Customer Banking Portal and is prompted to confirm the activation of the automatic payment.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Paper-based Billing
 
 Not all customers of vendors avail themselves of paperless billing. Consequently, a mechanism is required to automatically extract information from a paper bill in a manner that enhance the total customer experience.
@@ -87,6 +101,9 @@ This extracted information is passed to an RPA application to configure the auto
 
 The activated automated payment is then displayed in the customer banking portal.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Accelerate Digital Transformation by Speaking the Right Language
 
 By speaking the right language, it is possible to transition seamlessly from the Analog to the Digital Realm. This can enable Bank and all other organization provide the level of synchronous and near synchronous transaction that today’s customers demand
@@ -95,6 +112,9 @@ _**by Carl Hillier, Product Group Head for Data Capture**_
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") 
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

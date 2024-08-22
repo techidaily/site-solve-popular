@@ -1,7 +1,7 @@
 ---
 title: "ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める"
-date: 2024-08-19 21:19:14
-updated: 2024-08-22 12:54:44
+date: 2024-08-21T15:11:21.585Z
+updated: 2024-08-22T15:11:21.585Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/560da63c54300a3a876ba2cfdab00c7431c7174d8c1f2c53836ffd296ae56332.jpg
@@ -94,3 +94,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->

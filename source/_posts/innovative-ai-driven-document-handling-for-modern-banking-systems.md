@@ -1,7 +1,7 @@
 ---
 title: Innovative AI-Driven Document Handling for Modern Banking Systems
-date: 2024-08-19 23:40:38
-updated: 2024-08-22 11:55:12
+date: 2024-08-21T15:11:21.429Z
+updated: 2024-08-22T15:11:21.429Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/419750fa1c7083da86e63dfb35f51d8c92486865748e3041e969fe09697c07c0.jpg
@@ -77,3 +77,7 @@ French investment bank processes 10 million+ pages, 400 different document types
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->

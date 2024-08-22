@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Business Results: Three Key Strategies with AI & Smart Automation"
-date: 2024-08-20 11:31:14
-updated: 2024-08-22 11:35:17
+date: 2024-08-21T15:11:22.172Z
+updated: 2024-08-22T15:11:22.172Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4116c8792bda40459f2d1e2a1bd6affbce6e7196ef5949783c79461a680de11c.jpg
@@ -42,12 +42,18 @@ These inherent benefits notwithstanding, the roundtable discussion raised a numb
 
 Today, digital identity management is typically a centralized process, which is prone to cyberattacks and to privacy breaches. There is momentum toward a more [decentralized digital identity management](https://venturebeat.com/2022/02/19/decentralized-identity-solutions-could-bring-true-ownership-and-security-to-gaming/) framework that gives consumers more control over their own digital identities without dependence on third-party service providers.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ### AI Governance and Regulatory Frameworks: AI governance best practices designed to minimize AI bias and engender consumer trust
 
 While, according to The OECD’s tracker on national AI policies, there are over 700 AI regulatory initiatives under development in over 60 countries, there are no legislatively mandated AI regulations in place. There are, however, voluntary codes of conduct and ethical AI principles developed by international standards organizations such as the Institute of Electrical and Electronic Engineers (“IEEE”) v and the National Institute of Standards and Technology (NIST) vi. However, the AI regulatory framework is rapidly evolving. AI regulation is inevitable, as evidenced by recent developments by the European Commission, Canadian Federal Government, US Federal Trade Commission (FTC), Consumer Financial Protection Bureau (CFPB), and The Federal Reserve Board. They are all flexing their regulatory muscles through their enforcement mechanisms to protect consumers against adverse impacts arising from the increased applications that may result in discriminatory outcomes, albeit, unintended. The bottom line is that implementation of AI governance best practices is no longer a nice to have initiative, but an imperative.
 
 [Learn more about ABBYY's guiding principles for fostering the development, productization, and marketing of trustworthy AI.](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Democratization of AI: How AI is rapidly proliferating from a highly technical domain of data scientists to line of business users
 
 The shift is toward no-code / low-code AI applications development, which according to Business Wire vii is forecast to reach $45.5 billion by 2025\. The main driver is hyper-productivity improvements, which Forrester viii estimates will improve application development productivity by a factor of 10x and deliver [faster time to value](https://www.forbes.com/sites/forbestechcouncil/2021/01/27/low-code-and-no-code-bringing-tech-and-business-together/?sh=179a23df6521). While no-code / low-code development of AI-based applications offers unprecedented speed and ease of use, it also creates potential challenges. Foremost among them is AI governance, risk, and compliance challenges due to lack of scrutiny by data scientists and IT professionals.
@@ -58,6 +64,9 @@ _Sean O'Brien_
 
 As Sean O’Brien ix, an academic at Yale Law School and the founder of Yale’s Privacy Lab, recently warned: “Low code can be like fast food: delivered quickly and in bright packaging, but bad for you, your community, and your ecosystem.” It is important that while no-code / low-code AI development delivers inherent efficiency improvements and time to value, its implementation must include comprehensive testing to ensure that it performs in accordance with initial design objectives, removes potential bias in the training data set, and is secure from adversarial AI attacks that can undermine AI algorithmic outcomes.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Three recommendations organizations may want to consider to fully benefit from the business value of AI technologies
 
 #### 1\. Take a data-driven approach 
@@ -66,6 +75,9 @@ A data-driven approach assists in determining where the applications of AI techn
 
 ![AI in Business - Whiteboard session with a group of people, one standing and four others sitting at table](https://static1.abbyy.com/abbyycommedia/33533/brainstorm-whiteboard-1-new.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 #### 2\. Combine task mining and process mining 
 
 Second, the combination of task mining and [process mining](https://tools.techidaily.com/abbyy/products/) can further help organizations gain insight to end-to-end process execution by visualizing the flow of work through the process stages and see the delays, bottlenecks, and outliers. Process mining gives line of business facts and figures from real-time event log data to back up their decisions, assess the value of AI automation opportunities, continuously monitor the performance of AI systems, and combine process mining with machine learning and artificial intelligence to achieve highly integrated and fully automated insights to forecast processes in their future state, and take action to ensure positive outcomes.
@@ -102,6 +114,13 @@ ix ["Low Code: Satisfying Meal or Junk Food?" by Pam Baker | Information Week, 2
 
 ![Andrew Pery ABBYY](https://static1.abbyy.com/abbyycommedia/25715/andrewpery-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 Andrew Pery
 
 Digital transformation expert and AI Ethics Evangelist for ABBYY
@@ -110,6 +129,9 @@ Andrew Pery is an AI Ethics Evangelist at intelligent automation company [ABBYY]
 
 Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-cipp-c-cipp-e-3a536726/).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

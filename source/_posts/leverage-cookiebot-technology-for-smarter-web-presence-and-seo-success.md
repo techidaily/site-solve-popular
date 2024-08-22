@@ -1,7 +1,7 @@
 ---
 title: Leverage Cookiebot Technology for Smarter Web Presence and SEO Success
-date: 2024-08-19 22:59:25
-updated: 2024-08-22 12:59:35
+date: 2024-08-21T15:11:21.838Z
+updated: 2024-08-22T15:11:21.838Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0d8eb25ffc01674066a975464e8e203ea7154d5d50fa969981b4673868840ed3.JPG
@@ -41,22 +41,40 @@ When I was a boy, I wanted to be a professional athlete. I played ice hockey and
 
 ![Ulf Persson family](https://static1.abbyy.com/abbyycommedia/35267/ulfpersson-wife-458.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 Nowadays, to keep in shape and clear my brain, I go for a run. During the lockdown, I was working inside too much, as most of us were, and began walking a lot with my wife and our dog, sometimes ten kilometers or more. I also make family time a priority. We have three daughters, and the whole family enjoys good food, togetherness, and discussions around the dinner table. We also try to make use of the multitude of things that London has to offer.
 
 ![Ulf Persson family](https://static1.abbyy.com/abbyycommedia/35266/ulfpersson-daughters-458.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### If you had one wish come true, what would it be?
 
 That we as humans were better at weighing short-term satisfaction and benefits with long-term effects and sustainability. This would help improve consumption patterns, drive different individual, governmental, and corporate behavior, and ultimately help us solve the big issues such as climate change and societal health.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### What’s your pet peeve?
 
 I get really frustrated when we, for one reason or the other, don’t live up to our customers’ expectations, but I am not sure if that would fall in the pet peeve category, so here’s another one: when someone shares a document or presentation with me, whether for internal or external consumption, that contains silly mistakes and spelling errors, my blood pressure builds up. To me, quality is not a selective game. You play it all the time.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ### What was the last book you read?
 
 I am currently reading the first book in the Wolf Hall trilogy by Hilary Mantel. It describes life in London under Henry VIII and, specifically, the rise to power of the protagonist Thomas Cromwell from a modest family of blacksmiths to the king’s closest advisor.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ### What’s next for ABBYY, what does the future hold?
 
 I am very proud of the team and what we have created in the last few years, but now we are on the cusp of something much bigger. At ABBYY, we have a real opportunity to lead in the [Intelligent Document Processing](https://tools.techidaily.com/abbyy/products/) and [Intelligent Process Automation](https://tools.techidaily.com/abbyy/products/) markets through innovation and a zealous focus on customer excellence. We have all the building blocks–products, people, and customers. It’s now down to us to build on our growth and execute on a daily basis. Frankly, I have never been as excited about the company’s prospects as I am now.

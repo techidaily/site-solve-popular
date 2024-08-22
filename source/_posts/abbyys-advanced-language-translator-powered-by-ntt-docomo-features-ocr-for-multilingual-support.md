@@ -1,7 +1,7 @@
 ---
 title: ABBYY's Advanced Language Translator - Powered by NTT DOCOMO, Features OCR for Multilingual Support
-date: 2024-08-19 22:37:18
-updated: 2024-08-22 11:20:44
+date: 2024-08-21T15:11:22.696Z
+updated: 2024-08-22T15:11:22.696Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/94567bf4df3b715033d93123bd31d8eb4bb0ab79d545d1676a1f32d06cb990c5.jpg
@@ -65,3 +65,8 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->

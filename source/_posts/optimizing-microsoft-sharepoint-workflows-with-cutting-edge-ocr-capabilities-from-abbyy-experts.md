@@ -1,7 +1,7 @@
 ---
 title: Optimizing Microsoft SharePoint Workflows with Cutting-Edge OCR Capabilities From ABBYY Experts
-date: 2024-08-19 21:22:49
-updated: 2024-08-22 10:56:53
+date: 2024-08-21T15:11:22.263Z
+updated: 2024-08-22T15:11:22.263Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/afe8f045484617e9f5a2ca5a0fbc786ffaec7f39c500d09279ae8778f97ad566.jpg
@@ -31,6 +31,9 @@ Microsoft® SharePoint®などの文書管理システム（DMS）を導入す�
 
 [データシートをダウンロード](https://static1.abbyy.com/abbyycommedia/34873/datasheet-finereaderserver-microsoftsharepoint-en.pdf)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 統合するメリット 
 
 ##### データの迅速な利用が可能に 
@@ -49,6 +52,9 @@ FineReader ServerとSharePointを統合することで、データのストレ�
 
 電子化されたビジネス文書は、ユーザ間の迅速な移行やコンテンツの入れ替えにいつでも対応できます。 FineReader ServerとSharePointを統合することで、紙の原本が破棄されたり紛失したりした場合でも、データが失われることはありません。 
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ユースケース 
 
 ABBYY FineReader Serverを用いて、文書を効率的に保存。 
@@ -61,6 +67,9 @@ ABBYY FineReader ServerとSharePointをスムーズに統合することで、Sh
 
 FineReader Server-to-SharePointコネクタは、画像のみのファイル（スキャンした文書、イメージPDFファイル、ファクス、TIFFファイルなど）をストレージシステムに転送する際に、自動的にPDFに変換することができます。 文書はすべて、圧縮され、アーカイブに適したファイルとして保存されます。 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### 専門家に相談してみませんか？
 
 [デモを予約する](https://tools.techidaily.com/abbyy/products/)[お問い合わせ](https://tools.techidaily.com/abbyy/products/)

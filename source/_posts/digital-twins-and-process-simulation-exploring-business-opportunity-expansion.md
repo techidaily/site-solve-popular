@@ -1,7 +1,7 @@
 ---
 title: Digital Twins and Process Simulation - Exploring Business Opportunity Expansion
-date: 2024-08-19 17:50:47
-updated: 2024-08-22 11:28:31
+date: 2024-08-21T15:11:23.669Z
+updated: 2024-08-22T15:11:23.669Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/58db6060726575b8629c11f7c48875e22b705d59d90ff0cb47cea54cfa62bb48.jpg
@@ -49,6 +49,9 @@ Digitale Zwillinge beschleunigen Innovationen in der Technik, indem sie die zeit
 
 ![process-simulation-image](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/realizing-promise-of-digital-twins-with-process-simulation/process-simulation-image-2024-03-05-23-51-33-401.png?h=477&w=848)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ### Beispiele aus verschiedenen Branchen 
 
 ##### Gesundheitswesen 
@@ -67,6 +70,9 @@ Eine Bank möchte ihr Kreditgenehmigungsverfahren beschleunigen. Nachdem der akt
 
 Ein Online-Händler möchte seinen Produktrückgabeprozess optimieren, um die Kundenzufriedenheit zu erhöhen. Durch die Simulation von Änderungen wie die Einführung von Sofortrückerstattungen, die Vereinfachung von Rücksendeetiketten oder die Bereitstellung von Abholservices lassen sich die Auswirkungen auf Kundenbindung, Betriebskosten und Bestandsverwaltung beurteilen. 
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Prozesse auf dem Prüfstand 
 
 Die Entwicklung von statischen Konstruktionsplänen hin zu dynamischen digitalen Zwillingen im Ingenieurwesen war ein entscheidender Schritt. Im Bereich der Geschäftsprozesse befinden wir uns an einem ähnlichen Wendepunkt. [Prozesserkennung](https://tools.techidaily.com/abbyy/products/) liefert eine Blaupause, aber ohne Simulation ist es wie bei einem Düsentriebwerk, das nie unter realen Flugbedingungen getestet wurde. 

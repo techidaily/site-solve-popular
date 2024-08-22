@@ -1,7 +1,7 @@
 ---
 title: Enhancing Website Analytics Through Cookiebot Technology
-date: 2024-08-21 12:47:26
-updated: 2024-08-22 11:47:23
+date: 2024-08-21T15:11:23.220Z
+updated: 2024-08-22T15:11:23.220Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/238e2de8d5663845563adee13d68f244664dc4975f435870883240d8e13b1f76.jpg
@@ -33,6 +33,9 @@ One of the critical aspects of online services involving sensitive data—such a
 
 A common misperception of identity proofing equates it with another common online security concept, _identity authentication_. Authentication is the use of a combination of credentials—generally a username and password—to gain access to a resource. However, before users can be assigned credentials, especially for access to sensitive resources, they must first verify who they are through identity proofing.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ## How does identity proofing work?
 
 The NIST identifies [three steps that make up the identity proofing process](https://pages.nist.gov/800-63-3/sp800-63a.html#sec5):
@@ -45,6 +48,9 @@ The NIST identifies [three steps that make up the identity proofing process](htt
 
 Manual approaches to this detailed process can be time-consuming, tedious, and at high risk for error. Fortunately, today’s identity proofing systems can leverage automation and AI to carry out each step without the need for human intervention in most cases.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ## What’s the difference between identity proofing and identity affirmation … and why do we need both? 
 
 While identity proofing is a vital capability for organizations looking to secure their processes, there is more to the story. Sophisticated scammers are capable of creating realistic documentation that may even trick some verification systems, even though the human being they describe is purely fictional. This is why businesses need identity affirmation alongside traditional identity proofing. 
@@ -64,6 +70,9 @@ While many vendors offer identity proofing and affirmation tools, few actually d
 * Exception handling (optional human auditing of certain transactions)
 * Process intelligence and mining to identify opportunities for process improvement
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## What are common use cases for identity proofing?
 
 While fraud can happen in nearly any industry, sectors with a high frequency of high-risk transactions stand to derive the greatest benefit from AI-driven identity proofing solutions. Here’s a brief sampling of how businesses in various industries are putting identity proofing to use: 
@@ -96,12 +105,19 @@ While fraud can happen in nearly any industry, sectors with a high frequency of 
 
 ![abbyy proof of identity](https://static1.abbyy.com/abbyycommedia/36104/poi-gif-4_using-poi-1.gif?width=847&height=477)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Over the course of just a few years, the volume and complexity of online transactions has grown exponentially, both for better and for worse. Fortunately, identity proofing and affirmation solutions can help businesses continue to meet consumers’ demands for efficient, convenient services while also staying one step ahead of fraudulent actors.
 
 Not only can you minimize the risk of fraud—and the corresponding costs in terms of money and reputation—but you can also earn and build upon the trust of your customers, building relationships that can support business goals for years to come.
 
 Learn about ABBYY's comprehensive identity proofing solution. [ABBYY Proof of Identity](https://tools.techidaily.com/abbyy/products/) does it all. 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### ABBYY Proof of Identity
 
 Easy for your customers. Secure for your business.
@@ -110,6 +126,9 @@ Easy for your customers. Secure for your business.
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Customer Experience](https://tools.techidaily.com/abbyy/products/) [Customer Onboarding](https://tools.techidaily.com/abbyy/products/) [Data Privacy](https://tools.techidaily.com/abbyy/products/) [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) [Financial Services](https://tools.techidaily.com/abbyy/products/) [Government](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Insurance](https://tools.techidaily.com/abbyy/products/) [Legal](https://tools.techidaily.com/abbyy/products/) [Mobile](https://tools.techidaily.com/abbyy/products/) [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

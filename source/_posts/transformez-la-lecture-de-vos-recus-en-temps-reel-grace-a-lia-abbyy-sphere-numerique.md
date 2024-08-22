@@ -1,7 +1,7 @@
 ---
 title: "Transformez La Lecture De Vos Reçus en Temps Réel Grâce À L'IA : ABBYY Sphère Numérique"
-date: 2024-08-21 18:47:59
-updated: 2024-08-22 10:10:41
+date: 2024-08-21T15:11:23.016Z
+updated: 2024-08-22T15:11:23.016Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c062bf870fbc9fd76648c39e.jpg
@@ -19,6 +19,9 @@ Brochure
 
 Le traitement des pièces justificatives ne devrait pas gâcher le temps et les ressources précieuses de la comptabilité. Lorsque les reçus pour les notes de frais des salariés sont traités à la main, cela se traduit souvent par des erreurs telles que des paiements en doublon, ce qui ralentit les audits et expose votre entreprise à de potentielles fraudes. La solution ABBYY de gestion des dépenses rationalise et améliore les processus de remboursement des dépenses. Il s’agit d’une solution prête à l’emploi pour traiter automatiquement les reçus et en extraire les précieuses données dont vous avez besoin pour une gestion exacte des dépenses.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ### Télécharger maintenant!
 
 Téléchargez cette brochure pour savoir comment la solution ABBYY de traitement intelligent des documents vous aide à capturer, suivre et gérer les dépenses en toute simplicité :
@@ -29,12 +32,18 @@ Téléchargez cette brochure pour savoir comment la solution ABBYY de traitement
 * Comptabilité fluide & intégration à l’ERP
 * Maîtrise totale du budget dépensé
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Merci de votre intérêt pour ABBYY.
 
 [Lire la brochure](https://digital.abbyy.com/hubfs/documents/content/brochure-ap-expense-management-fr.pdf "Lire la brochure") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.
