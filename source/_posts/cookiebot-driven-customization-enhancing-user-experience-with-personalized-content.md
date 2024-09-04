@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content"
-date: 2024-08-25T21:32:45.633Z
-updated: 2024-08-26T21:32:45.633Z
+date: 2024-09-03T22:42:07.667Z
+updated: 2024-09-04T22:42:07.667Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/78d24648f206f65b94f12ac351c4b3ce727b02ece4c292665e0f6b95fb5f60be.jpg
@@ -30,7 +30,16 @@ Customer engagement applications are now an integral part of our daily life and 
 If you have invested in your digital initiatives, you probably expect your ROI in the form of speed of execution and agility to reduce existing business latencies and inefficiencies. However, documents like bills of lading, customs declarations, claims documents, proof of delivery, driver logs, catering and fuel receipts, carrier invoices and expenses still drive and support most 3PL business processes. Drawing on the use of the latest document processing technologies like _Intelligent Capture,_ as well as increasing efficiency through cloud-based solutions, are essential to the success of digitization of transport. Even if a relatively small percentage of logistic data is still locked in paper, it slows down the workflow process. Repetitive and mundane tasks like scanning, tracking and tracing or monitoring shipment schedules, invoicing validation and credit collections can complicate the digital efforts and drive away customers.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="150" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Improve Workflow Transparency
 
@@ -39,7 +48,10 @@ Having a digitized and efficient workflow will provide customers transparency in
 However, to have a dynamic workflow, intelligent capture is needed to automate the process of classifying document types. Auto-classification of document types into classes and subclasses delivers a tremendous business value. It reduces the cognitive tasks and burden on workers, thereby minimizing errors and operational labor costs, improving worker satisfaction and accelerating the transaction.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Gain Context from Data
 
@@ -50,7 +62,10 @@ Digital transformation in needed in the transportation industry to evolve your o
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

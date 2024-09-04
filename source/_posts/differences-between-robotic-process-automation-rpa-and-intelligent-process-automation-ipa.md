@@ -1,7 +1,7 @@
 ---
 title: Differences Between Robotic Process Automation (RPA) and Intelligent Process Automation (IPA)
-date: 2024-08-25T21:30:05.408Z
-updated: 2024-08-26T21:30:05.408Z
+date: 2024-09-03T22:42:04.854Z
+updated: 2024-09-04T22:42:04.854Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6490fa2e8c158c917a608e37e654c53e5a410f7e37ed3b9237ae0e8dd67dcf2f.jpg
@@ -42,9 +42,6 @@ Jump to:
 
 With RPA, businesses can perform rule-based tasks at a faster speed and higher volume. RPA software integrates seamlessly with businesses' existing applications and systems. This makes it a cost-effective solution to streamline operational processes and free up employees to focus on value-adding activities.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How it works
 
 RPA software tools have three, core capabilities:
@@ -67,17 +64,50 @@ RPA offers several benefits that help to eliminate process inefficiencies within
 * **Better accuracy:** RPA bots are programmed to follow specific workflows. This improves process consistency and eliminates the risk of human error associated with manual data entry.
 * **Scalability:** RPA systems can easily scale up or down to match business needs. For example, more bots can be deployed during peak trading times to quickly handle increased demand.
 
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is IPA? 
 
 **![How Intelligent Process Automation Works](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/rpa-vs-ipa-2024-update/how-intelligent-process-automation-works.png)**
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<span id="1304648">
+					<video width="125" height="125" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Intelligent process automation, or [IPA](https://tools.techidaily.com/abbyy/products/), is an advanced form of automation. It combines AI technologies, such as intelligent document processing, process mining, task mining, machine learning, natural language processing, and advanced analytics with automation technologies such as RPA to streamline complex business processes and mimic intelligent human decision-making.**
 
 Unlike [RPA](https://tools.techidaily.com/abbyy/products/), which focuses on automating repetitive tasks, IPA specializes in complex processes that involve unstructured data, decision-making, and learning from data over time.
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="125" height="125" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How it works 
 
 IPA integrates RPA with advanced AI technologies to automate complex business processes. Much like RPA, the process of implementing IPA begins with identifying suitable process steps for automation. These tasks are then analyzed to understand their workflows, content, applications they interact with, and decision points.
@@ -92,10 +122,6 @@ This integration of technologies allows businesses to automate tasks that requir
 
 Once in production, IPA systems can monitor processes to make sure their performance is optimal and adapt to any changes with alerting of specific deviations to enable human-in-the-loop intervention.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### Benefits of IPA
 
 IPA offers significant benefits by merging RPA's structured automation with advanced AI capabilities. This combination unlocks a broad range of process automation opportunities, aiming to improve efficiency and decision-making. Some of the key benefits of IPA are:
@@ -134,6 +160,12 @@ IPA is more suitable than RPA for tasks that may need in-depth analysis, such as
 
 Intelligent process automation (IPA) transforms business operations by enhancing efficiency and accuracy. Here are three examples of how RPA and IPA technologies are used in different industries.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### RPA in financial services
 
 [Financial services](https://tools.techidaily.com/abbyy/products/) organizations traditionally undertake a range of routine tasks, including data entry, account reconciliation, and compliance reporting. To complete these tasks, RPA bots can extract data from various sources, validate it, and update the relevant systems.
@@ -141,7 +173,16 @@ Intelligent process automation (IPA) transforms business operations by enhancing
 RPA can be used for other rule-based tasks like data transfer between systems, moving files, and filling out forms. Using automation for repetitive processes helps financial institutions to improve their data accuracy and frees employees to work on more strategic activities.To automate activities involving the extraction of data from semi-structured document such as account opening, invoice processing, and fraud detection—IPA is required. 
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<span id="1982508">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### IPA in insurance
 
@@ -150,7 +191,16 @@ IPA can play a crucial role in reducing the manual tasks involved in [insurance]
 IPA also provides detailed insights into the operational performance of insurance processes. With this data, insurance businesses can identify further opportunities for process optimization.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<span id="1983573">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### IPA in healthcare
 
@@ -159,7 +209,16 @@ By leveraging IPA, [healthcare](https://tools.techidaily.com/abbyy/products/) pr
 Healthcare institutions can also use IPA technology to improve the processes that drive healthcare delivery. Purpose-built AI solutions identify valuable areas for improvement and expedite the flow of information that improves patient outcomes and revenue cycle management. 
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1743243">
+					<video width="125" height="125" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## RPA vs. IPA: Which is best for your business?
 
@@ -173,10 +232,6 @@ With a low-code [IPA solution](https://tools.techidaily.com/abbyy/products/) lik
 
 [Request demo](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## Frequently asked questions
 
 ##### How do RPA and IPA work together?

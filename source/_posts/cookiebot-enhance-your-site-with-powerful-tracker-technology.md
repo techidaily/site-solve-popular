@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: Enhance Your Site with Powerful Tracker Technology"
-date: 2024-08-25T21:30:00.138Z
-updated: 2024-08-26T21:30:00.138Z
+date: 2024-09-03T22:42:04.746Z
+updated: 2024-09-04T22:42:04.746Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/855eb1fbf7971ff96081545be670b71dd8396e6ecbde85afd3575d8478b3848e.jpg
@@ -48,7 +48,10 @@ WinActorは、本連携で得た知見を活かし、今後も製品の充実を
 ABBYY Japan エンジニアリングチーム
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 

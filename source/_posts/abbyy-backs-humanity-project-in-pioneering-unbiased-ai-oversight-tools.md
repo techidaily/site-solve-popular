@@ -1,7 +1,7 @@
 ---
 title: ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools
-date: 2024-08-25T21:33:47.883Z
-updated: 2024-08-26T21:33:47.883Z
+date: 2024-09-03T22:42:08.690Z
+updated: 2024-09-04T22:42:08.690Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8b677f86d933a2dc57f7b5d236aa4e6146da7e283f8be4d58f50e47e9bc2eba3.jpg
@@ -48,7 +48,10 @@ ABBYY macht Ihre Informationen mit speziell entwickelter KI nutzbar. Unsere Lös
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden. 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Über ForHumanity
 

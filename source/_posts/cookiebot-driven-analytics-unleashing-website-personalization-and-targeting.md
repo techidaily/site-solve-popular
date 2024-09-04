@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting"
-date: 2024-08-25T21:32:00.591Z
-updated: 2024-08-26T21:32:00.591Z
+date: 2024-09-03T22:42:06.921Z
+updated: 2024-09-04T22:42:06.921Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/876e753e27077574ad25291cd756f73dd324e0088d395c4f6b7d4b1f29dc8396.jpg
@@ -27,6 +27,18 @@ thumbnail: https://thmb.techidaily.com/876e753e27077574ad25291cd756f73dd324e0088
 
 [記事はこちら](https://innotechtoday.com/are-business-analysts-ready-for-the-new-digital-era/)
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="540" height="960" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Onboarding Your Digital Workforce - デジタル労働力（例えばRPA）の導入活動
 
 昨年、RPAは爆発的に需要が増加しましたが、多くの企業は依然としてたくさんのRPAプロジェクトが当初考えていたように機能せず失敗していることに気づきました。 私たちは、デジタルワーカー（RPA）を適切に導入し、彼らのパフォーマンスを注意深く監視して、デジタルワーカー（RPA）が最大限に活用されていることを確認する必要があることを学びました。 Chief Executiveでは、弊社CEOより、デジタルワーカー(RPA)がしっかりと仕事をこなしているかを確認する方法について語られています。
@@ -41,39 +53,51 @@ thumbnail: https://thmb.techidaily.com/876e753e27077574ad25291cd756f73dd324e0088
 
 ![ABBYY Timeline dashboard for hospitals](https://static1.abbyy.com/abbyycommedia/31822/timeline-screenshot-healthcare.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **_ABBYY Timeline は、ヘルスケアを提供されている方々に、継続的な運用上の洞察を提供するクラウドベースのプラットフォームです。 詳細は [こちら](https://tools.techidaily.com/abbyy/products/)。なお、ABBYY Timelineの[体験版申し込み](https://tools.techidaily.com/abbyy/products/)も承っております。日本語UIもサポートしております。_**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. AI and Automation Enabling Remote Working During the COVID-19 Crisis - 新型コロナ感染危機の際にテレワークを可能にしたAIそして自動化
 
 Enterprise Talkでは、ABBYYのAIエバンジェリストであるIvan Yamschikovが、CIOが現在の状況を乗り切るために必要なDX（デジタルトランスフォーメーション）についてインタビューしています。例えば、「時代の先を行くリーダーがどのように皆を先導するか、テレワークの際の従業員の生産性とパフォーマンスをどのように監視するか。 自動化への投資とこれが新型コロナ感染危機を乗り切る組織の能力にどのように直接関連しているのか。 企業が、従業員に権限を与えて自己責任を持つことができるようにし、プロセスがどこで壊れているかを発見させ、将来どのように早く立ち直らせるか。 」などです。
 
 [記事はこちら](https://enterprisetalk.com/interview/ai-and-automation-enabling-remote-working-during-the-covid-19-crisis/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Will COVID-19 Change Opinions About Automation Adoption? - 新型コロナ感染流行は自動化の採用に関して影響を与えますか？
 
 ITProTodayでは、新型コロナ感染流行が続く中、この通常ではない時期にビジネスを継続するためには自動化の採用が一気に行われなければならないという証拠がいくつかあることについて話しました。 新型コロナウイルスの大流行は、創造的なソリューションを必要とするビジネス環境を生み出し、それらのソリューションの一部は自動化によってもたらされました。これは、今ビジネスを継続するために必要なソリューションが、さまざまな分野でデジタルへの移行を加速していることを示しています。
 
 [記事はこちら](https://www.itprotoday.com/artificial-intelligence/will-covid-19-change-opinions-about-automation-adoption)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 6\. Knowing WFH Preferences Key to Employee Recruitment and Retention - 在宅勤務の好みを知ることは従業員の採用と離職防止の鍵となることでしょう
 
 ![work from home family](https://static1.abbyy.com/abbyycommedia/31774/6_gettyimages-1207391933.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 組織は、どんなタイプの作業環境がモチベーション、生産性、および作業満足度を得られるかについて、従業員の好みに耳を傾け、理解することで、従業員が従事する職場文化を作り出すことができます。これは、混乱や根本的な変化のときに特に重要です。 ReadWriteのコラムでは、新しい時代の仕事をリードするために、機敏で迅速に適応でき、従業員のやる気を引き出し、最高の人材を引き付ける魅力的な職場環境を構築できる組織が、どのようにして良いポジションに立てるかをお話しています。
 
 [記事はこちら](https://readwrite.com/2020/08/25/knowing-wfh-preferences-key-to-employee-recruitment-and-retention/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<span id="1983551">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 7\. Want to be a Leader in the Digital-First Era? Upskill Your Workforce - デジタルファースト時代のリーダーになるためのスキルアップ
 
@@ -81,19 +105,28 @@ ITProTodayでは、新型コロナ感染流行が続く中、この通常では�
 
 [記事はこちら](https://www.cmswire.com/learning-development/want-to-be-a-leader-in-the-digital-first-era-upskill-your-workforce/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 8\. It’s Time to Upskill Your Digital Workforce - 今こそデジタル労働力を高めよう！
 
 あなたの職場のデジタル労働力はどれくらいスマート（賢い）ですか？ 現在、多くの組織がAIベースのスキルを活用してエンドツーエンドのアクティビティを実行させることにより人間の職務を遂行することができるデジタルワーカー、つまりソフトウェアベースの労働者を配置しています。 しかし、リーダー達は、これらのソフトウェアロボットが非構造化ドキュメントを含むような、より高度で複雑なタスクを自動化できないことにすぐに気づきます。
 
 ![working from home](https://static1.abbyy.com/abbyycommedia/31775/7_gettyimages-1215346013.jpg)このフォーブスの記事では、企業のセンターオブエクセレンス（CoE、組織横断的専門チーム）内の意思決定者が、DX導入から実際に影響を与えるために、適切な機能を備えたスキルアップしたデジタルワーカーと自動化プラットフォームをどのように検討する必要があるかについて説明しています。
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [記事はこちら](https://www.forbes.com/sites/forbestechcouncil/2020/09/09/its-time-to-upskill-your-digital-workforce/#6f44f0ab15b8)
 
 **非構造的文書の処理にはABBYY FlexiCaptureが最適です。詳しくは[こちら](https://tools.techidaily.com/abbyy/products/)。**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 9\. How Task Mining Can Turbocharge Your Productivity - タスクマイニングによってどのように生産性を上げることができるのか？
 
 経営陣は問題に直面しています。このコロナ下で急ぐことが多いからです。例えば、優先順位をリセットしたり、顧客が望む方法を再考したり、従来のオフィス環境に戻らない可能性が高い多くのスタッフとのハイブリッド作業を認めようとしたりと待ったなしの状況です。Analytics Insightでは、リーダーシップの一部として、どのように[タスクマイニング](https://tools.techidaily.com/abbyy/products/)がすべての現代組織に対して多くの利点もたらすかを共有しています。特に以下について言及しています。
@@ -105,16 +138,10 @@ ITProTodayでは、新型コロナ感染流行が続く中、この通常では�
 [記事はこちら](https://www.analyticsinsight.net/how-task-mining-can-turbocharge-your-productivity/)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 10\. Six Professions That Should Get Their Own Robot in 2021 - 2021年にロボット化されるべき6つの職業
 
@@ -126,9 +153,6 @@ ITProTodayでは、新型コロナ感染流行が続く中、この通常では�
 
 [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [AI OCR](https://tools.techidaily.com/abbyy/products/) [新型コロナ感染症](https://tools.techidaily.com/abbyy/products/) [デジタルインテリジェンス](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 
