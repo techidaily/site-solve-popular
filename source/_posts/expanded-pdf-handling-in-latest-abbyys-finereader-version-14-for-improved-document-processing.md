@@ -1,22 +1,40 @@
 ---
 title: Expanded PDF Handling in Latest ABBYY's FineReader Version 14 for Improved Document Processing
-date: 2024-09-03T22:42:07.858Z
-updated: 2024-09-04T22:42:07.858Z
+date: 2024-09-08T23:36:37.452Z
+updated: 2024-09-09T23:36:37.452Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8dff629c3669eeacd81da2258d66f3b6e2ba5af06b80b9aa947e69afc78af4df.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Expanded PDF Handling in Latest ABBYY's FineReader Version 14 for Improved Document Processing
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Expands FineReader 14 Capabilities to Support More PDF Standards
 
 October 30, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _PDF productivity tool features latest OCR technology to make working with digital documents easier and more accessible_
 
 ABBYY® a leading provider of content intelligence solutions and services, today announced [FineReader 14](https://tools.techidaily.com/abbyy/products/) now has added support for the latest PDF ISO standard and improved functionality to create PDF/UA (Universal Accessibility) documents. Along with improved optical character recognition (OCR) for Japanese and added Hanja symbols for documents in Korean, FineReader 14 is a more powerful PDF productivity tool for global organizations needing to offer digital information easily accessible to the public.
@@ -108,10 +126,3 @@ Connect with us
 <li><a href="https://tech-revival.techidaily.com/top-6-benefits-how-my-ai-transforms-snapchat-beyond-being-merely-fun/"><u>Top 6 Benefits: How My AI Transforms Snapchat Beyond Being Merely Fun</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/unveiling-process-intelligence-insights-into-advanced-data-analytics/"><u>Unveiling Process Intelligence: Insights Into Advanced Data Analytics</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

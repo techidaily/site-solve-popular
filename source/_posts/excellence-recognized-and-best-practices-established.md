@@ -1,22 +1,52 @@
 ---
 title: Excellence Recognized and Best Practices Established!
-date: 2024-09-03T22:42:05.788Z
-updated: 2024-09-04T22:42:05.788Z
+date: 2024-09-08T23:36:35.424Z
+updated: 2024-09-09T23:36:35.424Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bf1aa2624ef83ca4793045372b8a4d65e582b534521041d47a00805c4d5db19c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Excellence Recognized and Best Practices Established!
 
 Bericht
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY im Gartner® Magic Quadrant™ for Process Mining-Platforms 2024 als Marktführer benannt
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ABBYY wurde für seine Timeline-Process-Intelligence-Plattform nach den Kriterien Vollständigkeit der Vision und Umsetzungskompetenz ausgezeichnet. 
 
 ![Figure_1_Magic_Quadrant_for_Process_Mining](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/figure_1_magic_quadrant_for_process_mining.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Process-Mining-Plattformen](https://tools.techidaily.com/abbyy/products/) helfen Unternehmen, intelligente, datenbasierte Entscheidungen schneller zu treffen, um operative Ziele zu erreichen und Wettbewerbsvorteile zu erzielen. Der Gartner® Magic Quadrant™ for Process Mining Platforms untersucht die aktuellen Marktkräfte und die führenden Anbieter von Process-Mining-Plattformen. 
 
 [ABBYY Timeline](https://tools.techidaily.com/abbyy/products/) ABBYY Timeline ist eine umfassende Process-Intelligence-Plattform für die Erkennung, Analyse, Überwachung, Vorhersage und Simulation von Prozessen. Die benutzerfreundliche No-Code-Plattform ermöglicht es Unternehmen, Prozesse aller Art zu verstehen und zu verbessern, selbst wenn diese unstrukturiert oder unübersichtlich sind oder ad hoc aufgesetzt wurden. 
@@ -40,10 +70,10 @@ GARTNER is a registered trademark and service mark, and MAGIC QUADRANT and PEER 
 Gartner Peer Insights content consists of the opinions of individual end users based on their own experiences with the vendors listed on the platform, should not be construed as statements of fact, nor do they represent the views of Gartner or its affiliates. Gartner does not endorse any vendor, product or service depicted in this content nor makes any warranties, expressed or implied, with respect to this content, about its accuracy or completeness, including any warranties of merchantability or fitness for a particular purpose."
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Danke für Ihr Interesse an ABBYY. 
 

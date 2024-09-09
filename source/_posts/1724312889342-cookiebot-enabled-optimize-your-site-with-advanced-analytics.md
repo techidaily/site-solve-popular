@@ -1,16 +1,34 @@
 ---
 title: "Cookiebot-Enabled: Optimize Your Site with Advanced Analytics!"
-date: 2024-09-03T22:42:08.162Z
-updated: 2024-09-04T22:42:08.162Z
+date: 2024-09-08T23:36:37.771Z
+updated: 2024-09-09T23:36:37.771Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf251228c4f908d9ec621a0b86cd0.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled: Optimize Your Site with Advanced Analytics!
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Impact of AI on the Legal Profession
 
 ###### Michael Simon
@@ -19,6 +37,12 @@ November 27, 2018
 
 ![The Impact of AI on the Legal Profession: ABBYY Blog Post #5 of 5 Content Analytics](https://static5.abbyy.com/abbyycommedia/25324/9787e_blog_content-analytics-blog-seriesblog_5.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 As some of you might know – but most of you probably don’t – I am the lead author (along with three tremendous co-authors from the law firm of [HoganLovells](https://www.hoganlovells.com/)) of a recent article in the Yale Law School Journal of Law and Technology: [Lola V. Skadden](https://yjolt.org/lola-v-skadden-and-automation-legal-profession). Our article looks at the explosive, exponential growth of [Artificial Intelligence (“AI”)](https://www.bernardmarr.com/default.asp?contentID=963) and what the law as a profession along with individual lawyers can – and should – do about it. We’ve done our best in the article, I think, to present both the dangers and opportunities presented by AI to not just the law, but to our society as a whole.
 
 Now, I don’t expect any of you to be familiar with the Lola v. Skadden case, because, frankly, it was a somewhat obscure case. In a very short summary a very important and influential US court (not the US Supreme Court, but one of the most important Federal appellate courts just below it) held that when it comes to the practice of law, anything that a machine can do simply cannot be considered to be “the practice of law.”
@@ -43,12 +67,24 @@ For those just starting out in their legal careers, it’s probably going to tak
 
 ![Mike Simon Attorney](https://static1.abbyy.com/abbyycommedia/25501/21-mikesimon-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Michael Simon
 
 Michael Simon is the Principal of Seventh Samurai, an e-Discovery and Information Governance expert consulting firm. As a trial attorney in Chicago, he was an early innovator in using electronic evidence to win cases for his clients. He is an adjunct professor at Michigan State University College of Law (and formerly at Boston University School of Law), teaching classes in e-Discovery. He has advised a number of companies and government agencies on how to best mitigate the risks arising from their information while best optimizing value, and provides strategic consulting for companies in the analytics, security, privacy, and legal technology markets.
 
 Michael is a legal technology thought leader, having made over 100 presentations and written dozens of articles on e-Discovery and legal technology topics, including a book on Internet Law in 2002\. He received his J.D. from Loyola University Chicago School of Law, and his B.A. cum laude from Tufts University.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -182,16 +218,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="150" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

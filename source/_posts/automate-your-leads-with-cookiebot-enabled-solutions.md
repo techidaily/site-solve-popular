@@ -1,7 +1,7 @@
 ---
 title: Automate Your Leads with Cookiebot-Enabled Solutions
-date: 2024-09-03T22:42:06.830Z
-updated: 2024-09-04T22:42:06.830Z
+date: 2024-09-08T23:36:36.441Z
+updated: 2024-09-09T23:36:36.441Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0ca201532589a8340625e0277d57d7a6d8a4fe5f03caf08035754438a176d190.jpg
@@ -11,6 +11,12 @@ thumbnail: https://thmb.techidaily.com/0ca201532589a8340625e0277d57d7a6d8a4fe5f0
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## タスクマイニングによるデスクトップでのユーザ操作分析もABBYY Timeline（プロセスインテリジェンス）で可能に！
 
 ###### Ryan Raiker
@@ -19,12 +25,24 @@ thumbnail: https://thmb.techidaily.com/0ca201532589a8340625e0277d57d7a6d8a4fe5f0
 
 ![ABBYY Task Mining](https://static2.abbyy.com/abbyycommedia/33047/marlin-blog-cover-2.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 企業は、ドキュメント、フォーム、画像、電子メールなどのコンテンツを迅速かつ正確に処理するといったシーンで、ますます大きな課題に直面し続けています。ドキュメント内の特定の情報を検索し、データ入力を実行し、レビューと承認のためにドキュメントをルーティングするためには、膨大な量の手作業が必要になる場合があります。従業員たちは、継続的に、運用やカスタマエクスペリエンス（顧客体験）に影響を与えないように、コンテンツを処理するこれらのエラーが発生しやすいタスクの遂行に専念しています。
 
 現代のデジタル企業で最高のパーソナルアシスタントは、コーヒーを燃料にする人間ではなく、1と0デジタルベースのロボットになります。これらのロボットのニーズを考えるとき、ロボットが遂行するタスクのほとんどは人間のスキルを必要とします。RPAやその他の自動化ツールなどのデジタルテクノロジーによって推進される今日のビジネス環境では、コンテンツの処理に関して、より高いレベルのインテリジェンスが必要です。よりスマートなテクノロジーが必要ですが、自動化ツールでのトレーニングとその活用も簡単でなければなりません。
 
 これらのスキルは、デジタルインテリジェンスで見つけることができます。これらのロボットアシスタントが組織に最大の価値と影響を与える場所を特定したい場合には、従業員がどのように働いているかを理解する必要があります。ビジネスインテリジェンスおよびプロセスマイニングツールでは、KPIに基づき、ビジネスがどのように機能するかについても答えようとしましたが、多くの場合、企業内で人、プロセス、およびコンテンツがどのように接続するかについての高度な分析を提供できていませんでした。 ABBYYは、これを行うためのスキルと理解を提供していきます。
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## タスクマイニングとは？ - タスク分析の将来
 
 タスクマイニングを使用すると、企業はユーザの操作（タスク）を収集して分析することにより、タスクの遂行方法を理解できます。このように詳細を理解することは、企業がプロセスを自動化および改善するのに役立ちます。タスクマイニングはプロセスマイニングと類似しており、並行して考えられますが、ログファイルやビジネスメトリックではなく、ユーザインタラクション（ユーザとPCとの間での相互やり取り）データを使用してプロセスを分析します。
@@ -41,18 +59,6 @@ _将来的には、私たちは、より流動的な方法で仕事について�
 
 _要が出てきます。仕事をより細かくタスクに分割して考えることは、人間と機械のハイブリッドな労働に移行し、持続していくためにも、必要となります_
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="150" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## どのようにタスクマイニングは動くのでしょうか？
 
 タスクマイニングがどのように機能するかを段階的に説明します:
@@ -76,25 +82,13 @@ _要が出てきます。仕事をより細かくタスクに分割して考え�
 ##### 以下のビデオを見て、タスクマイニング機能の動作を確認することが可能です。
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## ABBYY Task Mining Demo（英語版）
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024329/7443" target="_top" id="2024329">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024329" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024329/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### タスクマイニングはプロセスマイニングとどう違うのでしょうか？
 
 タスクマイニング技術は、プロセスマイニングの機能を拡張します。どちらもプロセス効率の向上、改善を目的としています。
@@ -106,10 +100,10 @@ _要が出てきます。仕事をより細かくタスクに分割して考え�
 タスクマイニングは、より正確に、細かくタスクを遂行する操作方法を可視化し、プロセスマイニングは、タスクマイニングでのユーザインタラクションデータを活用し、企業がプロセスをどの程度正確に実行しているかを理解することができます。
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## タスクマイニングの利点
 
@@ -149,19 +143,13 @@ _要が出てきます。仕事をより細かくタスクに分割して考え�
 ![Ryan Raiker ABBYY](https://static1.abbyy.com/abbyycommedia/25563/02b-ryanraiker-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Ryan Raiker
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

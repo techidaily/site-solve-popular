@@ -1,22 +1,40 @@
 ---
 title: "Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY"
-date: 2024-09-03T22:42:07.172Z
-updated: 2024-09-04T22:42:07.172Z
+date: 2024-09-08T23:36:36.766Z
+updated: 2024-09-09T23:36:36.766Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3f6c6bea7939b70a1c035d96c63060bf36a01be87fa819f994489367d6bd8b9a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Partners with Alteryx Extending the Alteryx Analytic Process Automation Platform with Deeper Process Intelligence
 
 October 06, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Integrated Solution Accelerates Key Digital Transformation Initiatives_
 
 ABBYY, a Digital Intelligence company, announced today that it has partnered with Alteryx, Inc. (NYSE: AYX), a leader in analytic process automation (APA™), to deliver process intelligence capabilities that complement the [Alteryx Analytic Process Automation Platform™](https://www.alteryx.com/products/apa-platform).
@@ -122,10 +140,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

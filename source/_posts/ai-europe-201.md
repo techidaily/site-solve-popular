@@ -1,22 +1,46 @@
 ---
 title: AI Europe 201
-date: 2024-09-03T22:42:06.125Z
-updated: 2024-09-04T22:42:06.125Z
+date: 2024-09-08T23:36:35.774Z
+updated: 2024-09-09T23:36:35.774Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e696268502b283ed640a05098ec06b8044deb546bbd2035bab816a7494c0bab9.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## AI Europe 201
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY to Showcase Cognitive Document Processing Solutions at AI Europe 2017 Conference in London
 
 November 20, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _ABBYY will Present New Version of its Real-Time Recognition Software Development Kit at Booth #A2A_
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/), a global provider of intelligent capture solutions to improve business outcomes, is presenting at the [AI Europe Conference](https://ai-europe.com/) to share its perspectives on how innovative artificial intelligence (AI) solutions can help businesses unlock value in documents. The conference will take place in London the 20th-21st November.
@@ -102,10 +126,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-web-analytics-and-performance/"><u>Utilizing Cookiebot Technology for Optimized Web Analytics & Performance</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/vereinheitlichte-buchhalterlosungen-mit-iguana-und-abbyy-fur-verbesserte-kreditorenverwaltung-and-geschaftsprozesse/"><u>Vereinheitlichte Buchhalterlösungen Mit IGuana Und ABBYY Für Verbesserte Kreditorenverwaltung & Geschäftsprozesse</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

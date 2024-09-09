@@ -1,7 +1,7 @@
 ---
 title: Enhance Your Marketing Analytics Using Cookiebot Technology
-date: 2024-09-03T22:42:07.143Z
-updated: 2024-09-04T22:42:07.143Z
+date: 2024-09-08T23:36:36.737Z
+updated: 2024-09-09T23:36:36.737Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/578092e9e17a69c476b3082e47519b7819155a500c43a741b28a10c98f28c4a5.jpg
@@ -11,55 +11,67 @@ thumbnail: https://thmb.techidaily.com/578092e9e17a69c476b3082e47519b7819155a500
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Business of Artificial Intelligence
 
 February 22, 2018
 
 ![5 Industries impacted by Artificial Intelligence | ABBYY Blog Post](https://static3.abbyy.com/abbyycommedia/25264/9031e_blog_the-business-of-artificial-intelligenceblog.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 For centuries, people have been dreaming of a machine that could be a kind of reliable helper. With technological change on an astonishing scale in the 21st century, this age-long human dream is finally coming true. We are in the era of Artificial Intelligence (AI), which is fulfilling man's dream to hand over life's mundane tasks to the machines. By 2020, AI technologies will be present in every new software products and services, [according to Gartner, Inc](https://www.gartner.com/newsroom/id/3763265). AI will become a priority for investments of almost a third of companies in the world and the basis for the growth of world GDP.
 
 The possibilities are limitless. New AI-based solutions can transform streams of disparate data into information necessary for strategic decision-making and business development. AI-based solutions can prevent emergencies at enterprises, protect businesses and customers from fraud, respond to customer support requests, read and understand millions of pages of laws and regulations to help companies bring business into compliance with legal norms. Based on ABBYY’s experience, here are five key areas where AI will profoundly transform business:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Customer Service Industry
 
 AI is fueling a seismic shift in customer expectations. Customers now want to interact with companies 'here and now' in a way that minimizes their efforts and want services are available to them regardless of office hours. New AI tools are popping up daily in the support space that can address high-urgency situations quickly. These days, virtual assistants like Alexa, Cortana and Siri are the core of online services such as internet search or online shopping where they provide helpful responses. Companies are increasingly using chat-bots to communicate with their customers without requiring staff to be available.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 2\. Healthcare Services
 
 The need for more evidence-based medicine, for access to more diverse types of data to solve chronic conditions, the increasing workloads of healthcare professionals and a drive to improve the quality of healthcare services have opened up opportunities for AI in healthcare services. According to [CBInsights](https://www.cbinsights.com/research/artificial-intelligence-startups-healthcare/), by 2025, AI systems could be involved in everything from population health management, to digital avatars capable of answering specific patient queries. AI's medical applications include oncology, drug discovery, remote patient monitoring, patient risk scoring, and imaging & diagnostics.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Transportation & Logistics
 
 AI can deliver enormous benefits to supply chain and logistics operations, including cost reductions through reduced redundancies and risk mitigation, improved forecasting, faster deliveries through more optimized routes, improved customer service, and more. AI's ability to streamline so many supply chain and logistics functions is already delivering a competitive advantage for early adopters by cutting shipping times and costs. A cross-industry study on AI adoption conducted in early 2017 by [McKinsey](https://www.mckinsey.com/business-functions/mckinsey-analytics/our-insights/how-artificial-intelligence-can-deliver-real-value-to-companies) found that early adopters with a proactive AI strategy in the transportation and logistics sector enjoyed profit margins greater than 5%. Meanwhile, respondents in the sector that had not adopted AI were in the red.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 4\. Manufacturing Sector
 
 AI-powered robots are already being used in the manufacturing companies to assemble products and package them for shipment. The next robotic revolution will take things to the next level by being able to assemble more complicated items, such as electronics, cars, and even some homes. Newer smart sensors will be used to track, analyze production quotas, and aggregate control rooms, or help to create models for predictive maintenance. Robotic automation will help the manufacturing industry reach a high level of accuracy and productivity, a level that is even beyond human ability.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024329/7443" target="_top" id="2024329">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024329" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024329/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 5\. Financial Services
 
@@ -67,12 +79,6 @@ Like in other industries, AI has made significant inroads in financial services 
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Financial Services](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

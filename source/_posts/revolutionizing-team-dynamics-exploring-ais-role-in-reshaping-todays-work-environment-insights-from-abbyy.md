@@ -1,12 +1,18 @@
 ---
 title: "Revolutionizing Team Dynamics: Exploring AI's Role in Reshaping Today's Work Environment - Insights From ABBYY"
-date: 2024-09-03T22:42:07.466Z
-updated: 2024-09-04T22:42:07.466Z
+date: 2024-09-08T23:36:37.061Z
+updated: 2024-09-09T23:36:37.061Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/84f8ffb2622461b5b8ae41bcaa2a7a63b43c8ca478ec4a5288c1fa6d62881340.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Revolutionizing Team Dynamics: Exploring AI's Role in Reshaping Today's Work Environment - Insights From ABBYY
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -19,6 +25,12 @@ November 27, 2019
 
 ![How Artificial Intelligence is Transforming the Modern Workplace | ABBYY Blog Post](https://static1.abbyy.com/abbyycommedia/25393/11258_smm_blog_meet-your-new-digital-co-worker_blog_934x400.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Despite growing concerns that robots will replace workers and eliminate jobs, there are many ways in which the new digital workforce can substantially enhance jobs and positively transform the modern workplace. Ethical, responsible automation has the power to create a work environment where employees are more engaged, more productive and overall happier at work.
 
 Robotic Process Automation (RPA) – also known as software robots or the new “digital workforce” – can automate the clerical, repetitive, and often mundane aspects of a job, enabling employees to reconfigure job functions in new, meaningful ways. A few key benefits of these new digital workers include:
@@ -42,12 +54,24 @@ The integration of the new digital workforce will not be about Human vs. Machine
 
 ![David Yang ABBYY](https://static4.abbyy.com/abbyycommedia/25651/davidyang-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 David Yang
 
 Founder and Chairman of the Board, ABBYY
 
 David Yang, Ph.D., is a physicist by training and a Silicon Valley-based entrepreneur with a focus on AI. He is the founder of [ABBYY](https://tools.techidaily.com/abbyy/products/) and is a Board of Director, and the co-founder of [Newo.ai](https://www.newo.ai/), the creator of the drag-n-drop builder of the Non-Human Workers, Digital Employees. Yang is a TEDx speaker [Will robots ever become part of the human family](https://www.ted.com/talks/morfeus%5Fai%5Fwill%5Frobots%5Fever%5Fbecome%5Fpart%5Fof%5Fthe%5Fhuman%5Ffamily), a member of Band of Angels, founded 12 companies, and holds numerous patents and scientific publications. The World Economic Forum in Davos named him one of the top 100 World Technology Pioneers.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -170,10 +194,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
 <li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-from-your-apple-iphone-se-2020-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled From your Apple iPhone SE (2020)? How to Fix</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

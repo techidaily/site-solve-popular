@@ -1,16 +1,28 @@
 ---
 title: "Securing Your Digital Footprint: Counteracting TextGrabber Threats & Improving User Mobility | Insights for ABBYY Readers"
-date: 2024-09-03T22:42:05.194Z
-updated: 2024-09-04T22:42:05.194Z
+date: 2024-09-08T23:36:34.856Z
+updated: 2024-09-09T23:36:34.856Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f3622d27aea03408c9719ceb.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Securing Your Digital Footprint: Counteracting TextGrabber Threats & Improving User Mobility | Insights for ABBYY Readers
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Special Mobility, Disabling the TextGrabber Signature, and Tracking Your Habits
 
 August 06, 2019
@@ -21,6 +33,12 @@ In today’s Mobile Monday, we will look at some innovations that Google develop
 
 ![](https://static1.abbyy.com/abbyycommedia/26870/mobile-monday-85.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Live Relay**
 
 At the recent I/O conference, Google presented a project named Live Relay designed to help people with hearing impairments. Live Relay converts speech to text in real time and can also read out short fragments typed in by the user. The developers are planning to use a similar technology for real-time machine translation allowing speech to be instantly translated into other languages.
@@ -51,6 +69,12 @@ Currently the app can only recognize commands spoken in English, but the develop
 
 Google has developed a special package of ready-to-use tools that developers can integrate into their own apps to make them more accessible to people with disabilities. The toolkit will enable users to control apps using their voice. It will also read out UI menus and commands, and will cause different buttons to vibrate differently, so that users with visual impairments can easily recognize them.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **ABBYY Tip: Disabling the “Grabbed with** **TextGrabber** **” Signature Line**
 
 If you are using TextGrabber to send documents via email, then you might have already noticed that sometimes a signature with a text saying “Grabbed with [TextGrabber](https://go.onelink.me/oo1u/cef0166e)” appears at the bottom of your emails. Until recently, this feature was always enabled by default and the text could only be removed from your email manually.
@@ -63,6 +87,12 @@ In the latest [TextGrabber](https://go.onelink.me/uny1/c9b5ef5c) updates for iOS
 
 ![abbyy textgrabber](https://static1.abbyy.com/abbyycommedia/26871/abbyy-textgrabber.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 If you have an Android phone, do the following:
 
 1. Open [TextGrabber](https://go.onelink.me/uny1/c9b5ef5c)
@@ -72,12 +102,6 @@ If you have an Android phone, do the following:
 
 For more information about disabling this signature in [FineScanner](https://go.onelink.me/0oMB/2b084a0a), see [this article](https://tools.techidaily.com/abbyy/products/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **App of the Week: Habitty for iOS**
 
 If you are finding it hard to foster healthy habits, then Habitty app is for you. The app helps you to organize and track your regular habits with ease and can also help you set short- and long-term goals.
@@ -93,16 +117,10 @@ That’s all, folks!
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

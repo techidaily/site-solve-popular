@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations"
-date: 2024-09-03T22:42:07.199Z
-updated: 2024-09-04T22:42:07.199Z
+date: 2024-09-08T23:36:36.794Z
+updated: 2024-09-09T23:36:36.794Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3bd086f6ddbea0000b61dea6630a396d485fdb4d681690353291c54c1139b976.png
@@ -21,6 +21,12 @@ Share
 
 When you think about industries known for outstanding customer service, government may not spring to the top of the list. Because government agencies don’t face the same competitive pressures as private-sector businesses, they’ve historically had little incentive to devote time and resources to improving experiences for their constituents. But today, public-sector organizations are facing pressures to modernize their services and improve experiences for both citizens and employees, and artificial intelligence (AI) is leading the way in driving progress towards their goals.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Keeping up with constituents
 
 When the pandemic forced brick-and-mortar service providers to close their doors, traditionally in-person services in industries such as banking, dining, education, and even healthcare quickly became widely available via digital platforms. This development produced a dramatic shift in customer expectations, and suddenly the concept of taking time off work to stand in line at a government office came to be viewed as a glaring anachronism.
@@ -36,16 +42,10 @@ The Great Resignation became a wake-up call to employers across industries about
 Given the current state of affairs, government organizations on all levels—federal, state, and local—need strategies that elevate both citizen and employee experiences while optimizing the use of their resources.
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### What is total experience (TX)?
 
@@ -53,12 +53,6 @@ Given the current state of affairs, government organizations on all levels—fed
 
 The approach made the research firm’s list of [Top 10 Government Technology Trends for 2022](https://www.gartner.com/en/newsroom/press-releases/2022-02-21-govt-tech-trends-2022-press-release), on the grounds of its ability to drive progress towards the high-priority goals of retaining top talent and improving the delivery of citizen services. [Principal Research Analyst Apeksha Kaushik recently commented](https://www.gartner.com/en/newsroom/press-releases/2021-12-15-government-predicts-2022), “Governments must move from a siloed approach to a cohesive strategy encompassing employee experience and citizen experiences across multiple platforms, channels, and technologies in the most intuitive user experience.”
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The role of AI in improving TX
 
 As government organizations explore strategies for achieving their TX goals, many are looking to the private sector for inspiration, and many of those inspiring stories center around the use of artificial intelligence. In businesses across industries, technologies such as machine learning, natural language processing (NLP), and natural language understanding (NLU) are enabling transformative experiences that benefit customers and employees alike. Here are just a few examples of AI-driven technologies that are helping businesses build a better TX.
@@ -68,10 +62,10 @@ As government organizations explore strategies for achieving their TX goals, man
 Chatbot technology has come a long way in recent years, and customer service teams in industries as diverse as banking, travel, and telecom are reaping the benefits. Chatbots enable customers to self-serve in fulfilling simple requests like resetting passwords or scheduling appointments. Because the bots are available 24/7, users can access services at their own convenience and avoid waiting on hold. On the employee side, agents are freed from rote tasks and can focus their attention on more complex cases that call upon their expertise as well as their people skills.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024326/7443" target="_top" id="2024326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Intelligent process automation
 
@@ -88,16 +82,10 @@ Intelligent process automation enables employees to benefit from faster, smoothe
 When customers contact a business, machine learning and NLP tools can “listen in” to determine the caller’s intent, evaluate their emotional state, and even detect possible fraudulent behavior. For example, [Deloitte’s Behavioral and Emotion Analytics Tool (BEAT)](https://www.deloitte.com/global/en/Industries/financial-services/perspectives/gx-ai-and-risk-management.html), developed for the financial services industry, monitors voice interactions to devise a “risk score” based on word choice, rate of speech, and other factors. The higher the score, the more the agent can be on alert for a potential complaint or possible fraudulent activity.
 
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Identity proofing and affirmation
 
@@ -117,6 +105,12 @@ Infographic
 
 [Download infographic](https://static1.abbyy.com/abbyycommedia/36372/infographic-proofofidentity-proving-identity-in-an-increasingly-remote-world-en.pdf "Download infographic") 
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Choosing the right solutions
 
 As government entity leaders begin exploring AI tools that can help them achieve their TX goals, they will quickly recognize that a single solution can involve many moving parts. Comprehensive identity proofing and affirmation, for example, encompasses ID reading, ID verification, biometric authentication, document analysis, and many other capabilities. While individual products are available to handle each of these requirements, the hassle of juggling multiple licenses with multiple vendors could erode some of the productivity benefits that AI has to offer.
@@ -130,16 +124,10 @@ Government organizations can no longer cling to legacy citizen and employee expe
 ![Bruceorcutt 99X99](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Bruce Orcutt
 
@@ -162,10 +150,10 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -178,10 +166,10 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -193,12 +181,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Document AI Creating a Safer World**](https://tools.techidaily.com/abbyy/products/)
@@ -209,6 +191,12 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Customer Point of View: Approach Automation Step by Step**](https://tools.techidaily.com/abbyy/products/)
@@ -220,10 +208,10 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [![Three Ways AI Is Making Employees Happier](https://static2.abbyy.com/abbyycommedia/36944/ai_happier_employees_1160730188_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -246,10 +234,10 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [![Welcome to The Intelligent Enterprise](https://static5.abbyy.com/abbyycommedia/37545/ulf-848x444-slate.png)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 

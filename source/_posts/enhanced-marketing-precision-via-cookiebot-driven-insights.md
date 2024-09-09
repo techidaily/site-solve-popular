@@ -1,22 +1,40 @@
 ---
 title: Enhanced Marketing Precision via Cookiebot-Driven Insights
-date: 2024-09-03T22:42:04.991Z
-updated: 2024-09-04T22:42:04.991Z
+date: 2024-09-08T23:36:34.661Z
+updated: 2024-09-09T23:36:34.661Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/73f237caff1293d1dd4178031db987cf4821ccb81a94a966ce0f48ea51b79037.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced Marketing Precision via Cookiebot-Driven Insights
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Accelerates U.S. Food and Drug Administration’s Public Health Initiatives
 
 October 20, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [ABBYY](https://tools.techidaily.com/abbyy/products/) announced today that the U.S. Food and Drug Administration (FDA) is using its [Digital Intelligence platform](https://tools.techidaily.com/abbyy/products/) to accelerate its public health initiatives. ABBYY solutions digitize and process data within documents used for monitoring public health, including the government agency’s 30-year archive of forms used to report adverse events and current documents to ensure that critical reporting is captured accurately and quickly.
 
 "Going forward, we plan to use ABBYY to process newly received health reports and utilize the data in our downstream enterprise workflow and visualization software,” stated **Justin Scott, Senior Business Informatics Officer, Office of Business Informatics, U.S. FDA**. "ABBYY has brought us into the 21st century."
@@ -141,10 +159,3 @@ Connect with us
 <li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Lava Blaze Pro 5G | Dr.fone</u></a></li>
 <li><a href="https://youtube-webster.techidaily.com/be-marketing-mastery-crafting-robust-backlinks-for-growth/"><u>YouTube Marketing Mastery  Crafting Robust Backlinks for Growth</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

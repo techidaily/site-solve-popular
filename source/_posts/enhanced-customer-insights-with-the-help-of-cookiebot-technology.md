@@ -1,7 +1,7 @@
 ---
 title: Enhanced Customer Insights with the Help of Cookiebot Technology
-date: 2024-09-03T22:42:04.974Z
-updated: 2024-09-04T22:42:04.974Z
+date: 2024-09-08T23:36:34.644Z
+updated: 2024-09-09T23:36:34.644Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a23b6166dff1d71405deccff3c580ba47c280d1fae23b982db1e3d6f2479cd12.jpg
@@ -21,6 +21,18 @@ There is a great scene in Star Trek IV – The Voyage Home, when Scotty, the Sta
 
 ![Talking to robots](https://static1.abbyy.com/abbyycommedia/25293/talking-to-robots-abbyy-blog.png)
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Figure 1 - Star Trek IV: The Voyage Home (1986)_
 
 As futuristic as voice recognition was back in 1986, this illustrates the importance of how we interface with technology. The rise of Business Process Management (BPM) and the more recent ascendancy of both Robotic Process Automation (RPA) and the Internet of Things (IoT) are vital catalysts and enabling technologies that drive Digital Transformation.
@@ -34,10 +46,10 @@ However, the content needs to be transformed into more than a mere digital facsi
 In order to do this, it is first necessary to classify the nature of the content, i.e. determine what it represents and, therefore, identify the context of the information it contains. This can be achieved by _Content Intelligence_ through utilization of AI algorithms capable of automating this time-consuming activity.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## AI-based Classification and Extraction
 
@@ -50,10 +62,10 @@ If all the documents of a particular type were identical, e.g. copies of the sam
 The ability to accommodate such diversity comes from a combination AI and business rules to identify, extract and validate the information within the content regardless of the specific layout. The accuracy of the information is maximized through additional validation with external databases, e.g. a vendor database for invoices.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Machine Learning
 
@@ -64,10 +76,10 @@ This ensures that the accuracy of the information extracted is maintained at an 
 What this all means is, that the original content, through _Content_ _Intelligence,_ is now able to speak the right language to technologies such as BPM, RPA and IoT.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Example: Setting Up E-Bill Payment
 
@@ -77,6 +89,18 @@ If a customer wishes to set up an automatic payment to, for example, their Elect
 
 The customer can use their Electricity Bill to initiate and automate the setup of an electronic bill payment.
 
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Paperless Billing
 
 Today, many customers can have gone “paperless” and can receive their bill as a PDF (typically downloaded from a customer portal). In this scenario, customers can email the utility bill to their bank as shown below in Figure 2.
@@ -84,10 +108,10 @@ Today, many customers can have gone “paperless” and can receive their bill a
 ![Talking to robots 2](https://static1.abbyy.com/abbyycommedia/25294/talking-to-robots-abbyy-blog-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 _Figure 2 - Setting up e-Billing via e-Mail_
 
@@ -95,6 +119,12 @@ Once the bank, receives the email, FlexiCapture processes the attachment, automa
 
 This extracted information is passed to an RPA application to configure the automated payment and await final activation. Given that the request came in via email, the customer is notified via their Customer Banking Portal and is prompted to confirm the activation of the automatic payment.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Paper-based Billing
 
 Not all customers of vendors avail themselves of paperless billing. Consequently, a mechanism is required to automatically extract information from a paper bill in a manner that enhance the total customer experience.
@@ -111,12 +141,6 @@ This extracted information is passed to an RPA application to configure the auto
 
 The activated automated payment is then displayed in the customer banking portal.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024338/7443" target="_top" id="2024338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024338" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024338/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Accelerate Digital Transformation by Speaking the Right Language
 
 By speaking the right language, it is possible to transition seamlessly from the Analog to the Digital Realm. This can enable Bank and all other organization provide the level of synchronous and near synchronous transaction that today’s customers demand
@@ -125,12 +149,6 @@ _**by Carl Hillier, Product Group Head for Data Capture**_
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

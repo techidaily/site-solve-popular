@@ -1,7 +1,7 @@
 ---
 title: Boosting Web Insights with Cookiebot Technology
-date: 2024-09-03T22:42:07.638Z
-updated: 2024-09-04T22:42:07.638Z
+date: 2024-09-08T23:36:37.234Z
+updated: 2024-09-09T23:36:37.234Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80456f09fe4efb7c4b8a390fbf6961e252df6f4afa54102d41b41a895101e337.jpg
@@ -26,6 +26,18 @@ In the course of 100 years in operation, the institution has deployed hundreds o
 
 To answer this seemingly simple question, it was necessary to dive into the complexity of all of those systems and find a way to aggregate all of the data sources to study the execution of their transactions end to end.
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Creating an end-to-end view of transactions, without coding
 
 First, they worked internally with IT to consolidate data from 40 different systems spanning various domains within the company such as channel experience, workflow systems, record keeping systems, and all technology processes that bridge the gaps in between those systems.
@@ -51,27 +63,15 @@ Third-party content
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="150" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Demonstrating ROI of process improvement
 
 Another subset of transactions they investigated were high-value cases of over $5,000, which represented $11 million of their $17 million in transaction expenses (but less than 1% of transaction volume). They wanted to understand how these transactions perform compared to the lesser value transactions. With process mining, they identified that one particular type of transaction was occurring three times more often in the high value cases than it was in the lower value cases. And the impact of this was $2.4 million in expenses, due to the lengthiness of the process and the market exposure thus created. With this knowledge, they were able to create a business case to improve the design of this process to handle that type of request on the same day, thereby eliminating the market exposure and related expense.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Improving customer experience with process mining
 
 The institution also used process mining as a way to improve processes related to customer service by identifying key points in the process that were causing the most friction for customers. Using an interactive [Schema View](https://tools.techidaily.com/abbyy/products/) of the process, they were able to discern a particular path to customer frustration and determine the actions that caused it. Armed with this knowledge, they created a business case to flag those actions early on in the process to alert the customer, so it does not reach the point of filing a complaint.
@@ -80,6 +80,12 @@ The institution also used process mining as a way to improve processes related t
 
 ![Bruceorcutt 99X99](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Bruce Orcutt
 
 Chief Marketing Officer at ABBYY
@@ -93,10 +99,10 @@ He is a thought leader with market domain expertise in AI, machine learning, pro
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Additional Insights:
 
@@ -106,6 +112,12 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Are Large Language Models (LLMs) the Future?**](https://tools.techidaily.com/abbyy/products/)
@@ -117,10 +129,16 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -132,12 +150,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning**](https://tools.techidaily.com/abbyy/products/)
@@ -158,6 +170,12 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific](https://static4.abbyy.com/abbyycommedia/37508/idp-trends-and-outcomes-report_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific**](https://tools.techidaily.com/abbyy/products/)
@@ -179,10 +197,10 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [![Is Generative AI Trustworthy?](https://static2.abbyy.com/abbyycommedia/37531/ai-and-the-big-question_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -204,12 +222,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Creating an Intelligent Automation Symphony**](https://tools.techidaily.com/abbyy/products/)
@@ -221,10 +233,10 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -237,10 +249,16 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 

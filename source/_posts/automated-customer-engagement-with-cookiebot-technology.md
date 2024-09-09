@@ -1,28 +1,52 @@
 ---
 title: Automated Customer Engagement with Cookiebot Technology
-date: 2024-09-03T22:42:06.843Z
-updated: 2024-09-04T22:42:06.843Z
+date: 2024-09-08T23:36:36.455Z
+updated: 2024-09-09T23:36:36.455Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/31fd63ab910fdd0bfef9c588934b4c990590f2025d46dff0a5963e90a62a92d8.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Automated Customer Engagement with Cookiebot Technology
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Étude ABBYY : respect des processus, quel secteur est le plus rigoureux ?
 
 15 juillet 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Près de la moitié (46 %) des décideurs évoluant dans le secteur de la banque-finance considèrent que les processus sont rigoureusement suivis dans leur entreprise, contre seulement 15 % dans le secteur public._
 
 Selon une étude conduite par ABBYY, le spécialiste de l’intelligence digitale, dans les entreprises du secteur de la banque-finance, les processus sont trois fois plus respectés que dans le secteur public. L’une des explications à cet écart est la complexité des processus jugés trop complexes ou trop nombreux pour être suivis. Du reste, il est encourageant de constater que les décideurs du secteur de la banque-finance sont ouverts de nouvelles technologies. Et pour cause, quasiment la totalité (98 %) des décideurs de ce secteur pensent que les technologies de Process Mining sont ou seraient utiles à leur entreprise, tout comme 89 % des dirigeants du secteur de l’assurance.
 
 ![infographic](https://static1.abbyy.com/abbyycommedia/29023/11982_infographics_process-mining_abbyy-survey_fr_300dpi.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 _« Une des étapes essentielles pour accélérer la mutation digitale d’une entreprise est d’en appréhender les processus. Cette étape est indispensable pour les optimiser. C'est particulièrement important pour les établissements financiers qui sont confrontés à une pression soutenue depuis le début de la pandémie. L’enjeu dans ce secteur est d’assurer la continuité des activités et de s’adapter aux nouvelles attentes des clients. L’innovation insufflée par le Process Intelligence le permet. »_, remarque Linda Ameur, directrice France d’ABBYY.
 
@@ -38,6 +62,12 @@ Les décideurs du secteur de la banque-finance estiment que leurs effectifs sont
 
 ![](https://static1.abbyy.com/abbyycommedia/29012/pr-1407-table-1-fr.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Quels facteurs freinent la bonne application des processus ?**
 
 Lorsque les salariés évoluent dans l’univers de la banque ou de la finance s’éloignent des processus, c'est souvent pour fournir une meilleure qualité de service à leurs clients. En effet, près de 2/3 des décideurs dans le domaine de l’assurance (62 %) sont convaincus que leurs équipes le font dans cette optique. La moitié (50 %) des décideurs du secteur de la banque-finance partage ce constat. Cela laisse entendre que ce secteur des services financiers est particulièrement orienté client et davantage prédisposé à contourner les règles si cela est dans l’intérêt de ces derniers, notamment pour pallier des processus peu optimisés.
@@ -46,6 +76,12 @@ _« Ce n'est qu'une fois que chaque processus a été identifié, examiné, amé
 
 ![](https://static1.abbyy.com/abbyycommedia/29013/pr-1407-table-2-fr.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 Pour en savoir plus sur la manière dont les entreprises du secteur de la banque-finance peuvent gérer leurs processus et leurs contenus, consultez [le dernier webinaire d'ABBYY](https://tools.techidaily.com/abbyy/products/) portant sur l'intelligence numérique appliquée aux services financiers.
 
@@ -124,10 +160,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

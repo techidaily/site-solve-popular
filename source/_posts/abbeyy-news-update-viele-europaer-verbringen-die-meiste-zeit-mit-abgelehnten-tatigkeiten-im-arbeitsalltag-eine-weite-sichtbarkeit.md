@@ -1,22 +1,46 @@
 ---
 title: "ABBEYY News Update: Viele Europäer Verbringen Die Meiste Zeit Mit Abgelehnten Tätigkeiten Im Arbeitsalltag - Eine Weite Sichtbarkeit"
-date: 2024-09-03T22:42:06.094Z
-updated: 2024-09-04T22:42:06.094Z
+date: 2024-09-08T23:36:35.742Z
+updated: 2024-09-09T23:36:35.742Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/04c62b2f290b2c5f1899e5598ab465be77832cb08688d450e39f1038f772602c.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBEYY News Update: Viele Europäer Verbringen Die Meiste Zeit Mit Abgelehnten Tätigkeiten Im Arbeitsalltag - Eine Weite Sichtbarkeit
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Ein pan-europäisches Phänomen: Mitarbeiter verbringen Großteil der Arbeitszeit mit unbeliebten Routinetätigkeiten
 
 3\. Juli 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _ABBYY-Studie 2019: Mitarbeiterzufriedenheit kann mithilfe von KI und RPA enorm gesteigert werden_
 
 Viele Unternehmen haben in der westlichen Welt immer mehr Schwierigkeiten, aufstrebende und leistungsstarke Mitarbeiter zu gewinnen und zu halten. Die neue Generation, die ins Erwerbsalter kommt, hat gesteigerte Bedürfnisse und Wünsche im Vergleich zu früheren Generationen. Moderne Technologien wie Robotic Process Automation (RPA) und Künstliche Intelligenz (KI) können dazu beitragen, das Arbeitsumfeld zu verbessern. Dies verhindert, dass sich Mitarbeiter unterfordert oder nicht genug wertgeschätzt fühlen. ABBYY hat in einer aktuellen Umfrage 5.000 europäische Arbeitnehmer befragt, welche Aufgaben sie an Roboter abgeben würden, um mit mehr Freude an ihre Arbeit zu gehen.
@@ -125,16 +149,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-popular.techidaily.com/understanding-the-legal-framework-abbyys-cloud-product-terms-end-to-end-privacy-standards-and-gdpr-provisions-explained/"><u>Understanding the Legal Framework: ABBYY's Cloud Product Terms, End-to-End Privacy Standards & GDPR Provisions Explained</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/unleash-dynamic-user-experiences-with-cookiebot-technology/"><u>Unleash Dynamic User Experiences with Cookiebot Technology</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

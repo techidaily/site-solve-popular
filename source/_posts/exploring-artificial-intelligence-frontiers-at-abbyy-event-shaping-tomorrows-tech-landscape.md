@@ -1,22 +1,46 @@
 ---
 title: "Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape"
-date: 2024-09-03T22:42:07.249Z
-updated: 2024-09-04T22:42:07.249Z
+date: 2024-09-08T23:36:36.847Z
+updated: 2024-09-09T23:36:36.847Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b7b1a27d1ec7d492ee38fae4ae064cccff7a07bb81d0c83c83f67196d92674a7.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Hosts AI Summit at Emirates Stadium to Celebrate the Game-Changing Future of Artificial Intelligence
 
 May 7, 2024
 
 ![image-2024-05-07-11-56-02-995](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/image-2024-05-07-11-56-02-995.png?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### ABBYY AI Summit London to feature purpose-built AI success stories from Société Générale, Rolls-Royce, Emerson as well as Arsenal F.C. stars including Beth Mead and Martin Keown.
 
 Today ABBYY, a leader in purpose-built AI for intelligent automation, announced its inaugural AI Summit London, which will take place at Emirates Stadium on May 15, 2024.
@@ -52,6 +76,12 @@ The ABBYY AI Summit underscores ABBYY's commitment to delivering purpose-built A
 
 To learn more about the ABBYY AI Summit and sign up for ABBYY’s future events, please visit: <https://digital.abbyy.com/abbyy-ai-summit-2024-register-your-interest>. 
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY puts your information to work with purpose-built AI. We combine innovation and experience to transform data from business-critical documents into intelligent actionable outcomes in over 200 languages in real time. We are trusted by more than 10,000 companies globally, including many of the Fortune 500, to drive significant impact where it matters most: accelerate the customer experience, operational excellence, and competitive advantage. ABBYY is a global company with headquarters in Milpitas, CA and offices in 12 countries, and is the [Official Intelligent Automation Partner of Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). For more information, visit [www.abbyy.com/company/about-us/](https://tools.techidaily.com/abbyy/products/) and follow us on [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware), [Facebook](https://www.facebook.com/ABBYYsoft) and [Instagram](https://www.instagram.com/abbyyglobal/).
@@ -130,10 +160,3 @@ Connect with us
 <li><a href="https://android-unlock.techidaily.com/unlock-vivo-s17-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Vivo S17 Phone Password Without Factory Reset Full Guide Here</u></a></li>
 <li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-cut-and-trim-3gp-files-with-ease-updated-2023/"><u>Updated In 2024, Cut and Trim 3GP Files with Ease Updated 2023</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

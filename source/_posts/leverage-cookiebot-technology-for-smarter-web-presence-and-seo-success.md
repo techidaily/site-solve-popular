@@ -1,7 +1,7 @@
 ---
 title: Leverage Cookiebot Technology for Smarter Web Presence and SEO Success
-date: 2024-09-03T22:42:05.881Z
-updated: 2024-09-04T22:42:05.881Z
+date: 2024-09-08T23:36:35.513Z
+updated: 2024-09-09T23:36:35.513Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0d8eb25ffc01674066a975464e8e203ea7154d5d50fa969981b4673868840ed3.JPG
@@ -25,6 +25,12 @@ Ulf took some time out of his schedule to tell us about his path to becoming the
 
 **[Follow us on Instagram and get to know the people at ABBYY](https://www.instagram.com/abbyyglobal/ "Instagram")**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What attracted you to ABBYY, and what is your role?
 
 My first interaction with ABBYY was as an investor back in 2002\. After that, I went from being a board member to chairman of the board to CEO. It’s an odd route to take (mostly it’s the other way around), but one that has allowed me to gain a different perspective, which has helped drive change and development for the company. In my view, ABBYY has always stood out as a unique company, so when I was asked to take on the CEO role, it was an easy decision. A decision guided by two main factors: our amazing people and the tremendous growth opportunity. While it wasn’t entirely obvious in early 2017 that there would be a market called _Intelligent Automation_, it was clear that ABBYY had the right technology ingredients to become a leading player in this field. I wanted to be a part of that and was intrigued to see how far we could go.
@@ -35,69 +41,63 @@ I’m based in London. One part of my role is to help ABBYY set ambitious goals 
 
 It’s hard to give one single piece of advice. To me, it’s all about trust and people focus. I always aim to have the best possible people around me. People who are much better at their roles than I could ever be, and then trust these people to do their job while making sure we all pull in the same direction. To do this, you first must understand your own strengths and weaknesses. While listening to other opinions before moving forward with a decision is important for the quality and subsequent acceptance, speed is also of the essence. Most of the time, we base decisions on imperfect information. Better to make a call and then correct if it was wrong.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Do you have any hobbies or fun interests?
 
 When I was a boy, I wanted to be a professional athlete. I played ice hockey and football, but soon realized I wasn’t good enough. However, I’m still an avid football fan, supporting Arsenal in the English Premier League and Richmond Park FC, where my daughter plays. My position on the football pitch was central midfield, and I was a goal-keeper when playing hockey. I can relate both those roles to my role as CEO at ABBYY; I’m there to direct the game and help others, not necessarily scoring the goals myself (I’ll score some), and to make sure we are solid at the back.
 
 ![Ulf Persson family](https://static1.abbyy.com/abbyycommedia/35267/ulfpersson-wife-458.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030385/7443" target="_top" id="2030385">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030385" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030385/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Nowadays, to keep in shape and clear my brain, I go for a run. During the lockdown, I was working inside too much, as most of us were, and began walking a lot with my wife and our dog, sometimes ten kilometers or more. I also make family time a priority. We have three daughters, and the whole family enjoys good food, togetherness, and discussions around the dinner table. We also try to make use of the multitude of things that London has to offer.
 
 ![Ulf Persson family](https://static1.abbyy.com/abbyycommedia/35266/ulfpersson-daughters-458.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### If you had one wish come true, what would it be?
 
 That we as humans were better at weighing short-term satisfaction and benefits with long-term effects and sustainability. This would help improve consumption patterns, drive different individual, governmental, and corporate behavior, and ultimately help us solve the big issues such as climate change and societal health.
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="125" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### What’s your pet peeve?
 
 I get really frustrated when we, for one reason or the other, don’t live up to our customers’ expectations, but I am not sure if that would fall in the pet peeve category, so here’s another one: when someone shares a document or presentation with me, whether for internal or external consumption, that contains silly mistakes and spelling errors, my blood pressure builds up. To me, quality is not a selective game. You play it all the time.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### What was the last book you read?
 
 I am currently reading the first book in the Wolf Hall trilogy by Hilary Mantel. It describes life in London under Henry VIII and, specifically, the rise to power of the protagonist Thomas Cromwell from a modest family of blacksmiths to the king’s closest advisor.
 
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### What’s next for ABBYY, what does the future hold?
 
@@ -110,10 +110,10 @@ Want to work with a company at the forefront of technology that puts its people 
 [Meet Our Team](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

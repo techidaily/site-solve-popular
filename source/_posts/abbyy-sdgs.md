@@ -1,12 +1,18 @@
 ---
 title: "ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み"
-date: 2024-09-03T22:42:07.522Z
-updated: 2024-09-04T22:42:07.522Z
+date: 2024-09-08T23:36:37.118Z
+updated: 2024-09-09T23:36:37.118Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7d954d5ef5beb31b578dcda4509d16e23f0ef0d1b79a76b01e4834ddb01328ea.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み
 
 [全てのブログ](https://tools.techidaily.com/abbyy/products/)
@@ -21,10 +27,22 @@ thumbnail: https://thmb.techidaily.com/7d954d5ef5beb31b578dcda4509d16e23f0ef0d1b
 
 その前に改めて、SDGsの概要について説明いたします。
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 環境省が推進する SDGs（持続可能な開発目標）
 
 ![Sustainable Development Goals](https://static1.abbyy.com/abbyycommedia/34588/logo-410x100.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 出典： [持続可能な開発目標（SDGs）の推進（環境省）](http://www.env.go.jp/policy/sdgs/index.html)
 
 SDGsは2015 年に国連が採択した先進国を含む国際社会全体の 2030 年に向けた環境・経済・社会についてのゴールです。
@@ -52,21 +70,15 @@ SDGsでは以下の17のゴールが設定されています。
 17. パートナーシップで目標を達成しよう
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## ABBYYの8番と10番の取り組みについて
 
 ![Sustainable Development Goals 働きがいも経済成長も](https://static1.abbyy.com/abbyycommedia/34584/13907-icon-8.png) ![Sustainable Development Goals 人や国の不平等をなくそう](https://static1.abbyy.com/abbyycommedia/34585/13907-icon-10.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYYは、これまで教育とキャリア開発の面で不平等を減らすために、さまざまなバックグラウンドを持つ人々をサポートしてきました。私たちは多様性を重視し、採用と昇進の決定を行う際にも平等な機会を提供しております。
 
 例として現在、ABBYYは女性従業員が約42％に達しており、これは一つの証左です。 ABBYYには、女性従業員をサポートするための「Woman at ABBYY」という内部コミュニティが存在します。 全体として、ABBYYの従業員は、職場での多様性と包摂性をサポートするための取り組みを高く評価しています。隔週の従業員エンゲージメント調査に基づくと、DEIの全体的なスコア（たとえば、性別、民族性、障害、社会経済的地位の観点から、多様性と包摂性をサポートするABBYYの取り組みに満足しています）は8.7/10です。こちらはテクノロジー企業のベンチマークを0.5ポイント上回っており、上位25％にランクインしています。
@@ -78,27 +90,15 @@ ABBYYは、社内の包摂的な文化をサポートすることに重点を置
 一部の地域では、さまざまな能力を持つ人々や貧しい家庭や農村地域からの学生を雇用するための特別なプロジェクトがあります。 また、地域に根付いたチャリティー活動（クリスマス関連のチャリティーなど）も実施しています。デジタルインテリジェンス企業として、技術人材の育成に取り組んでいます。一部の地域では、教育活動を推進し、恵まれない／過小評価されている人々のためのメンターシッププログラムや奨学金を通じての技術人材育成をサポートしています。
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## ABBYYの13番と15番の取り組みについて
 
 ![Sustainable Development Goals 気候変動に具体的な対策を](https://static1.abbyy.com/abbyycommedia/34586/13907-icon-13.png) ![Sustainable Development Goals 陸の豊かさも守ろう](https://static1.abbyy.com/abbyycommedia/34587/13907-icon-15.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 私たちはデジタルインテリジェンス企業として、ペーパーレスのビジネスプロセスにつながるデジタルトランスフォーメーション（DX）の推進に取り組んでいます。ABBYYのデジタルテクノロジーは、デジタル（ハードコピーではなく）ドキュメントに焦点を当てることにより、お客様がより環境に優しいものになるように支援します。
 
 2021年、ABBYYは、気候変動との戦い、生物多様性の保全、景観の回復、コミュニティの強化を支援するために獲得した取引のために植樹を行うことを約束する新しい「Plant a Treeキャンペーン」を開始しました。これについての詳細は、こちらのリンクをご参照ください。
@@ -114,16 +114,10 @@ ABBYYは、サステナビリティの重要性を従業員に思い出させる
 [カスタマエクスペリエンス](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 

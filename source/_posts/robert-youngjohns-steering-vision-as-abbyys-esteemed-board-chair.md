@@ -1,26 +1,50 @@
 ---
 title: "Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair"
-date: 2024-09-03T22:42:06.030Z
-updated: 2024-09-04T22:42:06.030Z
+date: 2024-09-08T23:36:35.656Z
+updated: 2024-09-09T23:36:35.656Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/157145562d322ac42b18debf7cc17b6e328143a79a361dfc0ab65e3b0afbaf26.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Robert Youngjohns
 
 Chairman of the Board
 
 ![Robert Youngjohns](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/management/headshots/cards-headshots/1486x836-robert-youngjohns.jpg?h=836&iar=0&w=1486)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Robert Youngjohns serves as Chairman of the Board at ABBYY where he works with the CEO and executive management team to accelerate ABBYY’s market leadership as a Digital Intelligence solutions provider and drive the company’s growth strategy globally.
 
 Robert has over 40 years of experience as an executive in the technology industry. He is currently an Operating Executive in Marlin Operations Group, Inc. and serves as a Board member for a select few innovative technologies. Previously, he served as the Executive Vice President and General Manager of Software and Cloud at Hewlett Packard Enterprise, where he led HP’s new cloud strategy (HPE Helion) and spearheaded the $8.5 billion merger of HPE’s Software Business Segment with Micro Focus. Prior to HPE, Robert was President of Microsoft North America where he was responsible for sales, marketing and services totaling $25 billion of revenue across all product lines and channels in the U.S. and Canada. Additionally, he has held key executive management positions at leading technology companies including Automation Anywhere, Callidus Software, Sun Microsystems and IBM.
 
 Robert holds a Master’s degree with honors in Physics and Philosophy from Oxford University.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to speak with an expert?
 
 [Schedule a demo](https://tools.techidaily.com/abbyy/products/)[Get in touch](https://tools.techidaily.com/abbyy/products/)
@@ -84,10 +108,3 @@ Robert holds a Master’s degree with honors in Physics and Philosophy from Oxfo
 <li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-site-customization-and-improved-engagement/"><u>Utilizing Cookiebot Technology for Optimized Site Customization and Improved Engagement</u></a></li>
 <li><a href="https://common-error.techidaily.com/win10-computers-restart-unpredictably/"><u>Win10 Computers Restart Unpredictably</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

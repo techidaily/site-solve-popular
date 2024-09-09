@@ -1,22 +1,40 @@
 ---
 title: ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018
-date: 2024-09-03T22:42:07.506Z
-updated: 2024-09-04T22:42:07.506Z
+date: 2024-09-08T23:36:37.103Z
+updated: 2024-09-09T23:36:37.103Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0f61a09c67b9e7dbbff5f451.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY présente ses solutions de capture de données IA au salon Banque & Innovation 2018
 
 24 septembre 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Le 16 octobre 2018 de 8h à 19h - Stand S15_ 
 _Pavillon d’Armenonville, Allée de Longchamp, Bois de Boulogne, Paris 16ème_
 
@@ -109,10 +127,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-web-analytics-and-performance/"><u>Utilizing Cookiebot Technology for Optimized Web Analytics & Performance</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/vereinheitlichte-buchhalterlosungen-mit-iguana-und-abbyy-fur-verbesserte-kreditorenverwaltung-and-geschaftsprozesse/"><u>Vereinheitlichte Buchhalterlösungen Mit IGuana Und ABBYY Für Verbesserte Kreditorenverwaltung & Geschäftsprozesse</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

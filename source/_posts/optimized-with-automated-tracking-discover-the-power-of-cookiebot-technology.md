@@ -1,7 +1,7 @@
 ---
 title: "Optimized with Automated Tracking: Discover the Power of Cookiebot Technology"
-date: 2024-09-03T22:42:05.899Z
-updated: 2024-09-04T22:42:05.899Z
+date: 2024-09-08T23:36:35.531Z
+updated: 2024-09-09T23:36:35.531Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/01714150012339f1efdced7e1f734d013877746c193a3029a59cdde359ecf8d8.jpg
@@ -17,6 +17,12 @@ March 11, 2021
 
 ![Safe Business Post Covid | ABBYY Blog Post](https://static1.abbyy.com/abbyycommedia/33499/safe-business-post-covid-new.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Despite decades of history and knowledge, companies often struggle to manage processes that are very complex and dynamic. Interest in process mining has surged as organizations realize that the key to achieving breakthrough business results lies within optimizing their processes. Process Intelligence is an advanced approach, using techniques like task and process mining to help clients in a variety of industries to better connect their people, processes, and content, and quickly identify opportunities for improvements. It has sparked a better way to approach business improvement.
 
 In the list below, we’ve curated our top picks for Process Intelligence articles from 2020 you might have missed: stories that pushed businesses towards a successful digital transformation, encouraged new approaches to processes, provided tips on how to be resilient, and more.
@@ -25,15 +31,27 @@ In the list below, we’ve curated our top picks for Process Intelligence articl
 
 ![Scott Opitz ABBYY CMO](https://static1.abbyy.com/abbyycommedia/32066/1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 After a 20-year tenure with the company, our Chief Marketing Officer, Jupp Stoepetie, retired in February of last year, and we announced the appointment of Scott Opitz as his successor. Workflow Magazine interviewed Opitz about his new role and talked about his biggest challenges, industry outlook, and more.
 
 [Read the article.](https://www.workflowotg.com/qa-with-scott-opitz-cmo-abbyy/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. Successful Digital Transformation Starts with a True Understanding of Processes
 
@@ -41,34 +59,34 @@ Digital Intelligence empowers enterprises to make a tremendous impact where it m
 
 [Read the article.](https://www.rtinsights.com/successful-digital-transformation-understanding-processes/)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Understand Your Business Processes or Risk Failing
 
 Automation has fundamentally transformed the enterprise. From streamlining workflows and increasing operational efficiencies to improving the customer experience, automation enhances business-critical functions and accelerates digital transformation initiatives.
 
 ![successful digital transformation team meeting](https://static1.abbyy.com/abbyycommedia/32068/3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Robotic process automation (RPA) technologies enable employees to focus less on mundane tasks and more on high-value, creative, and relationship-oriented responsibilities that directly influence the bottom line. However, despite its significant benefits, RPA technologies by themselves aren't enough to deliver automation's full potential. Anthony Macciola, Chief Innovation Officer, advises organizations to use Digital Intelligence solutions to understand the context and meaning of content in this Forbes article.
 
 [Read the article.](https://www.forbes.com/sites/forbestechcouncil/2020/06/15/understand-your-business-processes-or-risk-failing/#5fa8a87150d5)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. A New Approach to Processes: Transforming Your Business and Navigating Change with Process Intelligence
 
 From evolving customer demands, complex legal and regulatory environments, increasing amounts of data, and an unexpected global health crisis, organizations of all sizes and across all industries and geographical markets are being challenged in ways they have never seen before. In his article with Workflow Magazine, ABBYY CMO Scott Opitz talks about how organizations need to be agile and timely in effectively responding, adapting, and overcoming to best serve their customers, especially during times of change.
 
 [Read the article.](https://workflowotg.com/a-new-approach-to-processes/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. 3 Questions Every Leader Needs to Ask for a Resilient Supply Chain
 
 While the Coronavirus disease (COVID-19) pandemic has fundamentally disrupted virtually every industry, it is perhaps the most pronounced in the supply chain. Three out of four U.S. companies report that their supply chains have been disrupted as a result of the crisis. Shipment delays and stock shortages have become common occurrences.
@@ -76,21 +94,15 @@ While the Coronavirus disease (COVID-19) pandemic has fundamentally disrupted vi
 ![process improvement for supply chains](https://static1.abbyy.com/abbyycommedia/32065/4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 In late March, just a couple of weeks after a state of emergency was declared in the United States, it was reported that even Amazon was experiencing delivery delays as long as one month. ABBYY Vice President of Product Marketing Bruce Orcutt tells Supply & Demand Chain Executive that the supply chain needs to be able to pivot quickly in order to be resilient.
 
 [Read the article.](https://www.sdcexec.com/software-technology/article/21159542/3-questions-every-leader-needs-to-ask-for-a-resilient-supply-chain)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 6\. Revitalize Profit Margins By Fixing Broken Processes
 
 In today’s climate, healthcare providers must protect their profit margins and obtain every dollar that is owed to them by insurance companies. Enhancing operational efficiencies and streamlining administrative processes can go a long way in reducing denials and minimizing the amount of re-work involved in billing workflows. Bruce Orcutt talks about the need for advanced solutions that can enable healthcare leaders to identify where their bottlenecks are and which processes are costing them money.
@@ -105,16 +117,22 @@ Adrian Bridgwater, technology journalist, and his latest IDG Connect article exp
 
 ![process schema](https://static1.abbyy.com/abbyycommedia/32067/2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **_ABBYY Timeline, a cloud-based platform, uses advanced task and process mining to deliver 360-degree visibility into business operations by combining insights from people, processes, and content. Learn more [here](https://tools.techidaily.com/abbyy/products/)._**
 
 [Process Mining](https://tools.techidaily.com/abbyy/products/) [Coronavirus](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

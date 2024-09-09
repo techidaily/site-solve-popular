@@ -1,12 +1,18 @@
 ---
 title: "伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成"
-date: 2024-09-03T22:42:07.550Z
-updated: 2024-09-04T22:42:07.550Z
+date: 2024-09-08T23:36:37.148Z
+updated: 2024-09-09T23:36:37.148Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7ff9df7bb6af3b5e4d65d67011a30e37297e02c3911882325d80adc38323e6c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成
 
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
@@ -20,6 +26,12 @@ Oil & Gas | Document Management
 
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## AI OCRを使うことで、紙帳票の業務効率化にも寄与   
  RPAと組み合わせ年間約4万9千時間の削減に成功
 
@@ -27,6 +39,12 @@ Oil & Gas | Document Management
 
 ![](https://static1.abbyy.com/abbyycommedia/35782/itochu-556x303.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### お客様の概要
 
 ![伊藤忠商事株式会社](https://static2.abbyy.com/abbyycommedia/35788/itochu-183x75.png) 
@@ -113,6 +131,12 @@ DXの必要性が謳われ、多くの企業がDXに取り組んでいるが、�
 
 [![ABBYY FlexiCapture](https://static4.abbyy.com/abbyycommedia/35820/flexicapture_360x162_v2.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![ABBYY Vantage](https://static4.abbyy.com/abbyycommedia/35822/vantage_360x162_v2.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
@@ -121,6 +145,12 @@ DXの必要性が謳われ、多くの企業がDXに取り組んでいるが、�
 
 [![PDF版](https://static2.abbyy.com/abbyycommedia/35786/itochu-360x162.png)](https://static3.abbyy.com/abbyycommedia/35787/customer-story-itochu-ja.pdf "PDF版") [PDF版](https://static3.abbyy.com/abbyycommedia/35787/customer-story-itochu-ja.pdf "PDF版") 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [詳細を読む](https://static3.abbyy.com/abbyycommedia/35787/customer-story-itochu-ja.pdf "PDF版") 
 
 [ABBYYについて](https://tools.techidaily.com/abbyy/products/) 
@@ -128,10 +158,16 @@ DXの必要性が謳われ、多くの企業がDXに取り組んでいるが、�
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 

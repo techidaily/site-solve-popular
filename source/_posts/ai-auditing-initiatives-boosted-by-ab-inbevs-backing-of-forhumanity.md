@@ -1,22 +1,46 @@
 ---
 title: AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity
-date: 2024-09-03T22:42:05.418Z
-updated: 2024-09-04T22:42:05.418Z
+date: 2024-09-08T23:36:35.049Z
+updated: 2024-09-09T23:36:35.049Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8d4f635de6f8288e79a21d2dcf9027cad8747323c88b4f310acedbe966d2fadc.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY s'engage aux côtés de ForHumanity pour créer des systèmes d'audit indépendants de l'IA
 
 Mai 13, 2024
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Au cours du prochain ABBYY AI Summit qui se tiendra le 15 mai à l’Emirates Stadium de Londres, l'entreprise se penchera sur la façon dont les établissements financiers peuvent s'adapter aux exigences de conformité en constante évolution.
 
 ABBYY annonce son partenariat avec l’association [ForHumanity](https://forhumanity.center/) dans le but d'aider le secteur des services financiers à s'adapter aux nouvelles réglementations relatives à l'utilisation de l'intelligence artificielle. Dans cette optique, ABBYY copilotera un groupe de travail chargé de définir des critères d'audit pour l'IA, ainsi que pour les systèmes algorithmiques et autonomes (AAA).
@@ -44,21 +68,27 @@ Consultez ces liens pour :
 * [Plus d’informations sur l’ABBYY AI Summit](https://tools.techidaily.com/abbyy/products/)
 * [Plus d’informations sur la conformité à l’IA](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### À PROPOS D’ABBYY
 
 ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous combinons l'innovation et l'expérience pour transformer les informations issues de documents stratégiques en résultats exploitables et pertinents, dans plus de 200 langues et en temps réel. Nous permettons à plus de 10 000 entreprises dans le monde, y compris de nombreuses entreprises du classement Fortune 500, d'avoir un impact majeur là où cela compte le plus : l'expérience client, l'excellence opérationnelle et la compétitivité. ABBYY est une entreprise mondiale dont le siège social se trouve à Milpitas, en Californie, et qui dispose de bureaux dans 14 pays. ABBYY est le partenaire [officiel d’intelligente automation du club de football féminin d'Arsenal](https://tools.techidaily.com/abbyy/products/). Pour plus d'informations, consultez le site www.abbyy.com/company et rejoignez-nous sur [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware?ref%5Fsrc=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) et [Facebook](https://www.facebook.com/ABBYYsoft/?locale=fr%5FFR).
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="960" height="540" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### À PROPOS DE FORHUMANITY
 

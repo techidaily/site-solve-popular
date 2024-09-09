@@ -1,22 +1,40 @@
 ---
 title: "ABBYY Welcomes Anthony Macciola as Their Latest Appointment: Chief Innovation Officer"
-date: 2024-09-03T22:42:04.583Z
-updated: 2024-09-04T22:42:04.583Z
+date: 2024-09-08T23:36:34.291Z
+updated: 2024-09-09T23:36:34.291Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bfe527075b76486c457bb40593f28ebdf4420fa39a7d079da9e7faa5dde71ba1.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Welcomes Anthony Macciola as Their Latest Appointment: Chief Innovation Officer
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Appoints Anthony Macciola to Chief Innovation Officer
 
 October 18, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, a global provider of intelligent capture solutions to improve business outcomes, today announced the appointment of Anthony Macciola as Chief Innovation Officer. In this newly-created role, Macciola will drive innovation and lead the development of new product and service concepts as part of ABBYY’s market-focused vision and strategy.
 
 Anthony is recognized as a thought leader and primary innovator of products, solutions, and technologies for the intelligent capture, RPA, BPM, BI and mobile markets. His vast technical and market knowledge related to AI, machine learning, and text analytics – areas where ABBYY is actively developing – will be a massive benefit for our customers and partners,” says **Ulf Persson**, CEO of ABBYY.
@@ -132,10 +150,3 @@ Connect with us
 <li><a href="https://buynow-info.techidaily.com/top-voice-dictation-apps-dominating-the-market-in-2amo/"><u>Top Voice Dictation Apps Dominating the Market in 2Amo</u></a></li>
 <li><a href="https://sound-issues.techidaily.com/troubleshooting-and-repairing-your-iphone-for-optimal-sound-quality/"><u>Troubleshooting and Repairing Your iPhone for Optimal Sound Quality</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

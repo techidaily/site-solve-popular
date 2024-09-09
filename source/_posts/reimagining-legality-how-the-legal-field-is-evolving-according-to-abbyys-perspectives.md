@@ -1,16 +1,28 @@
 ---
 title: "Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives"
-date: 2024-09-03T22:42:05.991Z
-updated: 2024-09-04T22:42:05.991Z
+date: 2024-09-08T23:36:35.622Z
+updated: 2024-09-09T23:36:35.622Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0c75a67c21e60baebffadabf.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Changing Landscape of the Legal Profession
 
 ###### Andrew Pery
@@ -19,6 +31,12 @@ March 12, 2020
 
 ![SMM Blog | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/25405/11572_smm_blog_the-changing-landscape-of-the-legal-profession_blog-copy.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The practice of law is experiencing digital disruption. The intersection of competitive pressures and technological innovation have transformed the way law firms and legal departments operate. The growth of the [alternative legal services providers](https://legal.thomsonreuters.com/content/dam/ewp-m/documents/legal/en/pdf/reports/alsp-report-final.pdf) market and increased adoption of DIY solutions such as [Rocket Lawyer](https://www.rocketlawyer.com/) place enormous pressures on the legal profession to become more efficient and competitive. 
 
 **Decreased Technology Adoption Despite Increased Workload**
@@ -41,6 +59,12 @@ In today’s fast paced global environment, legal professionals must remain agil
 
 ![Andrew Pery ABBYY](https://static1.abbyy.com/abbyycommedia/25715/andrewpery-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Andrew Pery
 
 Digital transformation expert and AI Ethics Evangelist for ABBYY
@@ -49,6 +73,12 @@ Andrew Pery is an AI Ethics Evangelist at intelligent automation company [ABBYY]
 
 Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-cipp-c-cipp-e-3a536726/).
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -168,16 +198,3 @@ Connect with us
 <li><a href="https://facebook-video-footage.techidaily.com/ultimate-editing-software-listings-for-2024/"><u>Ultimate Editing Software Listings for 2024</u></a></li>
 <li><a href="https://instagram-clips.techidaily.com/unveiling-the-oculum-q2-top-tier-easy-to-use-virtual-world-for-great-value/"><u>Unveiling the Oculum Q2: Top-Tier, Easy to Use Virtual World for Great Value</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

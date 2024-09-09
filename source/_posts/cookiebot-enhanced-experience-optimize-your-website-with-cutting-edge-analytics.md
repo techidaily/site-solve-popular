@@ -1,16 +1,28 @@
 ---
 title: "Cookiebot-Enhanced Experience: Optimize Your Website with Cutting-Edge Analytics"
-date: 2024-09-03T22:42:08.368Z
-updated: 2024-09-04T22:42:08.368Z
+date: 2024-09-08T23:36:37.976Z
+updated: 2024-09-09T23:36:37.976Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/445d6c97ace4ef05d63cde4f33374d4b0783e76d1e91d61e1ddb527be75674b2.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enhanced Experience: Optimize Your Website with Cutting-Edge Analytics
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Positive Business Outcomes Require Trustworthy AI and Intelligent Process Automation
 
 ###### Andrew Pery
@@ -32,6 +44,12 @@ I had the privilege of participating in three roundtable discussions that explor
 * Democratization of AI
 * Three Recommendations to Fully Benefit From the Business Value of AI Technologies
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Digital Trust and Identity Management: Adoptions trends and challenges associated with digital identity
 
 COVID-19 accelerated the trend toward AI-powered chatbots, virtual financial assistants, and touchless customer onboarding, using AI-based biometric identity verification. This trend is confirmed in research by Cap Gemini i, which shows that 78% of consumers surveyed are planning to increase use of AI technologies, including digital identity management, in their interactions with financial services organizations. Biometric identity verification is more secure and removes onboarding friction, as evidenced in a Payments.com survey ii, which revealed that nearly 75% of US consumers “rely on their memory to recall passwords,” and 90% use the same password across many sites.
@@ -42,24 +60,12 @@ These inherent benefits notwithstanding, the roundtable discussion raised a numb
 
 Today, digital identity management is typically a centralized process, which is prone to cyberattacks and to privacy breaches. There is momentum toward a more [decentralized digital identity management](https://venturebeat.com/2022/02/19/decentralized-identity-solutions-could-bring-true-ownership-and-security-to-gaming/) framework that gives consumers more control over their own digital identities without dependence on third-party service providers.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### AI Governance and Regulatory Frameworks: AI governance best practices designed to minimize AI bias and engender consumer trust
 
 While, according to The OECD’s tracker on national AI policies, there are over 700 AI regulatory initiatives under development in over 60 countries, there are no legislatively mandated AI regulations in place. There are, however, voluntary codes of conduct and ethical AI principles developed by international standards organizations such as the Institute of Electrical and Electronic Engineers (“IEEE”) v and the National Institute of Standards and Technology (NIST) vi. However, the AI regulatory framework is rapidly evolving. AI regulation is inevitable, as evidenced by recent developments by the European Commission, Canadian Federal Government, US Federal Trade Commission (FTC), Consumer Financial Protection Bureau (CFPB), and The Federal Reserve Board. They are all flexing their regulatory muscles through their enforcement mechanisms to protect consumers against adverse impacts arising from the increased applications that may result in discriminatory outcomes, albeit, unintended. The bottom line is that implementation of AI governance best practices is no longer a nice to have initiative, but an imperative.
 
 [Learn more about ABBYY's guiding principles for fostering the development, productization, and marketing of trustworthy AI.](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Democratization of AI: How AI is rapidly proliferating from a highly technical domain of data scientists to line of business users
 
 The shift is toward no-code / low-code AI applications development, which according to Business Wire vii is forecast to reach $45.5 billion by 2025\. The main driver is hyper-productivity improvements, which Forrester viii estimates will improve application development productivity by a factor of 10x and deliver [faster time to value](https://www.forbes.com/sites/forbestechcouncil/2021/01/27/low-code-and-no-code-bringing-tech-and-business-together/?sh=179a23df6521). While no-code / low-code development of AI-based applications offers unprecedented speed and ease of use, it also creates potential challenges. Foremost among them is AI governance, risk, and compliance challenges due to lack of scrutiny by data scientists and IT professionals.
@@ -71,10 +77,10 @@ _Sean O'Brien_
 As Sean O’Brien ix, an academic at Yale Law School and the founder of Yale’s Privacy Lab, recently warned: “Low code can be like fast food: delivered quickly and in bright packaging, but bad for you, your community, and your ecosystem.” It is important that while no-code / low-code AI development delivers inherent efficiency improvements and time to value, its implementation must include comprehensive testing to ensure that it performs in accordance with initial design objectives, removes potential bias in the training data set, and is secure from adversarial AI attacks that can undermine AI algorithmic outcomes.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Three recommendations organizations may want to consider to fully benefit from the business value of AI technologies
 
@@ -85,10 +91,10 @@ A data-driven approach assists in determining where the applications of AI techn
 ![AI in Business - Whiteboard session with a group of people, one standing and four others sitting at table](https://static1.abbyy.com/abbyycommedia/33533/brainstorm-whiteboard-1-new.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### 2\. Combine task mining and process mining 
 
@@ -126,12 +132,6 @@ ix ["Low Code: Satisfying Meal or Junk Food?" by Pam Baker | Information Week, 2
 
 ![Andrew Pery ABBYY](https://static1.abbyy.com/abbyycommedia/25715/andrewpery-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Andrew Pery
 
 Digital transformation expert and AI Ethics Evangelist for ABBYY
@@ -141,16 +141,10 @@ Andrew Pery is an AI Ethics Evangelist at intelligent automation company [ABBYY]
 Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-cipp-c-cipp-e-3a536726/).
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

@@ -1,12 +1,18 @@
 ---
 title: Harness the Power of Cookiebot for Optimized Web Traffic Growth
-date: 2024-09-03T22:42:07.905Z
-updated: 2024-09-04T22:42:07.905Z
+date: 2024-09-08T23:36:37.508Z
+updated: 2024-09-09T23:36:37.508Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7886b93aef2a0639ec1e094763681d9231c505608c149e23de7fcb6df36e4813.JPG
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Harness the Power of Cookiebot for Optimized Web Traffic Growth
 
 [Back to Webinars](https://tools.techidaily.com/abbyy/products/)
@@ -19,6 +25,12 @@ French
 
 ![08 Yvonmoysan 198X198](https://static4.abbyy.com/abbyycommedia/25114/08-yvonmoysan-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Yvon Moysan
 
 Spécialiste et consultant IA dans le secteur banque/assurance
@@ -26,90 +38,16 @@ Spécialiste et consultant IA dans le secteur banque/assurance
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25106/04-lindaameur-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### Linda Ameur
-
-Directrice Commerciale France, **ABBYY**
-
-![07 Oliviervasseur 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
-
-![07 Oliviervasseur 198X198](https://static4.abbyy.com/abbyycommedia/25112/07-oliviervasseur-198x198.png)
-
-### Olivier Vasseur
-
-Solution Architect, **ABBYY**
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### Description
-
-Face aux nouveaux défis imposés par la crise du COVID-19, avec une augmentation exponentielle de réclamations dans tous les domaines (assurance-vie, annulation de voyages ou d’événements, etc.), les assureurs doivent agir rapidement pour gérer le volume des réclamations et les documents requis. Comment l’IA appliquée au monde de l’assurance permet-elle d’adresser cette crise ?
-
-Yvon Moysan, auteur, professeur et véritable expert dans le domaine de l’IA, vous fera part de sa vaste expérience et vous montrera au travers de différents cas concrets comment l’IA révolutionne le secteur de l’assurance – de la détection de la fraude en passant par l’automatisation des flux à l’optimisation des processus IARD.
-
-### Points forts
-
-Plusieurs cas clients ABBYY vous montreront par la suite comment nos solutions de Digital Intelligence vous aident à maîtriser ces défis :
-
-* La découverte de processus vous permet de rassembler toutes les données nécessaires et de faire des recommandations.
-* L’automatisation de processus et la gestion de transactions en temps réel sont des solutions clés afin d’améliorer considérablement votre expérience client.
-
-### Regardez maintenant
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### Get in touch with us
-
-Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
-All personal information collected via this method is under full scope of all provisions in our privacy policy.
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Merci et bon webinaire !
-
-[![Digital Intelligence La Clé De L'assurance De Demain](https://static2.abbyy.com/abbyycommedia/29584/digital-intelligence-la-clé-de-lassurance-de-demain.png)](https://www.youtube.com/watch?v=X8sNzPVa7Lc) 
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
-
-<!-- affiliate ads begin -->
 <span id="1938136">
-					<video width="80" height="300" style="cursor:pointer"
+					<video width="128" height="480" style="cursor:pointer"
            poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
 	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
@@ -119,6 +57,86 @@ All personal information collected via this method is under full scope of all pr
 </span>
 <img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+### Linda Ameur
+
+Directrice Commerciale France, **ABBYY**
+
+![07 Oliviervasseur 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![07 Oliviervasseur 198X198](https://static4.abbyy.com/abbyycommedia/25112/07-oliviervasseur-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Olivier Vasseur
+
+Solution Architect, **ABBYY**
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Description
+
+Face aux nouveaux défis imposés par la crise du COVID-19, avec une augmentation exponentielle de réclamations dans tous les domaines (assurance-vie, annulation de voyages ou d’événements, etc.), les assureurs doivent agir rapidement pour gérer le volume des réclamations et les documents requis. Comment l’IA appliquée au monde de l’assurance permet-elle d’adresser cette crise ?
+
+Yvon Moysan, auteur, professeur et véritable expert dans le domaine de l’IA, vous fera part de sa vaste expérience et vous montrera au travers de différents cas concrets comment l’IA révolutionne le secteur de l’assurance – de la détection de la fraude en passant par l’automatisation des flux à l’optimisation des processus IARD.
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Points forts
+
+Plusieurs cas clients ABBYY vous montreront par la suite comment nos solutions de Digital Intelligence vous aident à maîtriser ces défis :
+
+* La découverte de processus vous permet de rassembler toutes les données nécessaires et de faire des recommandations.
+* L’automatisation de processus et la gestion de transactions en temps réel sont des solutions clés afin d’améliorer considérablement votre expérience client.
+
+### Regardez maintenant
+
+### Get in touch with us
+
+Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
+All personal information collected via this method is under full scope of all provisions in our privacy policy.
+
+## Merci et bon webinaire !
+
+[![Digital Intelligence La Clé De L'assurance De Demain](https://static2.abbyy.com/abbyycommedia/29584/digital-intelligence-la-clé-de-lassurance-de-demain.png)](https://www.youtube.com/watch?v=X8sNzPVa7Lc) 
+
+![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Please fill in this form to watch the webinar:

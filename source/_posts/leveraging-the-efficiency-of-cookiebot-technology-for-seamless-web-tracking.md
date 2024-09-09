@@ -1,12 +1,18 @@
 ---
 title: Leveraging the Efficiency of Cookiebot Technology for Seamless Web Tracking
-date: 2024-09-03T22:42:05.159Z
-updated: 2024-09-04T22:42:05.159Z
+date: 2024-09-08T23:36:34.818Z
+updated: 2024-09-09T23:36:34.818Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8edbdeedec707f11bb72a9ed7f55e988ffc8071bad7a0eaa9fbee4357c112fe7.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Leveraging the Efficiency of Cookiebot Technology for Seamless Web Tracking
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -19,8 +25,20 @@ October 27, 2022
 
 ![](https://static1.abbyy.com/abbyycommedia/36301/jsconf_cover.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 This summer, ABBYY was a proud sponsor of [JSConf Budapest—](https://jsconfbp.com/)an international conference bringing together JavaScript enthusiasts from all over the world. Six people from the ABBYY Hungary team, including myself, were representing the company at the event. During the two-day conference, we got to talk to hundreds of developers from as far afield as Singapore, Israel, Serbia, the UK, and many other locations. A steady stream of visitors attended our booth where everyone could take our fun (but not so easy) quiz and win prizes, while learning about ABBYY. We also had the opportunity to listen to dozens of great speakers, and collected some interesting thoughts and insights to share in this post\*.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **The Power of JS Generators by Anjana Vakil**
 
 In this presentation, Anjana shared her passion about generators with the audience with so much energy that even if you didn’t know anything about generators, you were instantly hyped up!
@@ -61,6 +79,12 @@ Internally, we had an interesting conversation about this topic. In itself, this
 
 [Here](https://youtu.be/SdV9Xy0E4CM) you can watch the full presentation.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Communicating Intention with Functional TypeScript by Thiago Temple**
 
 This presentation by Thiago caught our attention for several reasons:
@@ -89,16 +113,10 @@ The speaker also talked about using union types when the input for the function 
 [Here](https://youtu.be/fhyHgkH0ZEg) you can watch the full presentation.
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### **7±2 Reasons Psychology Will Help You Write Better Code by Moran Weber**
 
@@ -110,12 +128,6 @@ One other thing that sticks in my mind and that I have practiced with my team si
 
 [Here](https://youtu.be/jAUcbFM0nXE) you can watch the full presentation.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Testing Web Accessibility by Adrián Bolonio**
 
 Adrián spoke about web accessibility. At ABBYY Hungary we are working on a web application for ABBYY [Timeline](https://tools.techidaily.com/abbyy/products/)—a cloud-based process intelligence platform that helps companies improve their processes. The target audience does not include every day users rather, per se, superusers such as business analysts. We don't have to think about web accessibility (which is usually referred to as a11y), the target audience just does not require this, right? WRONG. And Adrián explains very well why my statement is so wrong.
@@ -129,16 +141,16 @@ This talk was influential—I could even say eye-opening!—to many of us attend
 \*_All presentations in the program were insightful, and we enjoyed each one of them. The upper excerpts reflect our team's best memories about the conference._
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### **Conclusion**
 
@@ -148,24 +160,12 @@ For me, personally, this was the first JSConf I was able to attend here in Budap
 
 ![](https://static4.abbyy.com/abbyycommedia/36306/attila-kling-88x88.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Attila Kling
 
 Software Development Group Team Lead
 
 Attila leads a software development group of ABBYY Timeline. His day-to-day job includes managing web development projects, and he has a keen interest in web-security, user-management, authentication, and authorization.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

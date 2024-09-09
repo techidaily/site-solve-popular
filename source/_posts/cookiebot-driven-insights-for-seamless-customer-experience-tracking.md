@@ -1,24 +1,60 @@
 ---
 title: Cookiebot-Driven Insights for Seamless Customer Experience Tracking
-date: 2024-09-03T22:42:05.462Z
-updated: 2024-09-04T22:42:05.462Z
+date: 2024-09-08T23:36:35.092Z
+updated: 2024-09-09T23:36:35.092Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2453bc5c0249af0de921ee166f14d8e128b375913b07ba9cca730be764e6c410.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Driven Insights for Seamless Customer Experience Tracking
 
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Alex Beregovsky
 
 Board Director
 
 ![Alex-Beregovsky](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/management/headshots/cards-headshots/1486x836-alex-beregovsky.jpg?h=836&iar=0&w=1486)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Mr. Beregovsky is a Managing Director and member of the flagship fund Investment Committee. His primary responsibilities at Marlin include deal qualification, conducting due diligence, transaction execution and portfolio monitoring. Prior to joining Marlin, he worked at Vector Capital, where he focused on identifying and executing investments across the software, internet and tech-enabled services sectors.
 
 Prior thereto, Mr. Beregovsky was an investment professional at Viking Global Investors, a long/short equity fund, and previous to that, at Francisco Partners, where he specialized in technology buyouts. He began his career as a quantitative consultant at Goldman Sachs and an investment banker at Banc of America Securities in the Financial Institutions Group. Mr. Beregovsky earned an M.B.A from the Stanford Graduate School of Business, where he was an Arjay Miller Scholar and a B.A. in mathematics, economics and computer science from New York University, where he graduated summa cum laude.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to speak with an expert?
 
 [Schedule a demo](https://tools.techidaily.com/abbyy/products/)[Get in touch](https://tools.techidaily.com/abbyy/products/)
@@ -106,10 +142,3 @@ Prior thereto, Mr. Beregovsky was an investment professional at Viking Global In
 <li><a href="https://instagram-videos.techidaily.com/unleash-your-potential-with-top-igtv-creators-for-2024/"><u>Unleash Your Potential with Top IGTV Creators for 2024</u></a></li>
 <li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

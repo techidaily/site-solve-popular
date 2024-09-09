@@ -1,22 +1,46 @@
 ---
 title: ABBYY's Advanced Language Translator - Powered by NTT DOCOMO, Features OCR for Multilingual Support
-date: 2024-09-03T22:42:07.535Z
-updated: 2024-09-04T22:42:07.535Z
+date: 2024-09-08T23:36:37.132Z
+updated: 2024-09-09T23:36:37.132Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/94567bf4df3b715033d93123bd31d8eb4bb0ab79d545d1676a1f32d06cb990c5.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY's Advanced Language Translator - Powered by NTT DOCOMO, Features OCR for Multilingual Support
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Powers NTT DOCOMO’s Multi-Language Translation App with Image-Based Text Recognition
 
 April 11, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Users of the Hanashite-Honyaku App Can Now Translate to International Text More Accurately_
 
 ABBYY®, a leading provider of technologies and solutions to action information, today announced that its ABBYY FineReader Engine is now providing image-based translation capability for the Hanashite-Honyaku™ mobile app provided by NTT DOCOMO, Japan’s largest mobile carrier. The Hanashite-Honyaku free app is a popular tool for Japanese speakers needing to accurately translate to up to 10 languages, including English, French, German, Indonesian, Italian, Portuguese, Spanish and Thai, as well as for non-Japanese speaking people residing in Japan needing translation from Japanese to another language. Powered by ABBYY award-winning text recognition technology, the users of the Hanashite-Honyaku app can translate from spoken text and printed text, such as menu, newspaper and signs.
@@ -108,16 +132,3 @@ Connect with us
 <li><a href="https://extra-lessons.techidaily.com/turning-pics-into-time-capsules-with-videos/"><u>Turning Pics Into Time Capsules With Videos</u></a></li>
 <li><a href="https://buynow-tips.techidaily.com/unveiling-the-benefits-of-nokias-newest-model-the-perfect-entry-device/"><u>Unveiling the Benefits of Nokia's Newest Model - The Perfect Entry Device</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,22 +1,40 @@
 ---
 title: "The Future of Digital Transformation: Insights From the 2018 ABBYY Technology Summit on Content Intelligence"
-date: 2024-09-03T22:42:06.745Z
-updated: 2024-09-04T22:42:06.745Z
+date: 2024-09-08T23:36:36.357Z
+updated: 2024-09-09T23:36:36.357Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8c53194608f8a775260017278f44b51f37022a75b1d4965ad23230242f3d564c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Future of Digital Transformation: Insights From the 2018 ABBYY Technology Summit on Content Intelligence
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Technology Summit 2018 Demonstrates Benefits of Content Intelligence
 
 September 18, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Event Highlights How Robotic Process Automation and Artificial Intelligence Transforms Documents into Enterprise Business Value_ 
   
 ABBYY®, a global provider of content intelligent solutions and services, will host its sixth annual [ABBYY Technology Summit](https://abbyytechnologysummit.com/ "ABBYY technology summit") (#ABBYYSummit18) October 10-12, 2018 at The Cosmopolitan of Las Vegas. Global customers and partners attending the summit will take a deep dive into the impact robotic process automation (RPA) is having on intelligent capture, discussions about the market need for content intelligence among organizations and industry shifts that differentiate capabilities impacting business process management (BPM), (ECM), RPA and electronic resource planning (ERP) markets.
@@ -110,16 +128,3 @@ Connect with us
 <li><a href="https://video-creation-software.techidaily.com/updated-in-2024-subtitle-edit-not-your-cup-of-tea-try-these-mac-friendly-alternatives/"><u>Updated In 2024, Subtitle Edit Not Your Cup of Tea? Try These Mac-Friendly Alternatives</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/iuocreodoplusodgplusoctplusodpeodleodreodvoacgombqewmluaipuevptog44ki44ow44ot44o86kqn5a6a44ob44kn44od44kv44oq44k544oi44gn6kal44gk44gr44kl5paw44gx44ge5lql5qw25/"><u>キャッシュフロー最適化戦略: アブビー認定チェックリストで見つける新しい事業機会</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

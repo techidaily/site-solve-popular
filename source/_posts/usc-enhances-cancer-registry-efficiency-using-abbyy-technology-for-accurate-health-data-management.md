@@ -1,7 +1,7 @@
 ---
 title: USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management
-date: 2024-09-03T22:42:06.061Z
-updated: 2024-09-04T22:42:06.061Z
+date: 2024-09-08T23:36:35.708Z
+updated: 2024-09-09T23:36:35.708Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3269c858221e8ab75b91d65fc2cbdc3bf0d972fb510d01ae54b3ad8d22470d02.jpg
@@ -13,6 +13,12 @@ thumbnail: https://thmb.techidaily.com/3269c858221e8ab75b91d65fc2cbdc3bf0d972fb5
 
 Healthcare | Document Management
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## USC Cancer Surveillance Program Automates Medical Records Processing and Ensures Compliance
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/abbyy.png?h=40&iar=0&w=120)
@@ -25,10 +31,22 @@ Healthcare | Document Management
 
 ![](https://static1.abbyy.com/abbyycommedia/15551/3-usc-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Customer Overview
 
 ![University of Southern California](https://static2.abbyy.com/abbyycommedia/15296/usc_logo.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | Name                  | University of Southern California                  |
 | --------------------- | -------------------------------------------------- |
 | Industry              | Department of Preventive Medicine                  |
@@ -113,14 +131,38 @@ The solution has also eliminated the need to outsource imaging to costly vendors
 
 [![FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Healthcare](https://static2.abbyy.com/abbyycommedia/14360/10-healthcare.jpg)](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static5.abbyy.com/abbyycommedia/15552/3-usc-2.png)](https://static4.abbyy.com/abbyycommedia/5380/fc%5Fusc%5Fhealthcare%5F2015.pdf "PDF version") [PDF version](https://static4.abbyy.com/abbyycommedia/5380/fc%5Fusc%5Fhealthcare%5F2015.pdf "PDF version") 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [read more](https://static4.abbyy.com/abbyycommedia/5380/fc%5Fusc%5Fhealthcare%5F2015.pdf "PDF version") 
 
 ###### Like, share or repost
@@ -131,12 +173,6 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

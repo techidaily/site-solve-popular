@@ -1,12 +1,18 @@
 ---
 title: "Transformez La Lecture De Vos Reçus en Temps Réel Grâce À L'IA : ABBYY Sphère Numérique"
-date: 2024-09-03T22:42:08.120Z
-updated: 2024-09-04T22:42:08.120Z
+date: 2024-09-08T23:36:37.733Z
+updated: 2024-09-09T23:36:37.733Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c062bf870fbc9fd76648c39e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Transformez La Lecture De Vos Reçus en Temps Réel Grâce À L'IA : ABBYY Sphère Numérique
 
 Brochure
@@ -15,21 +21,27 @@ Brochure
 
 ![Capture, Track, and Manage Expenses the Easy Way - ABBYY Brochure](https://static1.abbyy.com/abbyycommedia/35134/77c-capture-track-and-manage-expenses-the-easy-way-fr-262x340.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Éliminez le traitement manuel des reçus grâce au Traitement Intelligent des Documents
 
 Le traitement des pièces justificatives ne devrait pas gâcher le temps et les ressources précieuses de la comptabilité. Lorsque les reçus pour les notes de frais des salariés sont traités à la main, cela se traduit souvent par des erreurs telles que des paiements en doublon, ce qui ralentit les audits et expose votre entreprise à de potentielles fraudes. La solution ABBYY de gestion des dépenses rationalise et améliore les processus de remboursement des dépenses. Il s’agit d’une solution prête à l’emploi pour traiter automatiquement les reçus et en extraire les précieuses données dont vous avez besoin pour une gestion exacte des dépenses.
 
 <!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="120" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Télécharger maintenant!
 
@@ -42,10 +54,10 @@ Téléchargez cette brochure pour savoir comment la solution ABBYY de traitement
 * Maîtrise totale du budget dépensé
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Merci de votre intérêt pour ABBYY.
 
@@ -54,10 +66,10 @@ Téléchargez cette brochure pour savoir comment la solution ABBYY de traitement
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
 

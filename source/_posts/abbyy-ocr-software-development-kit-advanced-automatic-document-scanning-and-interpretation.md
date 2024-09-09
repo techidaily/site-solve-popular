@@ -1,16 +1,28 @@
 ---
 title: "Abbyy OCR Software Development Kit: Advanced Automatic Document Scanning & Interpretation"
-date: 2024-09-03T22:42:04.547Z
-updated: 2024-09-04T22:42:04.547Z
+date: 2024-09-08T23:36:34.256Z
+updated: 2024-09-09T23:36:34.256Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1477ca2012895e861bfdb26b444c7a0eb6d638cc1df6527be4105c5f43b0af39.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Abbyy OCR Software Development Kit: Advanced Automatic Document Scanning & Interpretation
 
 ABBYY FineReader Engine
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The most comprehensive OCR SDK for software developers
 
 Integrate AI-powered OCR features into your applications
@@ -19,6 +31,18 @@ Integrate AI-powered OCR features into your applications
 
 ![FRE_Visual](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/finereader-engine/fre_visual.jpg?h=500&iar=0&w=2560)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Automated document analysis
 
 The automated document analysis step is a key part of the overall document recognition process. To conduct this step with a high precision, ABBYY FineReader Engine uses many advanced algorithms of artificial intelligence based methods.
@@ -32,16 +56,10 @@ As a result, the ABBYY FineReader Engine is able to specify text areas and field
 The results of this analysis are used for document structure and layout retrieval if documents are processed for further reuse – which means that the documents need be exactly reconstructed. All pictures and diagrams will be preserved in their original form - without recognizing the text inside pictures or logos.
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Manual blocks specification for field-level recognition
 

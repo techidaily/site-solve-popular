@@ -1,22 +1,40 @@
 ---
 title: Experience Personalized Content with Our Cookiebot Integration
-date: 2024-09-03T22:42:07.875Z
-updated: 2024-09-04T22:42:07.875Z
+date: 2024-09-08T23:36:37.469Z
+updated: 2024-09-09T23:36:37.469Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9f7aaa7e93668c79f588e2bdc07bd0199fd9952e273ede775f53891cdecae42d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Experience Personalized Content with Our Cookiebot Integration
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Adds Salesforce Integration to Business Card Reader App for Android
 
 March 21, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Now Android users can easily export new contacts to Salesforce CRM as leads. The release coincides with the 10th anniversary of the launch of the company’s first mobile application._
 
 **Milpitas, CA – March 21, 2019 –** ABBYY®, a global leader in Content IQ technologies and solutions, today announced that ABBYY Business Card Reader app for Android can now be integrated with Salesforce to instantly export contacts from scanned business cards to Salesforce CRM as leads. The release coincides with the 10th anniversary of the launch of the company’s first mobile application, Business Card Reader for Symbian. ABBYY will continue to leverage this extensive experience and expertise in mobile to support companies and individuals on their digital transformation journey and deliver frictionless customer and user experience eliminating barriers and boosting productivity.
@@ -135,10 +153,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-web-analytics-and-performance/"><u>Utilizing Cookiebot Technology for Optimized Web Analytics & Performance</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/vereinheitlichte-buchhalterlosungen-mit-iguana-und-abbyy-fur-verbesserte-kreditorenverwaltung-and-geschaftsprozesse/"><u>Vereinheitlichte Buchhalterlösungen Mit IGuana Und ABBYY Für Verbesserte Kreditorenverwaltung & Geschäftsprozesse</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

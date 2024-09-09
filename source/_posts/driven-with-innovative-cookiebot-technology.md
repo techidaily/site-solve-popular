@@ -1,16 +1,28 @@
 ---
 title: Driven with Innovative Cookiebot Technology
-date: 2024-09-03T22:42:07.774Z
-updated: 2024-09-04T22:42:07.774Z
+date: 2024-09-08T23:36:37.368Z
+updated: 2024-09-09T23:36:37.368Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ef833586db2eca1205112d6a1324831706810837347cef6ebb757a75a1e9ec6c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Driven with Innovative Cookiebot Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Getting Started with Retrieval Augmented Generation
 
 ###### Maxime Vermeir
@@ -26,6 +38,12 @@ As organizations continue to look for practical uses of generative AI, one techn
 
 One specific reason to do this is to be able to leverage [retrieval augmented generation (RAG)](https://tools.techidaily.com/abbyy/products/), which helps with defining a knowledge domain within which the LLM should operate, your company data. At the heart of RAG's promise is its ability to drastically reduce "hallucinations" in LLMs—those instances where AI generates plausible but incorrect or irrelevant information. But what exactly is RAG, and how does it achieve this feat? And is what is the importance of having document structures perfectly preserved? Let's unpack this together.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is RAG?
 
 Your company data is the Library of Alexandria at the peak of its ancient glory, with its knowledge-laden scrolls and texts. Now, picture a futuristic AI, much like a sage from a sci-fi saga, capable of accessing this boundless wisdom instantaneously to answer any query thrown its way. This is the essence of RAG—an AI methodology that amplifies the capabilities of large language models (LLMs) by dynamically fetching additional knowledge as needed, much like consulting the universe’s most comprehensive library on the fly. This process doesn't just add layers to AI’s understanding; it deepens its responses, making them as nuanced and enriched as the most well-informed human experts.
@@ -35,10 +53,10 @@ Retrieval augmented generation is similar to giving LLMs a research assistant, a
 For an in-depth exploration of RAG's mechanics and advantages, consider this [research article on Arxiv.org](https://arxiv.org/abs/2005.11401), which details how RAG leverages external databases to enhance LLM output accuracy and relevance.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How do I transform my documents for RAG or my private LLM?
 
@@ -51,10 +69,10 @@ Here are the high-level steps to get your documents ready:
 * Integration with AI Systems: Using APIs, this structured data is easily integrated with RAG or LLM systems, such as [LangChain](https://www.langchain.com/) or [Embedchain](https://embedchain.ai/), preparing them for a journey through the knowledge library of your organization.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How do I prepare my data for RAG?
 
@@ -70,28 +88,10 @@ This preparation enhances the data's quality, ensuring that the information RAG 
 
 For further reading on the impact of data quality on RAG's performance and methods to prepare data effectively, head over to this [blog](https://blog.langchain.dev/multi-needle-in-a-haystack/).
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="150" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Technical deep dive: How RAG empowers AI with precision and context
 
 In the quest to make AI as insightful and accurate as possible, retrieval augmented generation (RAG) stands out as a beacon of innovation. At its core, RAG addresses a fundamental challenge: while large language models (LLMs) are adept at generating human-like responses, their knowledge is frozen at the point of their last training. RAG transforms LLMs from static repositories of information into dynamic learners, capable of consulting an ever-updating library of information.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The mechanism behind RAG
 
 ##### 
@@ -125,10 +125,10 @@ As businesses continuously generate new documents and data, ABBYY’s technology
 The seamless integration of ABBYY’s document processing capabilities with RAG-enabled LLMs opens new possibilities for AI applications. From customer support bots that provide up-to-the-minute information to research assistants that draw upon the latest scientific publications, the combination of RAG and ABBYY technologies echos a new era of intelligent, context-aware AI systems.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Conclusion
 
@@ -138,12 +138,6 @@ In this new era of AI, the combination of advanced technologies like [RAG with t
 
 ![Maxime Vermeir](https://www.abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/blog/autors-Headshots/Maxime-Vermeir-blog.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Maxime Vermeir
 
 Senior Director of AI Strategy

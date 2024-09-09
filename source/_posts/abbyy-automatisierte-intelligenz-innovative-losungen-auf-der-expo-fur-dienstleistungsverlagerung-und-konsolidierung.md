@@ -1,22 +1,40 @@
 ---
 title: "ABBYY-Automatisierte Intelligenz: Innovative Lösungen Auf Der Expo Für Dienstleistungsverlagerung Und Konsolidierung"
-date: 2024-09-03T22:42:04.487Z
-updated: 2024-09-04T22:42:04.487Z
+date: 2024-09-08T23:36:34.205Z
+updated: 2024-09-09T23:36:34.205Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/acc116e7f31959c80ee46ff620abee605b240216ab77712435cda97b5c53cabd.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY-Automatisierte Intelligenz: Innovative Lösungen Auf Der Expo Für Dienstleistungsverlagerung Und Konsolidierung
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Intelligente Prozessautomatisierung - ABBYY auf der Shared Services & Outsourcing Woche
 
 13\. November 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, ein führender und globaler Anbieter von Technologien und Lösungen für den effektiven Einsatz von Informationen in Organisationen, präsentiert Lösungen für Robotic Process Automation (RPA) und Artificial Intelligence (AI) auf der Shared Services & Outsourcing Woche (SSOW). Vom 13\. bis 16\. November 2017 berät ABBYY in Berlin Führungskräfte aus Shared Service Centern (SSC) und Outsourcing Dienstleistern (BPO) über die Auswirkungen der Digitalen Transformation auf zukünftige Geschäftsprozesse.
 
 „RPA und AI Lösungen werden den Automatisierungsgrad in traditionellen Büroberufen weiter ansteigen lassen.“, sagt Markus Pichler, Director Business Unit Solution bei ABBYY Europe. „Die Nachfrage nach Fachkräften wird dadurch aber sicherlich auch zukünftig nicht gemindert. Viel mehr werden monotone und repetitive Aufgaben mehr und mehr von Robotern erledigt werden, während sich gut ausgebildete Fachkräfte wieder ihren Kernaufgaben widmen können.“
@@ -121,10 +139,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://win-amazing.techidaily.com/usb-c-thunderbolt-enhancements-installing-the-latest-thunderbolt-dock-on-lenovo-laptops/"><u>USB-C Thunderbolt Enhancements: Installing the Latest Thunderbolt Dock on Lenovo Laptops</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Nokia C32? | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

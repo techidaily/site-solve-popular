@@ -1,22 +1,46 @@
 ---
 title: Experience Enhanced Digital Presence with Cookiebot Integration | Bespoke Online Growth Tools
-date: 2024-09-03T22:42:08.539Z
-updated: 2024-09-04T22:42:08.539Z
+date: 2024-09-08T23:36:38.139Z
+updated: 2024-09-09T23:36:38.139Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4406254504ec111012f48674.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Experience Enhanced Digital Presence with Cookiebot Integration | Bespoke Online Growth Tools
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## iGuana and ABBYY join forces to help enterprises streamline and automate accounts payable processes
 
 February 15, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, a leading provider of technologies and solutions to action information, and [iGuana](https://iguana-idm.com/ "IGuana"), a leading Document Management and Digital Archiving Solutions provider for the BENELUX region, are pleased to announce their partnership.
 
 iGuana and ABBYY decided to join forces in an effort to help enterprise-level customers streamline and automate invoice processing for Accounts Payable (AP) departments. The primary goal of the partnership is to integrate two powerful enterprise software platforms into a one-stop-shop solution for automated invoice capture, data extraction, intelligent processing and digital archiving.
@@ -177,16 +201,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/vereinheitlichte-buchhalterlosungen-mit-iguana-und-abbyy-fur-verbesserte-kreditorenverwaltung-and-geschaftsprozesse/"><u>Vereinheitlichte Buchhalterlösungen Mit IGuana Und ABBYY Für Verbesserte Kreditorenverwaltung & Geschäftsprozesse</u></a></li>
 <li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-vivo-v27-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Vivo V27 | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

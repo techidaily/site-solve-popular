@@ -1,7 +1,7 @@
 ---
 title: Empowering Websites with Cookiebot Technology for Enhanced User Experience
-date: 2024-09-03T22:42:08.405Z
-updated: 2024-09-04T22:42:08.405Z
+date: 2024-09-08T23:36:38.013Z
+updated: 2024-09-09T23:36:38.013Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a05de89bd7149842bbd8e67a6.jpg
@@ -11,12 +11,30 @@ thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a0
 
 [全てのブログ](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 日本語手書き読み取り（CLOVA OCRとFlexiCaptureの連携）(test)
 
 3月28日, 2022
 
 ![](https://static3.abbyy.com/abbyycommedia/35330/clovaocr-cover-848x444-1.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [ABBYY FlexiCapture 12](https://tools.techidaily.com/abbyy/products/)（以下FlexiCapture）で[CLOVA OCR](https://clova.line.me/clova-ocr/?utm%5Fsource=abbyy&utm%5Fmedium=blog)認識エンジンを手軽に利用できるようになりました。
 
 FlexiCaptureは自身のOCRエンジンだけでなく、他社のICR/OCRエンジンを組み合わせて最適なAI OCRを実現することも可能です。
@@ -31,6 +49,12 @@ AI OCRは常に進化しており、クラウド上のサービスも多く、�
 
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35333/clovaocr-content-1-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FlexiCaptureは複雑な文書の処理が可能
 
 FlexiCaptureは、複雑な文書にも広く対応しており、他では取得できないフォーマットでも、定型、非定型問わずに、読み取り可能です。これは、一般的なAI OCRに用いられている学習による解析だけでなく、人間が見て判断するように、特定の文字からの相対位置や何行目、何列目といった表構造の中での位置、スキャン時に発生する解像度のばらつきや傾きの補正などの機能FlexiCaptureが有しているからです。加えて、上記の機能により文書を誤認識してしまった際にもロジカルに原因追及が可能となっています。
@@ -40,22 +64,16 @@ FlexiCaptureは、複雑な文書にも広く対応しており、他では取�
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35332/clovaocr-content-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## FlexiCaptureは検証機能も充実
 
@@ -66,22 +84,10 @@ AI OCRを導入するためには新たな業務が必要となります。す�
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35331/clovaocr-content-3-1.png)
 
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## FlexiCaptureは業務使用に最適
 
@@ -97,18 +103,6 @@ CLOVA OCRは横書きや縦書きだけでなく、丸く湾曲して書かれ�
 
 また、FlexiCaptureと連携したときに、項目単位の細かな設定が必要ないことも特徴の一つです。CLOVA OCR（General）以外のエンジンとの連携では、項目ごとにどんな文字が入るか、文字数はどうかなど細かい調整が必要ですが、CLOVA OCR（General）との連携では、どんな項目も同じ設定で簡単に行うことができます。
 
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="360" height="640" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## まとめ
 
 FlexiCaptureは単体でも認識、検証、ワークフローにおいて優れた機能を有しておりますが、手書き日本語文字に対応していないこともあり、日本語OCRに関して不十分な点があります。一方でAI OCRのフレームワークとしては、FlexiCaptureは優れた点を有しており、CLOVA OCRと組み合わせることで高精度の手書き日本語認識を実現することが可能な上、FlexiCaptureの様々な優れた機能を使用することが可能です。
@@ -121,12 +115,6 @@ FlexiCaptureは単体でも認識、検証、ワークフローにおいて優�
 
 [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

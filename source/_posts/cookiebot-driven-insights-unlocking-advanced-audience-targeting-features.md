@@ -1,24 +1,48 @@
 ---
 title: "Cookiebot-Driven Insights: Unlocking Advanced Audience Targeting Features"
-date: 2024-09-03T22:42:04.687Z
-updated: 2024-09-04T22:42:04.687Z
+date: 2024-09-08T23:36:34.398Z
+updated: 2024-09-09T23:36:34.398Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f7a18b1ed8a37fcd7d106943fadf79a7add46bd88aaea370f1b5ca7a72e0a9d3.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Driven Insights: Unlocking Advanced Audience Targeting Features
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Adrian Jones Joins ABBYY as Chief Revenue Officer to Drive Aggressive Growth Strategy in Intelligent Process Automation Market
 
 January 18, 2022
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Adrianjones 848X444](https://static2.abbyy.com/abbyycommedia/35091/adrianjones-848x444.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Intelligent automation and IT sales veteran, **Adrian Jones**, joins [ABBYY](https://tools.techidaily.com/abbyy/products/) as its newly appointed Chief Revenue Officer (CRO). Jones has led large global sales teams at several market-leading organizations, including Automation Anywhere, Symantec, Oracle, and Hewlett Packard. At ABBYY, Jones will spearhead the company’s global go-to-market strategy with the goal of continuing aggressive revenue growth with an emphasis on the intelligent process automation (IPA) market, which IDC estimates is $17.3 billion in its latest report, [Worldwide Intelligent Process Automation Market Shares, 2020: Solid Growth Across Cloud Segments](https://www.idc.com/getdoc.jsp?containerId=US47469221)1. 
 
 “Adrian joining our executive team marks a significant milestone for ABBYY in our mission to solve enterprises’ biggest challenges gaining value from their content and business processes,” commented **Ulf Persson, Chief Executive Officer at ABBYY**. “Adrian’s experience holding senior leadership positions at some of the world’s largest companies across multiple continents and impeccable track record of executing revenue-driving tactics will directly result in our digital intelligence solutions getting to market faster.”
@@ -31,6 +55,12 @@ Jones currently serves as a Senior Advisor for private equity firm Warburg Pincu
 
 1 IDC, Worldwide Intelligent Process Automation Market Shares, 2020: Solid Growth Across Cloud Segments, Doc # US47469221, June 2021.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY empowers organizations to gain a complete understanding of their business processes and the content that fuels them with its [Digital Intelligence](https://tools.techidaily.com/abbyy/products/) platform. ABBYY technologies are used by more than 5,000 companies, including many of the Fortune 500, and are recognized for their leadership in [Intelligent Document Processing](https://tools.techidaily.com/abbyy/products/) (IDP) and [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) for driving significant impact where it matters most: customer experience, effectiveness, profitability, and competitive advantage. ABBYY is a global company with offices in 14 countries. For more information, visit [www.abbyy.com/company/about-us](https://tools.techidaily.com/abbyy/products/) and follow us on [LinkedIn](https://www.linkedin.com/company/abbyy/ "ABBYY - LinkedIn"), [Twitter](https://twitter.com/abbyy%5Fsoftware "ABBYY - Twitter"), and [Facebook](https://www.facebook.com/ABBYYsoft "ABBYY - Facebook").
@@ -38,21 +68,15 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies, and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 _Director of Global Public Relations_

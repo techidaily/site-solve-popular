@@ -1,22 +1,40 @@
 ---
 title: ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News
-date: 2024-09-03T22:42:05.378Z
-updated: 2024-09-04T22:42:05.378Z
+date: 2024-09-08T23:36:35.018Z
+updated: 2024-09-09T23:36:35.018Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b59734d21ac4befa6d882d663a57d13f768195f331fa0eea08a7ad594a08d5e2.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY helps Röchling implement uniform invoice processing for SAP
 
 July 18, 2016
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _The automotive supplier captures paper and e-mail invoices via distributed capture in regional offices and processes of all locations on a common platform for transfer to SAP®_
 
   
@@ -135,10 +153,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/unlock-deeper-understanding-with-abbyys-guide-on-elevated-bi-and-process-mining-tactics-ebook/"><u>Unlock Deeper Understanding with ABBYY's Guide on Elevated BI & Process Mining Tactics [eBook]</u></a></li>
 <li><a href="https://sound-issues.techidaily.com/why-is-my-mpow-mic-not-recognized-by-windows-a-comprehensive-guide/"><u>Why Is My MPOW Mic Not Recognized by Windows? A Comprehensive Guide</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

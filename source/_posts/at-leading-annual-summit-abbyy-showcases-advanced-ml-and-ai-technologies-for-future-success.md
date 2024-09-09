@@ -1,22 +1,46 @@
 ---
 title: At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success
-date: 2024-09-03T22:42:06.163Z
-updated: 2024-09-04T22:42:06.163Z
+date: 2024-09-08T23:36:35.804Z
+updated: 2024-09-09T23:36:35.804Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3bea074e02c00367c73eda64c4dc35b2b7531a1754ee9632a9d2f7f9073f37e2.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Puts Machine Learning and AI Center Stage at Annual Technology Summit
 
 October 17, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _ABBYY Technology Summit 2017 Features Interactive Sessions that Enable Business Leaders to Understand and Maximize the Value of their Data._
 
 ABBYY®, a leading provider of technologies and solutions to action information, is hosting its fifth annual ABBYY Technology Summit (#ABBYYSummit17) October 25 – 27, 2017 at the Marriott Marquis San Diego Marina. Attendees at the summit will gain better understanding of strategies and tools to accelerate digital transformation initiatives that leverage their data to drive measurable business value.
@@ -101,16 +125,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/top-subcontracting-options-for-enhanced-abbyy-software-solutions/"><u>Top Subcontracting Options for Enhanced ABBYY Software Solutions</u></a></li>
 <li><a href="https://buynow-marvelous.techidaily.com/unveiling-the-functions-a-complete-review-of-truecaller/"><u>Unveiling the Functions: A Complete Review of TrueCaller</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

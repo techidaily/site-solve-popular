@@ -1,22 +1,46 @@
 ---
 title: "Get ABBYY TextGrabber Free: New On-the-Fly Translating Capabilities for Android Devices"
-date: 2024-09-03T22:42:06.499Z
-updated: 2024-09-04T22:42:06.499Z
+date: 2024-09-08T23:36:36.120Z
+updated: 2024-09-09T23:36:36.120Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e189e2b79ab7938cf17b29478f70443bb039bf95e5208154ef45f40c089318b3.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Get ABBYY TextGrabber Free: New On-the-Fly Translating Capabilities for Android Devices
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY TextGrabber for Android Adds Real-Time Translation and Goes Free to Download
 
 August 09, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _The updated TextGrabber turns a smartphone camera into an instant translator that works with 104 languages online and 10 languages offline, perfect for travel and language learning. The app has also become free to download with a subscription for a number of features._ 
   
 ABBYY®, a global provider of content intelligence solutions and services, today announced a major update to TextGrabber for Android. The application now translates text in real time online and offline and is free to download with a premium subscription for a number of features.
@@ -122,16 +146,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/understanding-the-complexities-in-organizational-process-management-lessons-from-the-abbyy-blog/"><u>Understanding The Complexities in Organizational Process Management – Lessons From the ABBYY Blog</u></a></li>
 <li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme GT 5 (240W)? | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

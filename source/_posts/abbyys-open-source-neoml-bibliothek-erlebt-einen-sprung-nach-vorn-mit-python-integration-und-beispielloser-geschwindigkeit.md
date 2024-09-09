@@ -1,22 +1,58 @@
 ---
 title: ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit
-date: 2024-09-03T22:42:08.745Z
-updated: 2024-09-04T22:42:08.745Z
+date: 2024-09-08T23:36:38.343Z
+updated: 2024-09-09T23:36:38.343Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5f93c49b1c440b80d1268f9b261207858efb549976695493b8cd986466735cf6.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYYs Open-Source-Bibliothek NeoML jetzt mit Python-Unterstützung und 10-facher Geschwindigkeitsverbesserung
 
 22\. Juni 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### NeoML bietet eine 50% schnellere Leistung als andere beliebte Open-Source-Bibliotheken für maschinelles Lernen.
 
 ABBYY, ein Unternehmen für Digital Intelligence, hat heute ein umfassendes Update für [NeoML](https://tools.techidaily.com/abbyy/products/), seine plattformübergreifende Open-Source-Bibliothek, bekannt gegeben, mit der Entwickler Modelle für maschinelles Lernen erstellen, trainieren und bereitstellen können. Das Update umfasst die Unterstützung der Programmiersprache Python, die beliebteste Sprache für maschinelles Lernen und künstliche Intelligenz. Das Framework bietet außerdem eine fünf bis zehn Mal höhere Geschwindigkeit sowie über 20 neue ML-Methoden, einschließlich zehn Netzwerkschichten und Optimierungsverfahren. Zusätzlich unterstützt NeoML jetzt Apple M1 Chips, Grafikprozessoren auf Linux-basierten Geräten und Intel GPUs. Dies erweitert die möglichen Anwendungsfälle und Szenarien für die Bibliothek erheblich und erlaubt mehr Entwicklern KI-basierte Anwendungen und Lösungen zu erstellen.
@@ -117,10 +153,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-popular.techidaily.com/revolutionizing-team-dynamics-exploring-ais-role-in-reshaping-todays-work-environment-insights-from-abbyy/"><u>Revolutionizing Team Dynamics: Exploring AI's Role in Reshaping Today's Work Environment - Insights From ABBYY</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-site-customization-and-improved-engagement/"><u>Utilizing Cookiebot Technology for Optimized Site Customization and Improved Engagement</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,24 +1,54 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Website's Analytics & Tracking"
-date: 2024-09-03T22:42:06.234Z
-updated: 2024-09-04T22:42:06.234Z
+date: 2024-09-08T23:36:35.878Z
+updated: 2024-09-09T23:36:35.878Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b35a9a46671dd373ee6fb76f2e7c8c289a52fdab2f2b7f6dd74a2f0921700773.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled: Enhance Your Website's Analytics & Tracking
 
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
 Media
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY permet au Journal de la Next-Gen d’apporter des informations à jour et pertinentes à ses visiteurs avec FineReader
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/fr/39656.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY permet au Journal de la Next-Gen d’apporter des informations à jour et pertinentes à ses visiteurs avec FineReader
 
 [Afficher ou télécharger une version imprimable de cet article (PDF 338 kb)](https://static3.abbyy.com/abbyycommedia/10191/cs-journal-next-gen-fr-f.pdf) 
@@ -27,6 +57,12 @@ Media
 
 ![Le Journal de la Next-Gen](https://tools.techidaily.com/abbyy/products/)_Le Journal de la Next-Gen doit publier rapidement sur Internet des informations pertinentes sur les logiciels et matériels dédiés aux postes de travail des utilisateurs de PC qui travaillent avec Windows, Mac ou Linux. Traiter le plus d’informations pertinentes en peu de temps est une nécessité pour les journalistes du Journal de la Next-Gen. Une perte de temps, c’est risquer de ne pas présenter des informations importantes avec le bon timing. Plus il y a de sources d’informations à traiter et plus le papier risque de s’accumuler. Les membres de la rédaction du Journal de la Next-Gen ont dû s’équiper afin de traiter le plus rapidement possible les informations papier et électroniques à leur disposition. Pour accélérer la rédaction d’articles après avoir numériser des informations, il était nécessaire ensuite de pouvoir les réutiliser facilement et rapidement. Cela impliquait de réduire très significativement la réécriture et le reformatage des informations pertinentes afin de les réutiliser à travers des formats connus comme Word, Excel, HTML ou PDF. Le principal objectif était de fortement faciliter la communication au sein de l’équipe du Journal de la Next-Gen. Cette équipe comprend 5 personnes: 3 journalistes, 1 rédacteur et un associé._
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Solution
 
 Pour améliorer le traitement et la réutilisation des informations, le Journal de la Next-Gen a recherché une solution de reconnaissance optique de caractères (OCR). L’OCR permet de déverrouiller les informations contenues dans divers types de documents papier et de convertir des documents PDF en d’autres formats pour une meilleure exploitation de leurs contenus. La solution recherchée devait aussi posséder une interface conviviale et des fonctionnalités aisées à appréhender.
@@ -68,16 +104,10 @@ Contact
 Partager 
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 

@@ -1,22 +1,46 @@
 ---
 title: Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files
-date: 2024-09-03T22:42:07.215Z
-updated: 2024-09-04T22:42:07.215Z
+date: 2024-09-08T23:36:36.811Z
+updated: 2024-09-09T23:36:36.811Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6db3345e6b05b14e1b02d624eebb2a2ce8b63469f2261321211e5e8c5934467b.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## M-Files integriert KI-Technologien von ABBYY zur weiteren Automatisierung des Informationsmanagements
 
 20\. Juni 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Führender Hersteller von intelligenten Lösungen zum Informationsmanagement erweitert seine Plattform mit Technologien der Künstlichen Intelligenz für die automatische Klassifizierung von Dokumenten und anderen Informationen._
 
   
@@ -143,10 +167,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://video-content-creator.techidaily.com/updated-the-ultimate-guide-to-mac-green-screen-software-solutions-for-2024/"><u>Updated The Ultimate Guide to Mac Green Screen Software Solutions for 2024</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-site-customization-and-improved-engagement/"><u>Utilizing Cookiebot Technology for Optimized Site Customization and Improved Engagement</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

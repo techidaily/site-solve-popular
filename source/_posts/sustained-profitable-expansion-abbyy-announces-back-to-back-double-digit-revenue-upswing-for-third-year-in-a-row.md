@@ -1,22 +1,40 @@
 ---
 title: "Sustained Profitable Expansion: ABBYY Announces Back-to-Back Double-Digit Revenue Upswing for Third Year in a Row"
-date: 2024-09-03T22:42:05.207Z
-updated: 2024-09-04T22:42:05.207Z
+date: 2024-09-08T23:36:34.869Z
+updated: 2024-09-09T23:36:34.869Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/81c104f653fc6628652d6140a521e94570f22aa2499ea9263be6a00f18fb658c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Sustained Profitable Expansion: ABBYY Announces Back-to-Back Double-Digit Revenue Upswing for Third Year in a Row
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Achieves Double-Digit Annual Revenue Growth for Third Consecutive Year
 
 March 24, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _ABBYY FY19 revenue growth driven by RPA partnerships, expanded product portfolio, and strengthened global presence._
 
   
@@ -101,16 +119,3 @@ Connect with us
 <li><a href="https://android-frp.techidaily.com/latest-guide-how-to-bypass-honor-x7b-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Honor X7b FRP Without Computer</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/les-avantages-de-rpa-pour-les-entreprises-francaises-une-etude-revelatrice-dun-retour-sur-investissement-positif-des-la-premiere-annee-informations-par-abby29/"><u>Les Avantages De RPA Pour Les Entreprises Françaises : Une Étude Révélatrice D'un Retour Sur Investissement Positif Dès La Première Année - Informations Par ABBYY</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

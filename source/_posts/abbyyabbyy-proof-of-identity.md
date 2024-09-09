@@ -1,24 +1,48 @@
 ---
 title: ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内
-date: 2024-09-03T22:42:04.413Z
-updated: 2024-09-04T22:42:04.413Z
+date: 2024-09-08T23:36:34.157Z
+updated: 2024-09-09T23:36:34.157Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d9925e82a959f50569bbd42483d903b11385c17bd02f16f205258c110d37af55.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY、初のオールインワン本人確認ソリューション 「ABBYY Proof of Identity」を発表
 
 10月24日, 2022
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![News Abbyy Poi](https://static2.abbyy.com/abbyycommedia/36116/news-abbyy-poi.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **～AI OCRの活用により、ユーザーの使いやすさと企業にとって安全な本人確認の両立を実現、** 
 **詐欺損害の軽減や複雑な手順による消費者の離脱率低下にも寄与～** 
 
@@ -47,6 +71,18 @@ ABBYY Proof of Identityの詳細は、[こちら](https://tools.techidaily.com/a
 
 _1 Gartner、「Buyer’s Guide for Identity Proofing（身元保証のためのバイヤーズガイド）」（2021年4月7日発行）_
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ABBYYについて
 
 ABBYYはインテリジェント・オートメーションを推進するリーディング・カンパニーです。オートメーション・プラットフォームの原動力となるテクノロジーを提供することにより、人々の働き方やビジネス加速の方法に新しいビジョンをもたらしています。ABBYYのソリューションは、企業データを変換し、よりスマートかつ迅速な業務の遂行に必要なインサイトを提供します。 
@@ -60,10 +96,10 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030375/7443" target="_top" id="2030375">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030375/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 報道関係者お問い合わせ先
 

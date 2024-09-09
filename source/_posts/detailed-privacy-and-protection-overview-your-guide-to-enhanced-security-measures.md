@@ -1,22 +1,46 @@
 ---
 title: "Detailed Privacy and Protection Overview: Your Guide to Enhanced Security Measures"
-date: 2024-09-03T22:42:06.336Z
-updated: 2024-09-04T22:42:06.336Z
+date: 2024-09-08T23:36:35.961Z
+updated: 2024-09-09T23:36:35.961Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a41e0de2cfc698ca3c0940c0c485fd915185405a99674b771fae0aecdd94d3b1.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Detailed Privacy and Protection Overview: Your Guide to Enhanced Security Measures
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Security Statement
 
 August 30, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Please be informed that on August 20, 2018, ABBYY USA received a vague message from an independent security researcher who had found an open instance of MongoDB containing scanned documents related to an ABBYY platform. After we confirmed that this database was part of one of our services – ABBYY Text Analytics for Contracts – we immediately locked external access to the database and started an investigation.
 
 ABBYY has conducted a full security review of its infrastructure and procedures. The investigation into this incident has shown that due to a misconfiguration of a database commercial documents for one customer were exposed for a limited period of time. With a high degree of confidence we can say that no data loss occurred during this period.
@@ -122,16 +146,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="150" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

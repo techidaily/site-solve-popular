@@ -1,22 +1,46 @@
 ---
 title: ABBYY FlexiCapture の正式日本市場発売開始
-date: 2024-09-03T22:42:08.673Z
-updated: 2024-09-04T22:42:08.673Z
+date: 2024-09-08T23:36:38.275Z
+updated: 2024-09-09T23:36:38.275Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/623365f2ffae0d2d8c9a44d31ae5f64f961d3fb3d2838be2d2e5cf0ae63c28b6.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY FlexiCapture の正式日本市場発売開始
 
 [ニュースルーム](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY FlexiCaptureを日本で本格販売開始
 
 10月21日, 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ドキュメント認識・ドキュメントキャプチャ・言語技術やサービスを提供するリーダー企業であるABBYYジャパン株式会社（代表：小原洋、日本オフィス：横浜市港北区）は、インテリジェントなデータ・ドキュメントキャプチャソリューションABBYYFlexiCaptureを日本で本格販売を開始したと発表しました。ドキュメントベースのビジネスプロセスを賢く、より効率的にするために既存のプラットフォーム上にABBYY FlexiCaptureの最新拡張機能も搭載しております。分散文書処理、マルチチャンネルの文書入力、増加したシステムのユーザビリティ、制御および監視を展開するための高度なウェブベースのキャプチャは、最新拡張機能の一部です。FlexiCaptureプラットフォームは、請求書処理をサポートするように設計し拡張することも可能です。
 
 ABBYY FlexiCaptureは、ビジネスの様々なシステムで使用する重要なデータを自動抽出でき、ドキュメントベースのプロセスを合理化する、エンタープライズ・ソフトウェア・プラットフォームです。FlexiCaptureを使うと、業務を効率化できコンプライアンスニーズの実現に加え、納税申告書、アンケート、契約書、請求書、顧客のメールや住宅ローンの文書に至るまで様々な文書からデータに簡単にアクセスすることができます。ABBYY FlexiCaptureは、180以上の言語の文書を処理し、手書き認識については100以上の言語をサポートします。スタンドアローンソリューションからエンタープライズレベルのプロジェクトにまで対応します。
@@ -123,16 +147,3 @@ Connect with us
 <li><a href="https://driver-error.techidaily.com/resolving-invalid-installation-warnings-what-to-do-when-drivers-fail-on-your-pc/"><u>Resolving Invalid Installation Warnings: What To Do When Drivers Fail on Your PC</u></a></li>
 <li><a href="https://ai-voice.techidaily.com/updated-in-2024-top-10-free-ai-voice-generators-to-use-in-daily-life/"><u>Updated In 2024, Top 10 Free AI Voice Generators to Use in Daily Life</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="540" height="540" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

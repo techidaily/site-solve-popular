@@ -1,22 +1,46 @@
 ---
 title: Breaking Down ABBYY OMZET's Successful Year of 2Abbreviation; Benelux Metrics Reflect a 23%% Upsurge in 2019
-date: 2024-09-03T22:42:04.664Z
-updated: 2024-09-04T22:42:04.664Z
+date: 2024-09-08T23:36:34.381Z
+updated: 2024-09-09T23:36:34.381Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/20681dc3787d86713afd2395e0942d0819f5bca12434956d1fe5521df7d6718e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Breaking Down ABBYY OMZET's Successful Year of 2Abbreviation; Benelux Metrics Reflect a 23% Upsurge in 2019
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Omzet ABBYY in 2019 met 23% gestegen in Benelux
 
 March 24, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Digital Intelligence-specialist ABBYY zag in het boekjaar 2019 zijn wereldwijde omzet opnieuw met dubbele cijfers stijgen. In de Benelux ging de omzet zelfs met circa 23 procent de hoogte in. Die groei werd vooral gerealiseerd door de omzet uit RPA-integraties en strategische partnerships. Een andere succesfactor was de uitbreiding van het productportfolio na de overname van TimelinePI, nu [ABBYY Timeline](https://tools.techidaily.com/abbyy/products/), het enige end-to-end Process Intelligence-platform.
 
 ABBYY zag in het boekjaar 2019 een sterke omzetgroei voor zijn oplossingen binnen de markt voor Robotic Process Automation (RPA). De totale jaaromzet vanuit RPA-partnerships, integraties en de verkoop van licenties aan fabrikanten steeg met 210 procent. ABBYY heeft momenteel meer dan vijftig RPA-partners, waaronder [UiPath](https://tools.techidaily.com/abbyy/products/), [Blue Prism](https://tools.techidaily.com/abbyy/products/), NICE, [Robiquity](https://tools.techidaily.com/abbyy/products/) en [Sprint Reply](https://tools.techidaily.com/abbyy/products/), waarbij verschillende partnerships vaak voor meer [klantadoptie](https://tools.techidaily.com/abbyy/products/) zorgen. 
@@ -94,10 +118,3 @@ Connect with us
 <li><a href="https://instagram-videos.techidaily.com/the-art-of-blending-music-into-your-ig-visuals/"><u>The Art of Blending Music Into Your IG Visuals</u></a></li>
 <li><a href="https://buynow-tips.techidaily.com/webex-virtual-conferencing-a-comprehensive-guide-to-its-advantages-and-disadvantages/"><u>WebEx Virtual Conferencing: A Comprehensive Guide to Its Advantages & Disadvantages</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

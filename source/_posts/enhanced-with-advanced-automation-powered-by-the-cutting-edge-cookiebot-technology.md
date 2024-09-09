@@ -1,16 +1,28 @@
 ---
 title: "Enhanced with Advanced Automation: Powered by the Cutting-Edge Cookiebot Technology"
-date: 2024-09-03T22:42:07.845Z
-updated: 2024-09-04T22:42:07.845Z
+date: 2024-09-08T23:36:37.438Z
+updated: 2024-09-09T23:36:37.438Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b19b440ee033b062893436bff7c73d55af4b510d997596576ac31f3af838cbea.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced with Advanced Automation: Powered by the Cutting-Edge Cookiebot Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Next-Generation Intelligent Document Processing Release Gets Smarter and Drives Greater Process Efficiencies
 
 ###### Bill Galusha
@@ -19,6 +31,12 @@ November 21, 2022
 
 ![](https://static4.abbyy.com/abbyycommedia/36328/vantage-23.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The industry’s smartest intelligent document processing (IDP) platform just got smarter… giving you more ways to achieve success when it comes to processing documents.
 
 [Keep up to date with the latest changes with ABBYY Vantage here](https://tools.techidaily.com/abbyy/products/)
@@ -55,10 +73,10 @@ The latest set of new document skills include:
 All these skills are available to try out simply by downloading them from the [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Vantage release 2.3 highlights
 
@@ -69,10 +87,10 @@ In the latest [Vantage release](https://tools.techidaily.com/abbyy/products/), w
 Together, these enhancements make it easier to deploy IDP solutions taking a no-code / low-code approach. Take, for example, processing data from invoices. This not only starts with identifying the vendor invoice and extracting data but often requires detecting the start and end of many invoices in one PDF file. Available in the Vantage release is a new document splitting skill, where Vantage will auto-detect the start and end of a multi-page document like an invoice, eliminating any manual work that would otherwise be required.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Turn your documents into actionable data
 
@@ -84,12 +102,6 @@ The ability to extract table data can be challenging with documents like invoice
 
 It is also worth highlighting the latest ABBYY announcement on [ABBYY Proof of Identity](https://tools.techidaily.com/abbyy/products/), delivering instant identity proofing and affirmation as part of customer onboarding, new account opening, claims, and enrollment processes. It is the point where the customer provides proof of their identity via ID cards, photos, and supporting documents, so the business can determine that they are who they say they are.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Get started today!
 
 We’re very excited about the latest [Vantage](https://tools.techidaily.com/abbyy/products/) 2.3 release as we continue to advance the core AI document understanding technology, build pre-trained skills (models), and align with businesses to simplify document automation. You can learn more about all this exciting release by registering for the upcoming [Vantage 2.3 webinar](https://tools.techidaily.com/abbyy/products/) and try out the new capabilities in your Vantage tenant or [request a demo](https://tools.techidaily.com/abbyy/products/).
@@ -98,19 +110,13 @@ We’re very excited about the latest [Vantage](https://tools.techidaily.com/abb
 
 ![Bill Galusha ABBYY](https://static5.abbyy.com/abbyycommedia/25718/billgalusha-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Bill Galusha
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

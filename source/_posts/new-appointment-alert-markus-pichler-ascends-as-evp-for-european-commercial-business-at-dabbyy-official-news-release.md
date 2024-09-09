@@ -1,22 +1,46 @@
 ---
 title: "New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release"
-date: 2024-09-03T22:42:08.630Z
-updated: 2024-09-04T22:42:08.630Z
+date: 2024-09-08T23:36:38.230Z
+updated: 2024-09-09T23:36:38.230Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e99583f6b5b06e719853b0ad4d8e79890585ba4f6bebb22736b51161b0bbe49e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Markus Pichler devient VP Commercial Europe d’ABBYY
 
 04 mars 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Fort de 20 années d’expérience au sein du marché du logiciel, Markus vient soutenir la croissance et le rayonnement d’ABBYY sur le marché européen._ 
 
 ABBYY, le spécialiste de l’intelligence digitale, annonce la nomination de Markus Pichler au poste de VP Commercial Europe. Pour mener à bien ses nouvelles missions, Markus capitalisera sur sa fine connaissance du marché de l'intelligence digitale, des problématiques de gestion de contenu en entreprise et son expertise dans le domaine de la vente.
@@ -118,10 +142,3 @@ Connect with us
 <li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-top-best-final-cut-pro-x-alternatives-on-windows-and-mac-and-linux-free-and-paid/"><u>Updated 2024 Approved Top Best Final Cut Pro X Alternatives on Windows & Mac & Linux Free & Paid</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

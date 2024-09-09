@@ -1,24 +1,48 @@
 ---
 title: Evaluierung Von Volkswagens Infotainmentsystemen Mit Hilfe Der Software Von ABBYY
-date: 2024-09-03T22:42:05.093Z
-updated: 2024-09-04T22:42:05.093Z
+date: 2024-09-08T23:36:34.762Z
+updated: 2024-09-09T23:36:34.762Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3092233dd7a3eec690ede8061b1cb9bd7087808138a5d4f0dd6cc9938518b6ac.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Evaluierung Von Volkswagens Infotainmentsystemen Mit Hilfe Der Software Von ABBYY
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 Automotive | Testing Automation/Machine Vision
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Der Volkswagen Konzern testet seine Infotainment-Systeme mit ABBYY FineReader Engine
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/de/70219.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Der Volkswagen Konzern testet seine Infotainment-Systeme mit ABBYY FineReader Engine
 
 Automobilbranche | Machine Vision 
@@ -29,6 +53,12 @@ Automobilbranche | Machine Vision
 
 ![Volkswagen Konzern](https://static2.abbyy.com/abbyycommedia/1003/vw_155x80.gif) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | Name                  | Volkswagen Konzern                                                                     |
 | --------------------- | -------------------------------------------------------------------------------------- |
 | Hauptsitz             | Wolfsburg, Deutschland                                                                 |
@@ -84,24 +114,18 @@ Die Testabteilung stellte hohe Anforderungen an den Einsatz der ABBYY OCR Engine
 
 [![cs-vw-360x162](https://static2.abbyy.com/abbyycommedia/14843/cs-vw-360x162.jpg)](https://static1.abbyy.com/abbyycommedia/7361/fallstudie-vw-automobilindustrie-de.pdf "PDF-Version") [PDF-Version](https://static1.abbyy.com/abbyycommedia/7361/fallstudie-vw-automobilindustrie-de.pdf "PDF-Version") 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Zum Dokument](https://static1.abbyy.com/abbyycommedia/7361/fallstudie-vw-automobilindustrie-de.pdf "PDF-Version") 
 
 ###### Like, share or repost
 
 Teilen  True ?  : "" 
 
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

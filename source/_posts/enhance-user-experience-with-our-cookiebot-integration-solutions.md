@@ -1,12 +1,18 @@
 ---
 title: Enhance User Experience with Our Cookiebot Integration Solutions
-date: 2024-09-03T22:42:04.946Z
-updated: 2024-09-04T22:42:04.946Z
+date: 2024-09-08T23:36:34.622Z
+updated: 2024-09-09T23:36:34.622Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c367633b9f9ef727c06fd08d3dd4d78a496570d920b7ae31f5d249d448106c6d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhance User Experience with Our Cookiebot Integration Solutions
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -19,6 +25,12 @@ August 01, 2017
 
 ![Improving Accounts Payable with ABBYY technologies](https://static5.abbyy.com/abbyycommedia/25408/the-inflection-point-when-companies-make-improvement-changes-in-accounts-payable.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 One of the most rewarding aspects of my work is being able to talk with organizational leaders about how, when and why they decide to improve their business processes. And while no two companies or situations are the same, overarching trends come to surface—trends that can provide valuable insight to decision makers at other organizations who may be nearing their own inflection point.
 
 _By Daneen Storc, Senior Product Marketing Manager at ABBYY._
@@ -30,26 +42,20 @@ Traditionally, an AP improvement project takes root when the awareness of the pr
 The benefits of AP Automation are well documented by industry analysts and research firms. With automation, companies see more than four times increase in the number of invoices an employee can process per year, and spend 30% less time responding to supplier inquiries. With the right technology, invoice cycle time will decrease to 5 days or even shorter, which can foster strong supplier relationships and allow for early payment discounts. Paper-based processes can cost five to ten times more than automated processes. In fact, a recent study by prominent research firm reports that the average cost to process a single invoice is more than $13, compared to best-in-class performance of less than $3\. Accuracy is yet another big benefit. The human error factor is always in place as the result of manual entry of invoice information into accounting systems.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Keeping up with growth spurt
 
 Lately, we're seeing a strong trend, particularly with midsize organizations, that the growth of the company fuels the interest in invoice automation. With growth, there are more invoices to process and decision makers need a way to manage the increased volume. A growing transportation and logistics company that we work with in the northwest processes 150K invoices per year and recently took the leap to invest in invoice automation. The primary reason? Automation allows the company to manage the influx of invoices without having to hire additional full time employees.
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Antiquated legacy solution
 
@@ -66,24 +72,18 @@ Whether you’re just coming to understand the undeniable benefits derived from 
 ![Daneen Storc ABBYY](https://static4.abbyy.com/abbyycommedia/25721/daneen-retouched-99x99.png)
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Daneen Storc
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

@@ -1,20 +1,44 @@
 ---
 title: "「デジタルフォーム作成の専門家リスト:保険セクターを中心としたチェックリストガイド」"
-date: 2024-09-03T22:42:08.586Z
-updated: 2024-09-04T22:42:08.586Z
+date: 2024-09-08T23:36:38.182Z
+updated: 2024-09-09T23:36:38.182Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/47a95c239b7223a89568bec86e25318318c6bf5e06ffe2d66f019a638a803bcd.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 「デジタルフォーム作成の専門家リスト:保険セクターを中心としたチェックリストガイド」
 
 バイヤーのチェックリスト
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 保険業の顧客体験を変化させる７つのステップ
 
 ![Transforming The Insurance Customer Experience - ABBYY Checklist](https://static1.abbyy.com/abbyycommedia/35130/27g-7-steps-transform-customer-experience-ja-262x340.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 保険業のカスタマーエクスペリエンスを改善する方法
 
 ABBYYは保険会社をサポートし、オートメーション化によって最も大きな変化が表れる箇所を特定できるようにします。 保険業の大部分は、文書処理が作業の中心です。しかし、現状では、わずかな保険会社のみが保険業のインテリジェントオートメーションを最大限に活用しています。あるいは、オートメーション化の導入に集中するあまり、エンドツーエンドプロセスへの戦略的インサイトを用いることなく、手当たりしだいに進めてしまっている場合も多く見られます。
@@ -22,10 +46,16 @@ ABBYYは保険会社をサポートし、オートメーション化によって
 Digital Intelligenceが、デジタルフォーメーションを前進させるためには、はじめに次のことを知っておく必要があります。そもそも、そのプロセスが機能しているのか。そして、目的達成のために、コンテンツはどのように役立つのか。これらのことが、オートメーション化を導入する時期や方法を決定する前に、理解されなければなりません。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 今すぐダウンロード！
 
@@ -35,12 +65,6 @@ RPAに投資したからといって、望み通りの結果が約束されて�
 
 フォームに記入して、リストを入手しましょう。
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。
 
 [チェックリストを読む](https://digital.abbyy.com/hubfs/documents/content/checklist-insurance-transform-customer-experience-ja.pdf "チェックリストを読む") 
@@ -48,10 +72,10 @@ RPAに投資したからといって、望み通りの結果が約束されて�
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### ご質問がおありですか？ [お気軽にABBYYにお問い合わせください。](https://tools.techidaily.com/abbyy/products/)
 

@@ -1,12 +1,18 @@
 ---
 title: Master Your Connections Using iOS 12 Features for Business Cards - Tips From ABBYB Log
-date: 2024-09-03T22:42:06.568Z
-updated: 2024-09-04T22:42:06.568Z
+date: 2024-09-08T23:36:36.193Z
+updated: 2024-09-09T23:36:36.193Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c55765d4297ec3f7740baed77892bf0fb723d7f4075e0073128d68c9a2027591.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Master Your Connections Using iOS 12 Features for Business Cards - Tips From ABBYB Log
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -17,8 +23,26 @@ October 01, 2018
 
 ![](https://static1.abbyy.com/abbyycommedia/26518/mobile-monday-52.png) 
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In today’s newsletter, we’ll talk about notable improvements and several new features that we think particularly worthy of your attention. We’ll also take a look at the newest version of Android and learn how to manage heaps of business cards.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **iOS Tip: What’s New in iOS 12**
 
 We won’t review all of the new changes and additions, dwelling only on those that we think are really important. Here goes.
@@ -31,6 +55,12 @@ And in [here](https://tools.techidaily.com/abbyy/products/) we showed how you ca
 
 ![3D touch ABBYY apps](https://static1.abbyy.com/abbyycommedia/31859/2.jpg)  
 ![3D iOS ABBYY apps](https://static1.abbyy.com/abbyycommedia/31886/2-300x650.png)
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **AirDropping passwords**
 
@@ -40,12 +70,24 @@ To do this, tap **Settings → Passwords & Accounts → Website & App Passwords*
 
 ![airdrop passwords](https://static1.abbyy.com/abbyycommedia/31860/3-300x650.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Security code AutoFill from SMS**
 
 You no longer need to memorize a new identification code or scramble jot it done down before the message disappears. The received code will appear above the keypad. All you need is tap the code to autofill the confirmation field.
 
 ![Security code AutoFill from SMS](https://static1.abbyy.com/abbyycommedia/31861/4-768x432.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Quick** **actions** **in** **Messages**
 
 Previously, when you wanted to make a phone or FaceTime call from Messages, you tapped the icon of your contact and were directed to another menu. Now tapping a contact’s photo opens a quick menu from which you can make a call.
@@ -58,6 +100,12 @@ On the new “For You” tab, you can view your photos shot in a specific locati
 
 ![iOS For You photos tab](https://static1.abbyy.com/abbyycommedia/31863/6-300x650.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Grouping** **notifications**
 
 This long-awaited feature groups notifications from apps. Now an important new mail or bank notification won’t be lost among a jumble of messages from other apps.
@@ -66,6 +114,12 @@ To view all notifications from the same program, simply tap one alert and the re
 
 ![grouping notifications iOS 12](https://static1.abbyy.com/abbyycommedia/31864/7-300x372.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Second face for your iPhone X’s Face ID**
 
 With the arrival of iOS 12, the Face ID feature has received a major facelift. There is now a new Face ID setting called “Set Up an Alternate Appearance.” This may be useful if you put on spectacles, a wig, a hat or any other accessories that may confuse the face recognition feature. Interestingly, you can even add someone else’s face (e.g. your friend’s) and they will be able to unlock your phone.
@@ -84,7 +138,19 @@ The app appearance has received a major overhaul and received an uncluttered fun
 
 ![voice memos](https://static1.abbyy.com/abbyycommedia/31867/10-300x650.png)  
 ![voice memos iCloud](https://static1.abbyy.com/abbyycommedia/31868/11-300x650.png)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **New way to close apps on the iPhone X**
 
 We never knew why Apple made closing apps such a pain in iOS 10\. The issue has been remedied in iOS 12\. Now you can close multitasking apps with an upward swipe.
@@ -111,6 +177,12 @@ A new measurement app has been added to the stock Apple apps. Unsurprisingly, it
 
 ![ARKit 2.0 and the new Measure app](https://static1.abbyy.com/abbyycommedia/31884/kak-izmerit-obekt-s-pomoshhyu-iphone-v-ios-12.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Screen** **Time**
 
 Screen Time is yet another welcome addition to the new operating system. The feature will tell you how much time you spend with each app. It offers detailed statistics for all your phone activities and presents you with a list of most commonly used apps.
@@ -119,8 +191,26 @@ Screen Time also allows you to limit the use of certain apps and websites. Or yo
 
 ![Screen Time iPhone](https://static1.abbyy.com/abbyycommedia/31871/15-300x650.png)  
 ![Screen Time Apple](https://static1.abbyy.com/abbyycommedia/31872/16-300x650.png)  
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![lock apps to reduce screen time iPhone](https://static1.abbyy.com/abbyycommedia/31873/17-300x650.png)
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Group FaceTime calls**
 
 In iOS 12, you can place group FaceTime calls, calling up to 32 contacts at a time! The implementation is quite unusual: the video window becomes bigger and moves to the forefront when the other person is speaking.
@@ -153,6 +243,12 @@ Ah, we almost forgot. Here’s a list of devices that can be updated to iOS 12:
 
 Apple has been generous enough to include even the good old iPhone 5s on the list of eligible devices.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Android Tip: What’s New in Android 9.0 Pie**
 
 Now that we’ve talked about the latest OS from Apple, let’s review the new features introduced in Android 9.0 aka Pie. If you are not sure where you should update or not, here’s a brief rundown of the latest version released on 6 August 2018.
@@ -190,92 +286,38 @@ Android Pie phones will learn to save their batteries sparingly. The system will
 
 For more information about the new features in Android Pie, please [see the official Android website](https://www.android.com/versions/pie-9-0/). The supported devices are listed [here](https://www.mobileheadlines.net/android-pie-9-0/).
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **ABBYY Tip: Storing Your Business Cards the Smart Way**
 
 If you are often visit conferences or trade shows or if you are an event organizer yourself, you will have lots and lots of business cards from people you meet there. We have produced a small and but very instructive video to share some tips on how you can store and manage your business cards on your phone.Click here to see the tutorial:
 
 Business Card Reader app can be downloaded [here](http://qrs.ly/iw4uqj5).
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **App of the Week: Merge – Couple Organizer**
 
 This is an organizer app for you and your other half. When you create an account, three tabs will become available, one for yourself, another for your spouse, and a third for both of you.
 
 ![Couple organizer app](https://static1.abbyy.com/abbyycommedia/31876/23-300x549.png)  
 ![Couple organizer Merge](https://static1.abbyy.com/abbyycommedia/31877/24-300x551.png)  
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Merge app for couples](https://static1.abbyy.com/abbyycommedia/31878/25-300x552.png)
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 You can create tasks and keep a budget. Now one will be left behind.
 
 ![tasks for sharing chores](https://static1.abbyy.com/abbyycommedia/31879/26-300x578.png)
 
 Available on [iOS](https://itunes.apple.com/us/app/merge-to-do-list-app-for-couples/id1227082205?ls=1&mt=8).
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **First-Hand Experience: Advice From a Colleague**
 
 _By Sonya Oronova, Junior Project Manager_ 
 
 ![Sonya Oronova ABBYY](https://static1.abbyy.com/abbyycommedia/31880/27-768x576.png)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 There lots of videos and online tutorials on how to organize business meetings properly.
 
 Alas, people in many companies seem to ignore the simple rules suggested by business coaches and common sense. As a result, important decisions are delayed, the boss is unhappy, and the employees begin to regard all meetings a pure waste of time.

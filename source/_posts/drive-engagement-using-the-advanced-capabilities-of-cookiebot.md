@@ -1,16 +1,28 @@
 ---
 title: Drive Engagement Using the Advanced Capabilities of Cookiebot
-date: 2024-09-03T22:42:08.390Z
-updated: 2024-09-04T22:42:08.390Z
+date: 2024-09-08T23:36:37.998Z
+updated: 2024-09-09T23:36:37.998Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c8228611ca9a5690c1d2c490.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Drive Engagement Using the Advanced Capabilities of Cookiebot
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Widgets, iMessage, and Skydiving
 
 May 07, 2018
@@ -19,6 +31,12 @@ May 07, 2018
 
 Speed and comfort are the most important requirements for working on a mobile device. This time we’re going to talk about how to add widgets onto your home screens, how to send documents via iMessage and how to overcome fear.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **iOS Tip: How to Add Widgets to Your Home Screen**
 
 We all love widgets, those little applets that conveniently sit on the home screen and give us access to many useful features of the bigger apps without the need to open them. On iOS devices, widgets are displayed in the Today View, which you can open by swiping right over the Home screen, the Lock screen, or the Notification Centre. To add a widget to the Today View:
@@ -32,6 +50,12 @@ Here’s how the [FineScanner](http://qrs.ly/pl4x25p)widget looks like when it s
 
 Click [here](https://support.apple.com/en-us/HT207122) if you want to learn more. Enjoy your widgets!
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Android Tip:** **How to Add Widgets to Your Home Screen**
 
 Naturally, there are widgets for Android apps as well, and in certain respects, they are more flexible than iOS widgets — you can easily add them onto any of the multiple home screens available in Android, and they come in all shapes and sizes. In the instructions that follow, we use the clock widget as an example:
@@ -39,25 +63,7 @@ Naturally, there are widgets for Android apps as well, and in certain respects, 
 1. Tap and hold any free space on a home screen of your Android phone.
 2. Tap the **Widgets** icon at the bottom of the screen.![Android set Widgets Home Screen](https://static1.abbyy.com/abbyycommedia/26251/screenshot_20180430-190926_samsung-experience-home-e1525076867219.jpg)
 3. Leaf through the screens with the available widgets until you see the clock widget. Tap and hold the widget until you see the small images of your home screens.![search for available widgets android](https://static1.abbyy.com/abbyycommedia/26252/screenshot_20180430-190933_samsung-experience-home-e1525076909519.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 4. Drag and drop the clock widget onto a home screen.
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Depending on the version of your OS, the selected widget will be placed into the available free space or you will need to long-tap it and drag it to the desired location.
 
@@ -72,12 +78,6 @@ Some apps may prompt you to configure additional settings for the widget. If the
 
 Enjoy!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **ABBYY Tip: How to Send Documents via iMessage**
 
 Suppose you need to send a picture of your ID card somewhere or a document scan to a colleague. There are many ways to do this and one of them is by using iMessage. When you open it for the very first time, you will have a little configuring to do:
@@ -94,10 +94,28 @@ Now if you want to send a scan using iMessage:
 2. Select the document in the list and specify the format to be used. For scans, select PDF and JPEG. For recognized documents, select PDF and, for example, DOCX or TXT. ![ABBYY Send Documents iMessage finescanner](https://static1.abbyy.com/abbyycommedia/26253/fs-iphone6p-en2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **App of the Week: Trello** 
 
@@ -119,18 +137,6 @@ _By Olga Pavlinova, Head of Event Group_
 
 ![abbyy advice skydiving jump air](https://static1.abbyy.com/abbyycommedia/26255/15442197_1162392030505919_6672111307287218530_n.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Almost every self-help and self-improvement book will include this piece of advice: “Always try something new.” Today, I have some tips for those who are after new experiences and are looking into where to find them.
 
 If you are seeking new thrills, why not take to the skies? The skydiving season is just around the corner, and that means that you can finally take the plunge and do a parachute jump from 4,000 meters. How’s that for something new?
@@ -158,10 +164,10 @@ P.S. You can find our previous newsletter [here](https://tools.techidaily.com/ab
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

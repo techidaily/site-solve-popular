@@ -1,22 +1,46 @@
 ---
 title: Enhance Web Personalization with the Power of Cookiebot Technology
-date: 2024-09-03T22:42:07.118Z
-updated: 2024-09-04T22:42:07.118Z
+date: 2024-09-08T23:36:36.718Z
+updated: 2024-09-09T23:36:36.718Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/16367f6c60ce9653f1392a643e2b82dc02b50b35ff890c97d3a0607584104c84.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhance Web Personalization with the Power of Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY to showcase powerful AI for documents at AI Summit London
 
 June 11, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY®, a global provider of content intelligent solutions and services, will join the world’s foremost innovators at The AI Summit London on 13th and 14th June. ABBYY, a Platinum Sponsor of the conference, will showcase its expertise in Artificial Intelligence (AI), innovations in AI-powered content intelligence and digital transformation alongside Microsoft, Facebook, Amazon, Google, Accenture and IBM, to help participants gain a practical understanding of AI, its use cases and impact on content-centric business processes
 
 During the keynote at 2:25pm on the 14th June, ABBYY Chief Innovation Officer Anthony Macciola will address the challenge of getting valuable insights from unstructured content to gain a competitive edge. He will discuss trends in Robotic Process Automation and talk about how content intelligence can make robots smarter. “AI improves the way enterprises and organisations understand their customers, their desires, and goals. Content Intelligence enables real-time understanding of content and communications, providing faster, more convenient customer service and efficient processing of information. Resolving customer service issues before they arise could significantly lower customer abandonment rates,” commented Anthony Macciola, Chief Innovation Officer at ABBYY Global.
@@ -102,10 +126,3 @@ Connect with us
 <li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-vivo-t2-pro-5g-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Vivo T2 Pro 5G for Streaming | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/top-iphone-11-message-recovery-software-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Top iPhone 11 Message Recovery Software | Stellar</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,16 +1,34 @@
 ---
 title: "Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel"
-date: 2024-09-03T22:42:07.650Z
-updated: 2024-09-04T22:42:07.650Z
+date: 2024-09-08T23:36:37.247Z
+updated: 2024-09-09T23:36:37.247Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f3da9d43f76b9f516093793d9516d9565ec88b7802cbf1d4cc94115fe3f93e52.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Carlsberg s’appuie sur ABBYY pour accélérer la mise sur le marché de ses produits
 
 20 septembre 2022
@@ -19,6 +37,12 @@ thumbnail: https://thmb.techidaily.com/f3da9d43f76b9f516093793d9516d9565ec88b780
 
 ![15040 Carlsberg Blog](https://static1.abbyy.com/abbyycommedia/35962/15040_carlsberg_blog.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Le groupe Carlsberg digitalise ses processus de commande et de livraison via les solutions d’Intelligent Document Processing (IDP) d’ABBYY._
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/), multinationale spécialisée dans l’Intelligent Process Automation, équipe le [Groupe Carlsberg](https://www.carlsberggroup.com/) avec ses solutions d’Intelligent Document Processing (IDP). Ainsi, le groupe brassicole présent mondialement automatise ses processus de commande et de livraison. L’entreprise optimise ainsi ses délais de commercialisation ainsi que la satisfaction de ses clients. En accélérant la stratégie de transformation digitale de Carlsberg, les solutions d'ABBYY permettent au groupe d'augmenter l'efficacité de ses workflows et d'améliorer la productivité de ses équipes. Désormais, Carlsberg pourra de manière nettement plus rapide approvisionner en bière plus de 150 marchés.
@@ -40,6 +64,12 @@ _Neil Murphy, Directeur channel monde, ABBYY._
 La solution d'Intelligent Process Automation d'ABBYY comprend des technologies de pointe en matière d'Intelligence Document Processing (IDP), de Process Mining et de Task Mining. Parmi ces solutions figure [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/), la première plateforme Low / No Code du marché qui s’appuie sur l'IA pour analyser les documents de manière simple et rapide. Vantage rend les processus digitaux plus fluides via des fonctionnalités qui permettent de lire, analyser et extraire les informations des documents, aidant ainsi les entreprises à mener à bien leur accélération digitale. Ainsi, les entreprises sont à même de construire automatiquement un jumeau digital interactif de leur processus, de les analyser en temps réel pour identifier les points de friction, et de prédire les résultats à venir ce qui leur permet une meilleure prise de décision en matière d'investissements technologiques.   
 Pour plus d'informations, visitez <https://www.abbyy.com/solutions/intelligent-process-automation-ipa/>.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### À propos d’ABBYY
 
 ABBYY est un acteur référent de l’Intelligent Process Automation. L’entreprise ambitionne de réinventer la manière dont ses clients et leurs équipes se développent en leur apportant la connaissance nécessaire au bon fonctionnement des plateformes d’automatisation. Les solutions d’ABBYY transforment les données d’entreprise dans le but de permettre un gain en agilité et en rapidité. ABBYY aide plus de 10 000 clients dans le monde, dont bon nombre des entreprises du Fortune 500, à obtenir un impact positif dans des domaines majeurs tels que l’expérience client, la rentabilité et la compétitivité.
@@ -47,20 +77,20 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Contact presse
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
 <!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Eva-Maria Hufschmitt
 

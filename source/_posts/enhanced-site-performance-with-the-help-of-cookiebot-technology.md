@@ -1,16 +1,28 @@
 ---
 title: Enhanced Site Performance with the Help of Cookiebot Technology
-date: 2024-09-03T22:42:06.425Z
-updated: 2024-09-04T22:42:06.425Z
+date: 2024-09-08T23:36:36.052Z
+updated: 2024-09-09T23:36:36.052Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/08f2c817ace11f52f69518bb589ba81c382ee3c50cca52847005eac86a562eee.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced Site Performance with the Help of Cookiebot Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## New COVID Data: The Real Impact of Bad Business Processes on Employees
 
 ###### Bruce Orcutt
@@ -19,6 +31,12 @@ December 09, 2020
 
 ![Blog Cover Image | ABBYY Blog Post](https://static1.abbyy.com/abbyycommedia/30442/12447_blog-cover-image_848х444_3.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 We’ve heard a lot about the impact of COVID-19 in the workplace – the transition to work-from-home, the emotional toll on employees worried about health and safety, and juggling remote learning for school-aged children. Once we settled into a new-normal routine, another challenge became apparent in the workplace – bad business processes.
 
 You may have experienced it yourself, primarily if you work in an industry that relies heavily on information submitted or corresponded with by customers such as financial services, insurance, transportation, or retail. It was manual, paper-based, and overly complex processes that were the first to break due to the pandemic. Client onboarding, transactions, and SBA Paycheck Protection Program loans in banks, claims management in insurance companies, retail customer inquiries, and warranty claims processing – these critical day-to-day operations experienced substantial delays and became increasingly frustrating for both employees customers.
@@ -29,6 +47,12 @@ What we discovered was not entirely surprising. Seventy-four percent of responde
 
 What _was_ surprising is that another major contributing factor to workplace challenges was processes. While most would agree that business processes are in place to foster efficiency, compliance, and better business outcomes, nearly half of the respondents (48%) blamed poor business processes for making their job more challenging, with one in four wanting to quit their job because of it. Another 36% said processes wasted time and let them down.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### So, in what ways do processes negatively impact employees’ work? And what can be done to address this?
 
 The answers lie in that many organizations develop processes based on how they think they should flow and not how people interact with systems, applications, and handle outlier events. ABBYY solves this problem with its [Process Intelligence](https://tools.techidaily.com/abbyy/products/) solution, which can analyze multiple processes within your business and deliver a digital process model (a “digital twin”) of your business operations and processes.
@@ -61,6 +85,12 @@ Leaders need to understand the day-to-day frustrations employees have with their
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Bruce Orcutt
 
 Senior Vice President of Product Marketing at ABBYY
@@ -70,10 +100,10 @@ Bruce Orcutt is a veteran Product Marketing and Product Management professional 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

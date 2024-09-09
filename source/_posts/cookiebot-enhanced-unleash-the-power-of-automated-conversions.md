@@ -1,12 +1,18 @@
 ---
 title: "Cookiebot-Enhanced: Unleash the Power of Automated Conversions"
-date: 2024-09-03T22:42:05.495Z
-updated: 2024-09-04T22:42:05.495Z
+date: 2024-09-08T23:36:35.124Z
+updated: 2024-09-09T23:36:35.124Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c2d68683c182adeb644872ae9b6efd92813d48ae83b60547183327ca40ae4d54.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enhanced: Unleash the Power of Automated Conversions
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -29,12 +35,30 @@ You may ask how such a seemingly little change in a bank protocol can be turning
 
 Combing through this Mt Everest of documents would require armies of trained legal specialists, attorneys, and regulators at a cost of time and money simply impossible to fathom. Oliver Wyman estimates that fourteen of the world’s top banks will pay $1.2B in remediation, while the costs for the industry as a whole will be multiples of that sum. ‘Much of this cost,’ he estimates ‘is linked to the arduous task of changing the terms of contracts tied to Libor whose duration extend beyond the 2021 deadline.’ i
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## If ever there was a use case for AI with ML
 
 So let’s talk a minute about contract language and how it is holding the banking industry hostage – the trillion dollar question - why consultants are needed and why technology is so important in remediation, and, in particular, why Artificial Intelligence (AI) with Machine Learning (ML) can make its biggest difference as a solution. The answer is simple, even if the solution is sophisticated. LIBOR is embedded in tens of thousands of contracts and agreements by which banks do business with each other, client businesses, and government regulators.
 
 AI with ML has been much hyped in recent years, but it often sounds like a solution looking for a problem. AI, in simple terms, is building computer programs (also called ‘computer vision’) to help them find, interpret, make decisions, and take action on complex language embedded in a corpus of data or documents as expert or highly-trained users would. Far from being a replacement for high-paid skilled labor, such as attorneys, paralegals, analysts and consultants, AI with ML helps them scale to global challenges such as LIBOR phase out.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Named entity recognition & extraction has advanced
 
 A particularly useful application of AI for LIBOR transition is recent advancements in **named entity extraction**, whereby AI-based programs can learn how to recognize legal entities in the corpus of contracts and related documents. An entity is a specific person, place, and/or action that is composed of multiple data fields that can be found anywhere in a contract. Often implied and never in a predictable place, named entities can be particularly vexing for legal experts to find as they plow through mountains of contracts.
@@ -43,6 +67,12 @@ LIBOR rates, clauses, and affected parties are all entities in contracts that ar
 
 ![Why AI Matters in LIBOR Transition](https://static1.abbyy.com/abbyycommedia/28998/11986_picture_848x444.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 With recent advancements in named entity recognition and extraction techniques, such as the ability of data scientists and legal experts to train the software with comprehensive taxonomies and variations (thesaurus, legal codes, aliases), modern AI solutions can be in production in a matter of days or weeks at a fraction of the cost of hiring an army of consultants and legal teams to do the work. LIBOR remediation experts can now help train their ‘virtual legal team’ of AI/ML software and supporting RPA bots to be their army of expert assistants to find, remediate, or flag for additional review all the impacted contracts and legal business entities.
 
 Here is where AI with ML can shine as an expert solution for LIBOR transition. By supplementing and learning how to work as an army of virtual assistants, a specialized named entity recognition solution, powered by modern AL with ML, can reduce the time of locating, understanding, and remediating the sheer volume of LIBOR-related documents from tens of person years to weeks or months of computer time. The payback in risk abatement, time, and money can speak for itself.
@@ -57,13 +87,25 @@ i _Sinead Cruise, Lawrence White, ‘The End of LIBOR: The Biggest Banking Chall
 
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Reginald J. Twigg
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

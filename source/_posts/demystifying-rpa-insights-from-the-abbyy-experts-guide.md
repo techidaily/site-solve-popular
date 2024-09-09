@@ -1,16 +1,40 @@
 ---
 title: "Demystifying RPA: Insights From the ABBYY Expert's Guide"
-date: 2024-09-03T22:42:05.556Z
-updated: 2024-09-04T22:42:05.556Z
+date: 2024-09-08T23:36:35.179Z
+updated: 2024-09-09T23:36:35.179Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f74f161f0523579dd71e4de3d10404ac967ce66d01905429c873797c52e328b9.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Demystifying RPA: Insights From the ABBYY Expert's Guide
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Understanding Robotic Process Automation
 
 ###### Anthony Macciola
@@ -19,8 +43,20 @@ April 19, 2018
 
 ![What is RPA? Understanding Robotic Process Automation | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25283/9134e_blog_understanding-robotic-process-automation_blog_934x400.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 All the rave these days is around artificial intelligence (AI) as the technology continues to shake up the C-suite while gaining a seat at the table. For C-suite executives however, robotic process automation (RPA) is panning out as the most exciting tool in their digital transformation toolbox. With new compliance regulations looming large, organizations need RPA to help unlock the hidden value in both structured and unstructured documents. Highly regulated industries that control large volume of data and continuously strive for improvement stand to gain most from cognitive automation, which brings intelligence to RPA.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is RPA?
 
 RPA is the application of technology that uses software robots to interact and perform specific tasks within existing applications, much like employees do for processing a transaction, manipulating data, triggering responses and communicating with other digital systems. The value of RPA has been driven by its ease of use and the quick ROI that can be achieved. Both business and technical users can build “robots” without the need for costly and time-consuming coding. Like most technologies, there are various levels of capabilities available to meet various needs. With RPA, there are three levels: basic, enhanced and cognitive.
@@ -47,13 +83,19 @@ This blog is an abridged version of an article (The Impact of RPA on GDPR) that 
 
 ![Anthony Macciola ABBYY](https://static4.abbyy.com/abbyycommedia/25717/anthonymacciola-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Anthony Macciola
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

@@ -1,22 +1,40 @@
 ---
 title: ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools
-date: 2024-09-03T22:42:08.690Z
-updated: 2024-09-04T22:42:08.690Z
+date: 2024-09-08T23:36:38.293Z
+updated: 2024-09-09T23:36:38.293Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8b677f86d933a2dc57f7b5d236aa4e6146da7e283f8be4d58f50e47e9bc2eba3.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY unterstützt Non-Profit-Organisation ForHumanity bei der Entwicklung unabhängiger KI-Audit-Systeme
 
 Mai 10, 2024
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Auf dem ABBYY AI Summit wird gezeigt, wie Finanzdienstleister Compliance-Anforderungen erfüllen können
 
 Um Finanzdienstleistern bei der Einhaltung neuer Vorschriften für den Einsatz von künstlicher Intelligenz (KI) zu helfen, unterstützt [ABBYY](https://abbyy.com/de) zukünftig, die gemeinnützige Organisation ForHumanity. ABBYY fungiert als Co-Leiter einer Arbeitsgruppe, die sich mit der Erstellung von Prüfkriterien für den Einsatz von KI und „Algorithmen und Autonomen Systemen“ (AAA) befasst. Auf dem [ABBYY AI Summit](https://tools.techidaily.com/abbyy/products/) am 15\. Mai 2024 im Emirates Stadium in London, Großbritannien, können Teilnehmende mehr darüber erfahren, wie Finanzdienstleister vertrauenswürdige KI mithilfe von Prozessintelligenz operationalisieren können. 
@@ -41,6 +59,12 @@ Auf dem ABBYY AI Summit wird Pery erläutern, wie Unternehmen KI-Compliance-Risi
 
 Weitere Informationen darüber, wie Ihr Unternehmen KI-konform werden kann, finden Sie unter <https://www.abbyy.com/de/solutions/financial-services/kyc/>.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über ABBYY 
 
 ABBYY macht Ihre Informationen mit speziell entwickelter KI nutzbar. Unsere Lösungen kombinieren Innovation und Erfahrung, um Daten aus geschäftskritischen Dokumenten in über 200 Sprachen und in Echtzeit in intelligente, umsetzbare Ergebnisse umzuwandeln. Wir helfen mehr als 10.000 Unternehmen weltweit, darunter vielen der Fortune-500-Unternehmen, dort etwas zu bewegen, wo es am wichtigsten ist: Bei der Customer Experience, der operativen Exzellenz und in puncto Wettbewerbsvorteile. ABBYY ist ein globales Unternehmen mit Hauptsitz in Milpitas, Kalifornien (USA) und Niederlassungen in 12 Ländern. Weitere Informationen finden Sie unter <https://www.abbyy.com/de/> und folgen Sie uns auf [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware) und [Facebook](https://www.facebook.com/ABBYYsoft).
@@ -48,10 +72,10 @@ ABBYY macht Ihre Informationen mit speziell entwickelter KI nutzbar. Unsere Lös
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden. 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Über ForHumanity
 

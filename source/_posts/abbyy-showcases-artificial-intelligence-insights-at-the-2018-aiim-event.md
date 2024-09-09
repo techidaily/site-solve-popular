@@ -1,22 +1,46 @@
 ---
 title: ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event
-date: 2024-09-03T22:42:05.397Z
-updated: 2024-09-04T22:42:05.397Z
+date: 2024-09-08T23:36:35.034Z
+updated: 2024-09-09T23:36:35.034Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ae69a61ee431cd865eb63071b7e7dab33df662eeb4d068d44c620780bca6c82.jpeg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Shares Expertise on Artificial Intelligence during 2018 AIIM Conference
 
 April 03, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Provides practical integration strategies for AI and Accounts Payable Automation_
 
 ABBYY®, a global provider of content intelligence services, will share its expertise during two sessions at the AIIM Conference 2018\. The sessions focus on navigating artificial intelligence (AI)-enabling technologies within their information management strategies and business processes. The annual conference is taking place April 10-16 in San Antonio, Texas where ABBYY executives will also demonstrate solutions that optimize the use of intelligent capture, robotic process automation (RPA) and content within business processes at its booth #41R.
@@ -112,10 +136,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
 <li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-infinix-hot-40-pro-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Infinix Hot 40 Pro? Here is How | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

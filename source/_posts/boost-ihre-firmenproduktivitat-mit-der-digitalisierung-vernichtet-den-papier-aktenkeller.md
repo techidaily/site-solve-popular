@@ -1,12 +1,18 @@
 ---
 title: Boost Ihre Firmenproduktivität Mit Der Digitalisierung - Vernichtet Den Papier-Aktenkeller!
-date: 2024-09-03T22:42:04.619Z
-updated: 2024-09-04T22:42:04.619Z
+date: 2024-09-08T23:36:34.327Z
+updated: 2024-09-09T23:36:34.327Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3e3d11024602b266406d40d71c2e14542454419c94adae0ee9c1f0200c006c8b.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Boost Ihre Firmenproduktivität Mit Der Digitalisierung - Vernichtet Den Papier-Aktenkeller!
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
@@ -17,6 +23,12 @@ Mining, Oil & Gas
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/de/21632.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 ## Großes Unternehmensarchiv schafft Aktenkeller ab und erhöht Produktivität durch Digitalisierungsprojekt
@@ -25,27 +37,33 @@ Mining, Oil & Gas
 
 | ![](https://static1.abbyy.com/abbyycommedia/3302/apache_logo.gif) |                                                  |  |
 | ----------------------------------------------------------------- | ------------------------------------------------ |  |
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | Name                                                              | Apache Corporation                               |  |
 | Hauptsitz                                                         | Houston, TX, USA                                 |  |
 | Internet                                                          | [www.apachecorp.com](http://www.apachecorp.com/) |  |
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Herausforderung
 
 Das Papieraufkommen in den Archivabteilungen des Unternehmens an den Standorten Houston und Calgary nahm überhand. „Die Akten in unseren Archiven stapelten sich bis an die Decke. In Anbetracht der Quadratmeterpreise für diese Lager bestand akuter Bedarf, von Papier auf elektronische Daten umzustellen“, sagt Jim Fields, Datenqualitäts - manager in Apaches Firmenarchiv in Houston, Texas. „Außerdem mussten wir unsere Daten besser sichern, durch elektronische Sicherungskopien.” Im Calgary-Büro von Apache wurde bereits seit 2005 elektronisch archiviert. Dies betraf Hunderte von Dokumententypen, von umfangreichen Betriebsakten bis hin zu technischen Zeichnungen. Die Akten waren eine Mischung aus gescannten Dateien sowie Dokumenten, die die Absender-Unternehmen bereits mittels OCR-Technologie digitalisiert hatten. Die elektronische Aktenablage war das eine Thema. Das andere war die Herausforderung, in diesen Akten Daten suchen und finden zu können. Einfache OCR-Desktop-Produkte kamen gelegentlich im Houston Office zum Einsatz. Nun ging es um das Aufsetzen eines in sich geschlossenen und abgestimmten Systems, um die Archivierung routinemäßig und effizient abzuwickeln. Die Anschaffung eines Servers war der erste Schritt in diese Richtung.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Lösung
 
@@ -54,16 +72,16 @@ Nach gründlicher Prüfung installierten die Archivierungsabteilungen sowohl in 
 Stabilität war ein weiterer Schlüsselfaktor. „Wir sind sehr zufrieden mit der Beständigkeit von ABBYY“, erklärt Laurence Grigg, Archivleiter bei Apache Kanada. „Unser Prozess ist dreiteilig: Umwandlung von Papier in elektronische Daten, Indizierung und Ablage. Die Gewissheit, dass der Vorgang sehr stabil läuft, erleichtert die Fehlersuche. Das System ist so robust, dass wir mit seiner Hilfe alle Herausforderungen meistern konnten, denen wir uns gegenübersahen.” Das Unternehmen schätzte überdies die nahtlose Verzahnung der einzelnen Ablaufschritte. „ABBYY macht den Prozess vollständig transparent“, konstatiert Grigg. „Nicht jeder bei uns kennt vielleicht die dahinter stehende Technologie genau. Alle wissen jedoch, dass sie der zentrale Punkt ist, an dem alle Dokumente zusammenlaufen, um in durchsuchbare PDFs umgewandelt zu werden. Diese Transparenz und der intuitive Bedienkomfort haben die Einführung des neuen Prozesses erheblich erleichtert.“ Diese Einfachheit erstreckte sich auch auf die Installation und Konfiguration. „Ich konnte alles, einschließlich aller Ordner, innerhalb einer 30-minütigen Einweisung einrichten“, sagt Grigg. „Unser Team war sehr schnell operativ.”
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Ergebnisse
 
@@ -71,12 +89,6 @@ Der Einsatz von Recognition Server bei Apache macht einen kompletten Archivraum 
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -86,10 +98,16 @@ Der Einsatz von Recognition Server bei Apache macht einen kompletten Archivraum 
 Teilen 
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 

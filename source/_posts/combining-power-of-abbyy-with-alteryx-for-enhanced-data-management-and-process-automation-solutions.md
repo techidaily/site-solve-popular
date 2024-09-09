@@ -1,7 +1,7 @@
 ---
 title: Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions
-date: 2024-09-03T22:42:06.902Z
-updated: 2024-09-04T22:42:06.902Z
+date: 2024-09-08T23:36:36.509Z
+updated: 2024-09-09T23:36:36.509Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b44ba119c3a3d46ced364c534eba92d8a8e7f5db9a0f3270b71a79e318ccd253.jpg
@@ -9,8 +9,20 @@ thumbnail: https://thmb.techidaily.com/b44ba119c3a3d46ced364c534eba92d8a8e7f5db9
 
 ## Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY | Alteryx 
 
 Bringing the power of Process Intelligence to the Alteryx Analytic Process Automation (APA) Platform™.
@@ -25,6 +37,12 @@ The combination of ABBYY Timeline with the Alteryx Analytic Process Automation (
 
 ![drawer image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-document-archiving/drawer-image.jpg?h=392&iar=0&w=696)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### The combination of ABBYY Timeline with Alteryx environment delivers: 
 
 ##### Business Process Assessment 
@@ -40,10 +58,10 @@ Timeline’s process analytics, query, and filtering capabilities can provide in
 Timeline’s process monitoring provides Alteryx users with a way to monitor current business processes, even those where process steps are performed across multiple back-end systems. Users can quickly specify business conditions that require an Alteryx analytic process to be initiated.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Integration benefits
 
@@ -65,12 +83,24 @@ Monitor the performance of Alteryx APA data-driven processes, process deviations
 
 Automatically generate a foundation for data-driven decisions with quantifiable process metrics, including cost, duration, and volume.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Alteryx APA Platform™ with Process Intelligence
 
 Process-aware APA to optimize end-to-end business process outcomes.
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/all-solutions/connectors/alteryx-desktop-version-4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY connector for Alteryx 
 
 ABBYY connector for Alteryx delivers the integration between ABBYY Timeline platform and Alteryx APA PlatformTM, so that Alteryx data sources and assets can be accessed and leveraged by ABBYY Timeline to deliver insight into the data-driven processes as the result of advanced process analytics.
@@ -80,10 +110,10 @@ ABBYY connector for Alteryx delivers the integration between ABBYY Timeline plat
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/alteryx.png?h=40&iar=0&w=120)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Usage scenarios
 
@@ -103,19 +133,13 @@ Improve the patient experience, reduce waste, increase efficiency, and optimize 
 
 ![overview image 2](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image-2.jpg?h=716&iar=0&w=1272)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Solution brief](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##### Solution brief 
 
@@ -128,19 +152,13 @@ This document explains the key benefits of combining ABBYY Timeline with your Al
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![Infographic](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Video 
 
 #### How to integrate ABBYY Timeline with Alteryx Analytic Platform™ 
@@ -184,16 +202,16 @@ See how the integration of ABBYY Timeline and Alteryx APA™ enables visibility 
 ![Webpage](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##### Webinar 
 
@@ -218,10 +236,10 @@ This document explains the key benefits of combining ABBYY Timeline with your Al
 ![Infographic](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/infographic.svg?h=32&iar=0&w=32)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024333/7443" target="_top" id="2024333">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024333/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##### Video 
 
@@ -233,12 +251,6 @@ See how the integration of ABBYY Timeline and Alteryx APA™ enables visibility 
 
 ![Webpage](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Webinar 
 
 #### Analytic Automation and Process Intelligence – Two Sides of the Same Coin 

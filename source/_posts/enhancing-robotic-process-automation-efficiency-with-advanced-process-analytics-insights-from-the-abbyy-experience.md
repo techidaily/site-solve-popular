@@ -1,22 +1,46 @@
 ---
 title: "Enhancing Robotic Process Automation Efficiency with Advanced Process Analytics: Insights From the ABBYY Experience"
-date: 2024-09-03T22:42:05.723Z
-updated: 2024-09-04T22:42:05.723Z
+date: 2024-09-08T23:36:35.354Z
+updated: 2024-09-09T23:36:35.354Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/064bb5c43db4056e998dcb4f406cb778296c7343d435216b9b3443b144736cca.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhancing Robotic Process Automation Efficiency with Advanced Process Analytics: Insights From the ABBYY Experience
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Process Intelligence Bolsters RPA Performance
 
 September 30, 2020
 
 ![Process Intelligence Bolsters RPA Performance Cover | ABBYY Blog Post](https://static3.abbyy.com/abbyycommedia/29657/process-intelligence-bolsters-rpa-performance-cover.png) 
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 “After you deploy a bot, the reality is you want to know if it’s doing what you thought it would. That’s why we think end-users should be focusing on Process Intelligence.” In an exclusive interview with RPA Today, **Scott Opitz, Chief Marketing Officer at ABBYY**, reveals how Process Intelligence is helping drive success in Robotic Process Automation (RPA) initiatives and paving the way for integrated, [end-to-end enterprise automation](https://tools.techidaily.com/abbyy/products/).
 
 In discussing the relationship between task mining and process mining, Opitz notes that “the reality is that we are only at the very beginning of anything that even begins to look like enterprise-level process automation... The analysis of the desktop is, ‘what are the tedious steps in a small portion of a process?’ **The analysis of the overall process is where the big opportunities are to improve your overall operation**."
@@ -27,6 +51,18 @@ Read the full interview to **uncover what truly sets Process Intelligence apart 
 
 [Process Mining](https://tools.techidaily.com/abbyy/products/) [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") 
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -149,10 +185,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024338/7443" target="_top" id="2024338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024338" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024338/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

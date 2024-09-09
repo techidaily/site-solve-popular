@@ -1,22 +1,46 @@
 ---
 title: "Peak Matrix™ 2019: ABBYY Stands Out in Everest Group's Rankings of Leading IDP Tools and Applications"
-date: 2024-09-03T22:42:06.700Z
-updated: 2024-09-04T22:42:06.700Z
+date: 2024-09-08T23:36:36.318Z
+updated: 2024-09-09T23:36:36.318Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/20681dc3787d86713afd2395e0942d0819f5bca12434956d1fe5521df7d6718e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Peak Matrix™ 2019: ABBYY Stands Out in Everest Group's Rankings of Leading IDP Tools and Applications
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Everest Group Names ABBYY a Leader in its Intelligent Document Processing Products PEAK Matrix™ Assessment 2019
 
 April 04, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, a global leader in Content IQ technologies and solutions, has been recognized by Everest Group, a leading consulting and research firm, as a Leader in its Intelligent Document Processing (IDP) products PEAK Matrix™ Assessment 2019\. ABBYY is positioned in the top grouping of the comparative assessment among 16 vendors due to its impact in the market and its vision and capabilities to deliver solutions successfully.
 
 Everest Group defines Intelligent Document Processing (IDP) as any software product or solution that captures data from documents (e.g., email, text, pdf, and scanned documents), categorizes and extracts relevant data for further processing using AI technologies such as computer vision, OCR, Natural Language Processing (NLP), and machine/deep learning. These solutions are typically non-invasive and can be integrated with internal applications, systems, and other automation platforms.
@@ -130,10 +154,3 @@ Connect with us
 <li><a href="https://sim-unlock.techidaily.com/top-10-sony-xperia-10-v-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Sony Xperia 10 V Android SIM Unlock APK</u></a></li>
 <li><a href="https://win-solutions.techidaily.com/ultimate-hack-fixing-crashes-for-a-smooth-manor-lords-gaming-experience/"><u>Ultimate Hack: Fixing Crashes for a Smooth Manor Lords Gaming Experience</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

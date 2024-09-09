@@ -1,16 +1,34 @@
 ---
 title: "「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ"
-date: 2024-09-03T22:42:08.798Z
-updated: 2024-09-04T22:42:08.798Z
+date: 2024-09-08T23:36:38.400Z
+updated: 2024-09-09T23:36:38.400Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1aaa1948c8657f1c3ade15a5850d4145b4cb86fea7e0bf45a6a316b50b831479.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ
 
 [全てのブログ](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 日本語手書き文字の読み取り ～Cogent Labs AI-OCRサービス「Tegaki」とFlexiCaptureの連携～
 
 ###### ABBYY Japan エンジニアリングチーム
@@ -19,12 +37,30 @@ thumbnail: https://thmb.techidaily.com/1aaa1948c8657f1c3ade15a5850d4145b4cb86fea
 
 ![](https://static2.abbyy.com/abbyycommedia/33567/reimagine-conference-post-1-new.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 昨今、日本でもDXが徐々に進み始め、紙文書の処理はAI-OCRを活用し、データを抽出し、自動処理する流れになってきております。紙文書にはプリントアウトされた活字だけでなく、手書きを含む伝票、請求書、注文書等もございます。帳票処理ソリューションABBYY FlexiCaptureでは、プリントアウトされた活字、手書きの英数字の読み取りを対象としており、日本語手書き文字の読み取りが課題となります。そのため、これまでも現場では、この課題解決のためにCogent Labs社Tegakiとの連携はおこなわれてきました。
 
 この度、ABBYYは、日本語の手書き文字の読み取りをおこないたいというお客様の強いご要望にお応えすべく、FlexiCapture上でのCogent Labs 社 AI-OCR サービス Tegaki の使用方法（FlexiCapture Tegaki APIコネクタ）を公開しました。これによって、日本語の手書き文字の読み取りもFlexiCaptureを通して簡単におこなっていただくことが可能となりました。つまり、FlexiCaptureの高度な領域検出とCogent Labs社 Tegakiの正確な日本語手書き文字の読み取りの組み合わせが実現可能です。
 
 ![FlexiCapture and Cognet Labs Tegaki](https://static1.abbyy.com/abbyycommedia/32336/pic-1.png)
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 連携の方法、詳細につきましては、ABBYY Help Center内の[記事](https://tools.techidaily.com/abbyy/products/)（アカウント作成、ログインが必要です）をご確認下さい。
 
 これまでに、どのような場面でCogent Labs社 Tegakiとの連携が行われてきたかを列挙致します。
@@ -44,8 +80,26 @@ thumbnail: https://thmb.techidaily.com/1aaa1948c8657f1c3ade15a5850d4145b4cb86fea
 
 ![ABBYY logo circle](https://static5.abbyy.com/abbyycommedia/29971/abbyy-logo-2021-blog-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY Japan エンジニアリングチーム
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -161,10 +215,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

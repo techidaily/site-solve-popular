@@ -1,12 +1,18 @@
 ---
 title: "ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska"
-date: 2024-09-03T22:42:08.250Z
-updated: 2024-09-04T22:42:08.250Z
+date: 2024-09-08T23:36:37.853Z
+updated: 2024-09-09T23:36:37.853Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3f74865abe3cde83f5178213b8f2028e6688a23ca37959ec467d0c79369ad79b.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -23,6 +29,18 @@ But the sport isn’t her only passion—she also loves her job at ABBYY and has
 
 **[Follow us on Instagram and get to know the people at ABBYY](https://www.instagram.com/abbyyglobal/ "Instagram")**
 
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What attracted you to ABBYY, and what is your role?
 
 Three things attracted me to ABBYY: people, culture, technologies. ABBYY is an amazing combination of great leadership and teamwork. It means a lot to me personally, because I am a part of a team where we live by the motto “one for all and all for one”. Also, ABBYY’s advanced [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) technologies amaze me every day.
@@ -33,24 +51,12 @@ I am Director of Customer Success North America and am based 30 miles from Bosto
 
 I’ve been with ABBYY since 2004, so basically, I ‘grew up’ professionally here. I started at an ABBYY office in Eastern Europe and later, when my family moved to the USA, I continued my career with the company. In a previous position, as a Technical Product Marketing Manager for the software development kit (SDK) team, I was responsible for technical product marketing activities for ABBYY FineReader. Prior to that, I was a Technology Licensing Manager.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030375/7443" target="_top" id="2030375">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030375/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Your top advice to someone working in your field?
 
 * Treat your customer as you would like to be treated.
 * Listen and try to understand what problem your customer is trying to solve, and proactively provide solutions and answers.
 * Enjoy what you are doing! We spend a huge part of our life at work, so if we do not enjoy what we are doing, it’s a straight path to feeling miserable.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Do you have any hobbies or fun interests?
 
 I treasure every minute I spend with my family. My son’s climbing competitions and soccer games were a very important part of my life before he left for college. My daughter, who is now a high school junior, keeps us entertained with her dance competitions.
@@ -62,34 +68,28 @@ As a family we hiked to the top of the two tallest peaks in the White Mountains�
 ![two children and two adults family at Mt. Washington summit](https://static1.abbyy.com/abbyycommedia/34361/larysalototska-mount.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 My two other hobbies are more relaxing. I absolutely love egg painting using old beeswax and color dyeing techniques. It’s an art called "pysanka" in Ukraine. I also love embroidery, mainly cross stitching. I decorate traditional Ukrainian clothes and make embroidery pictures.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### If you had one wish come true, what would it be?
 
 I lost my mom to a very aggressive and untreatable cancer. If I had one wish, it would be to create a magic pill to cure any kind of cancer.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### What’s your pet peeve?
 
@@ -104,10 +104,10 @@ It also bothers me when I hear anyone say, “I do not know how to do this”. W
 [Meet Our Team](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

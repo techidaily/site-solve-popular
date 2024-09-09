@@ -1,7 +1,7 @@
 ---
 title: Cookiebot-Enabled User Experience Enhancement
-date: 2024-09-03T22:42:08.329Z
-updated: 2024-09-04T22:42:08.329Z
+date: 2024-09-08T23:36:37.936Z
+updated: 2024-09-09T23:36:37.936Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d375bcd96d435c14a3e9a48edfb86d3a2995018c383247bac69b40f31de6e4df.jpg
@@ -13,22 +13,52 @@ thumbnail: https://thmb.techidaily.com/d375bcd96d435c14a3e9a48edfb86d3a2995018c3
 
 Oil & Gas | Mobile Capture | Customer Experience Management
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Butagaz Chooses ABBYY to Help Consumers Switch Energy Supplier
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/en/120047.png?h=40&iar=0&w=120)
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Butagaz Chooses ABBYY to Help Consumers Switch Energy Supplier
 
 Other | Mobile Capture 
 
 ![customer story butagaz](https://static1.abbyy.com/abbyycommedia/25845/cs_butagaz_556x303.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Customer Overview
 
 ![Butagaz Group](https://static4.abbyy.com/abbyycommedia/28788/butagaz-v2.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | Name         | Butagaz Group                             |
 | ------------ | ----------------------------------------- |
 | Headquarters | Levallois-Perret, France                  |
@@ -84,22 +114,28 @@ Reduction in data processing time; consumers can now switch supplier in less tha
 
 [![Learn more about ABBYY Content Intelligence](https://static2.abbyy.com/abbyycommedia/24337/mailroom_automation_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [Content Intelligence](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version customer story Butagaz](https://static4.abbyy.com/abbyycommedia/25846/cs_butagaz_360x162.jpg)](https://static2.abbyy.com/abbyycommedia/28756/case-study-butagaz-en-11866.pdf "PDF Version") [PDF Version](https://static2.abbyy.com/abbyycommedia/28756/case-study-butagaz-en-11866.pdf "PDF Version") 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Read the document](https://static2.abbyy.com/abbyycommedia/28756/case-study-butagaz-en-11866.pdf "PDF Version") 
 
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

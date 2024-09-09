@@ -1,22 +1,46 @@
 ---
 title: Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference
-date: 2024-09-03T22:42:06.044Z
-updated: 2024-09-04T22:42:06.044Z
+date: 2024-09-08T23:36:35.671Z
+updated: 2024-09-09T23:36:35.671Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea7246067d0e64ce56f240c9081.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY to showcase powerful AI for documents at AI Summit London
 
 June 11, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY®, a global provider of content intelligent solutions and services, will join the world’s foremost innovators at The AI Summit London on 13th and 14th June. ABBYY, a Platinum Sponsor of the conference, will showcase its expertise in Artificial Intelligence (AI), innovations in AI-powered content intelligence and digital transformation alongside Microsoft, Facebook, Amazon, Google, Accenture and IBM, to help participants gain a practical understanding of AI, its use cases and impact on content-centric business processes
 
 During the keynote at 2:25pm on the 14th June, ABBYY Chief Innovation Officer Anthony Macciola will address the challenge of getting valuable insights from unstructured content to gain a competitive edge. He will discuss trends in Robotic Process Automation and talk about how content intelligence can make robots smarter. “AI improves the way enterprises and organisations understand their customers, their desires, and goals. Content Intelligence enables real-time understanding of content and communications, providing faster, more convenient customer service and efficient processing of information. Resolving customer service issues before they arise could significantly lower customer abandonment rates,” commented Anthony Macciola, Chief Innovation Officer at ABBYY Global.
@@ -112,16 +136,3 @@ Connect with us
 <li><a href="https://tech-haven.techidaily.com/unlocking-myths-why-cracking-todays-advanced-conversational-ais-like-gpt-3-remains-a-challenge/"><u>Unlocking Myths: Why Cracking Today's Advanced Conversational AIs Like GPT-3 Remains a Challenge</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/iuocreodoplusodgplusoctplusodpeodleodreodvoacgombqewmluaipuevptog44ki44ow44ot44o86kqn5a6a44ob44kn44od44kv44oq44k544oi44gn6kal44gk44gr44kl5paw44gx44ge5lql5qw25/"><u>キャッシュフロー最適化戦略: アブビー認定チェックリストで見つける新しい事業機会</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

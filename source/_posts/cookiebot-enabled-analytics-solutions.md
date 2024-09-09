@@ -1,22 +1,40 @@
 ---
 title: Cookiebot-Enabled Analytics Solutions
-date: 2024-09-03T22:42:06.954Z
-updated: 2024-09-04T22:42:06.954Z
+date: 2024-09-08T23:36:36.559Z
+updated: 2024-09-09T23:36:36.559Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/df697f662e95c563b4597a4012deaa405b51eade887d9ca113bdc2705c649d5d.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled Analytics Solutions
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY® Group Appoints New CEO
 
 January 19, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY Group has announced the appointment of [Ulf Persson](https://tools.techidaily.com/abbyy/products/) \- its current Chairman of the Board - as the Group’s new CEO. Ulf Persson will succeed Sergey Andreev, who has been leading the company for the past 17 years.
 
 ABBYY Group has also announced other changes in its top management. ABBYY Founder David Yang will return as Chairman of the Board, a position he previously held. ABBYY Group former Senior VP and CFO Vadim Tereshchenko’s role has been considerably expanded. He will now hold the positions of COO and CFO as well as that of Deputy CEO.
@@ -109,10 +127,3 @@ Connect with us
 <li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

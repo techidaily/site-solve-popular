@@ -1,7 +1,7 @@
 ---
 title: Comment Un Logiciel D'ABBYY Optimise Le Travail Des Cabinets D’avocats Londoniens Pour La Gestion Efficace De Procédures Essentielles
-date: 2024-09-03T22:42:08.304Z
-updated: 2024-09-04T22:42:08.304Z
+date: 2024-09-08T23:36:37.907Z
+updated: 2024-09-09T23:36:37.907Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/be822f3b46b270ef9926d48a1de9e3c012d7d2f35db231a8565a98612ff678d9.jpg
@@ -13,18 +13,42 @@ thumbnail: https://thmb.techidaily.com/be822f3b46b270ef9926d48a1de9e3c012d7d2f35
 
 Legal | Document Processing | Digital Archiving
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY aide un grand cabinet d'avocats londonien à harmoniser un processus crucial pour l'exploitation
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/fr/70584.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY aide un grand cabinet d'avocats londonien à harmoniser un processus crucial pour l'exploitation
 
 Juridique | Traitement de documents 
 
 ![](https://static1.abbyy.com/abbyycommedia/14328/2-eversheds_fr_e.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Aperçu du client
 
 ![Eversheds](https://static2.abbyy.com/abbyycommedia/14442/eversheds-logo.jpg) 
@@ -79,10 +103,22 @@ En accélérant considérablement un processus crucial à l'exploitation, le log
 
 [![12-legal](https://static2.abbyy.com/abbyycommedia/14362/12-legal.jpg)](https://tools.techidaily.com/abbyy/products/) [Secteur juridique](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [En savoir plus](https://tools.techidaily.com/abbyy/products/) 
 
 [![2a-eversheds_fr_e_small](https://static4.abbyy.com/abbyycommedia/14327/2a-eversheds_fr_e_small.jpg)](https://static4.abbyy.com/abbyycommedia/10538/cas-client-eversheds-fr.pdf "version PDF") [version PDF](https://static4.abbyy.com/abbyycommedia/10538/cas-client-eversheds-fr.pdf "version PDF") 
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Accéder au document](https://static4.abbyy.com/abbyycommedia/10538/cas-client-eversheds-fr.pdf "version PDF") 
 
 ###### Like, share or repost
@@ -93,18 +129,6 @@ Partager  True ?  : ""
 
 [Tous les sièges d’ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

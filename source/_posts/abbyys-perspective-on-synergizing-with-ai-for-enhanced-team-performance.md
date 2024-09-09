@@ -1,7 +1,7 @@
 ---
 title: ABBYY's Perspective on Synergizing with AI for Enhanced Team Performance
-date: 2024-09-03T22:42:08.766Z
-updated: 2024-09-04T22:42:08.766Z
+date: 2024-09-08T23:36:38.366Z
+updated: 2024-09-09T23:36:38.366Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/965071db1f866296dbd6b7c6cdfb4395621995dd58483ee49e8397ad83cab217.jpg
@@ -24,6 +24,12 @@ It’s precise, it’s fast, and it’s getting the job done. Artificial intelli
 
 ![](https://static1.abbyy.com/abbyycommedia/37805/infographic-economic-challenges-survey-en.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The global economy continues to pose new challenges for enterprises and has a corresponding effect on their willingness to invest. However, technological innovations in intelligent automation (IA), particularly in the area of AI, are making their way as a priority. And there are good reasons for this: 60 percent of our survey respondents stated that intelligent automation has relieved employees of many routine tasks so they can devote more time to customer and sales-oriented activities, supporting enterprise growth-focused needs. Respondents also reported that employee satisfaction has increased with intelligent automation (62 percent), and innovation by employees is more encouraged (59 percent).
 
 As enterprise teams are finding that AI delivers more measured advantages than threats, more than half of our respondents have noticed greater process efficiency with their use.
@@ -32,6 +38,12 @@ Also, employee productivity has increased (48 percent), and work-life balance ha
 
 These are all important factors that impact employee loyalty, retention, productivity, and growth in the enterprise…and furthermore, an important aspect in times when phenomena such as "quiet quitting" after challenging pandemic years demonstrate that satisfaction and appreciation at work are becoming increasingly important for the enterprise’s future growth and team success.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Impact of the Economy on AI Priorities
 
 STATE OF INTELLIGENT AUTOMATION REPORT
@@ -39,10 +51,10 @@ STATE OF INTELLIGENT AUTOMATION REPORT
 [Download report](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Establishing artificial intelligence as a team player in the enterprise
 
@@ -59,16 +71,10 @@ You can download the full ABBYY State of Intelligent Automation Report [here](ht
 ![Gabrielle Lukianchuk 110X110 (1)](https://static1.abbyy.com/abbyycommedia/37002/gabrielle-lukianchuk_110x110-1.png)
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="125" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Gabrielle Lukianchuk
 
@@ -79,10 +85,10 @@ Gabrielle Lukianchuk is the Chief Marketing Officer at ABBYY where she oversees 
 Connect with Gabrielle on [LinkedIn](https://www.linkedin.com/in/gabriellelukianchuk/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Additional Insights:
 
@@ -91,16 +97,10 @@ Connect with Gabrielle on [LinkedIn](https://www.linkedin.com/in/gabriellelukian
 [![Making the Business Case for Investing in AI and Intelligent Automation](https://static2.abbyy.com/abbyycommedia/38051/ds-191_making-the-business-case_848x444.jpg) **Making the Business Case for Investing in AI and Intelligent Automation** Read more](https://www.abbyy.com/intelligent-enterprise/making-the-business-case-for-investing-in-ai-and-intelligent-automation/) [![Customer Point of View: Highs and Lows of the Intelligent Automation Journey](https://static3.abbyy.com/abbyycommedia/38066/ds-191_customer-point-of-view_tn_848x444-1.jpg) **Customer Point of View: Highs and Lows of the Intelligent Automation Journey** Read more](https://tools.techidaily.com/abbyy/products/) [![Intelligent Automation in Your Game-Changing Arsenal](https://static3.abbyy.com/abbyycommedia/38056/ds-191_intelligent-automation_848x444.jpg) **Intelligent Automation in Your Game-Changing Arsenal** Read more](https://www.abbyy.com/intelligent-enterprise/intelligent-automation-in-your-game-changing-arsenal/) [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg) **Are Large Language Models (LLMs) the Future?** Read more](https://tools.techidaily.com/abbyy/products/) [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg) **The Gap Is Closing Between AI Innovation and Time-to-Value** Read more](https://tools.techidaily.com/abbyy/products/) [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg) **How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning** Read more](https://tools.techidaily.com/abbyy/products/) [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg) **How Process Mining Improves Business Processes and Prevents Cyber Threats** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Process Mining Reveals $6 Million in Savings](https://static2.abbyy.com/abbyycommedia/37509/leading-financial-institution-saves-millions_848x444.jpg) **Customer Point of View: Process Mining Reveals $6 Million in Savings** Read more](https://tools.techidaily.com/abbyy/products/) [![Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific](https://static4.abbyy.com/abbyycommedia/37508/idp-trends-and-outcomes-report_848x444.jpg) **Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific** Read more](https://tools.techidaily.com/abbyy/products/) [![The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing](https://static1.abbyy.com/abbyycommedia/37510/the-second-tax-revolution_848x444.jpg) **The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="150" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Subscribe for updates
 

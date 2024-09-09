@@ -1,7 +1,7 @@
 ---
 title: "Geschwindige Zollabwicklung: Warentransport Von UK Nach EU Beschleunigt Auf Unter 5 Minuten"
-date: 2024-09-03T22:42:06.484Z
-updated: 2024-09-04T22:42:06.484Z
+date: 2024-09-08T23:36:36.104Z
+updated: 2024-09-09T23:36:36.104Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/34983eeb01d46447a2aa80e2d1b0eee6f876f53497144fdec843045cc8106d3c.jpg
@@ -13,10 +13,22 @@ thumbnail: https://thmb.techidaily.com/34983eeb01d46447a2aa80e2d1b0eee6f876f5349
 
 CASE STUDY | TRANSPORT UND LOGISTIK
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Zollabfertigung in 5 Minuten zwischen Großbritannien und der EU beschleunigt die Lieferung von Waren
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/customer-stories/white-logos/customstrack_logo_2024_white.png?h=32&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Der durch den BREXIT verursachte Verwaltungsaufwand auf beiden Seiten der neu entstandenen Grenze zwischen Großbritannien und der EU bereitet Herstellern Kopfzerbrechen. CustomsTrack ist ein Start-up-Unternehmen, das künstliche Intelligenz einsetzt, um komplexe Import- und Exportprozesse zu vereinfachen. Es hatte festgestellt, dass der Prozess der Einreichung von Dokumenten in den nationalen Zollsystemen durch intelligente Automatisierung erheblich vereinfacht und beschleunigt werden kann.
 
 In Anbetracht des rechtlichen Charakters von Zollanmeldungen ist Genauigkeit hier unerlässlich. Mit ABBYY IDP erreichen wir eine Genauigkeit von 100 % und eine durchgängige Verarbeitung von 99 %.
@@ -30,16 +42,10 @@ Joe Corcoran, Lead Consultant CustomsTrack
 * Verzögerungen beim Zoll aufgrund fehlender oder falscher Informationen sind ein Problem, insbesondere für Hersteller von schnell drehenden Konsumgütern.
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Lösung
 
@@ -47,10 +53,16 @@ Joe Corcoran, Lead Consultant CustomsTrack
 * Mit der CustomsTrack-Lösung können international tätige Unternehmen Zollvorgänge selbst handhaben und auf kostenintensive und komplexe Zollabfertigungsdienste verzichten.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Ergebnis
 
@@ -67,24 +79,12 @@ Joe Corcoran, Lead Consultant CustomsTrack
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/flexicapture/fc_1.jpg?h=392&iar=0&w=696)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### ABBYY Solutions for Accounts Payable Automation
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/)
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image.jpg?h=800&iar=0&w=1392)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### PDF Version
 
 [Dokument lesen](https://content.abbyy.com/-/media/Project/Abbyy/Abbyy/Insights/Customer-Stories/PDFs/CustomsTrack-case-study-intelligent-document-processing-de.pdf)
@@ -92,16 +92,16 @@ Joe Corcoran, Lead Consultant CustomsTrack
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/laptop-mug.jpg?h=836&iar=0&w=1486)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Ready to speak with an expert?
 
