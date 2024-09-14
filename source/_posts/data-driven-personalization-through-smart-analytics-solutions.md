@@ -1,7 +1,7 @@
 ---
 title: Data-Driven Personalization Through Smart Analytics Solutions
-date: 2024-09-08T23:36:35.160Z
-updated: 2024-09-09T23:36:35.160Z
+date: 2024-09-12T18:43:19.585Z
+updated: 2024-09-14T22:37:50.674Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/25bf753c78130a921149c781a28200c1963f284bc6d075e275272bdd4200ee96.jpg
@@ -19,20 +19,8 @@ English
 
 ![18 Reggietwigg 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![18 Reggietwigg 198X198](https://static4.abbyy.com/abbyycommedia/25486/18-reggietwigg-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Reginald J. Twigg, Ph.D.
 
 Director of Product Marketing, Digital Enterprise, **ABBYY**
@@ -41,22 +29,17 @@ Director of Product Marketing, Digital Enterprise, **ABBYY**
 
 ![13 Jacobmorgan 198X198](https://static4.abbyy.com/abbyycommedia/25477/13-jacobmorgan-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Jacob Morgan
 
 Senior Analyst, **Forrester**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Overview
 
 The challenges that banks are facing are staggering— overwhelming exceptions in lending, unprecedented threats to KYC/AML, and LIBOR compliance. The tidal wave of COVID-related loan and forbearance applications continues to rise, while the strain of supporting a remote workforce is pushing processes and technology into crisis. Digital transformation is more necessary than ever…and yet investments must be prioritized strategically.
@@ -70,40 +53,30 @@ The challenges that banks are facing are staggering— overwhelming exceptions i
 Watch now to learn how to overcome today’s crisis and prepare for tomorrow.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Watch now
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Thank you, enjoy your webinar!
 
 [![On Demand ABBYY Forrester Webinar US](https://static1.abbyy.com/abbyycommedia/25739/on-demand-abbyy-forrester-webinar.jpg)](https://www.youtube.com/watch?v=Vp78wy6zEgA) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
@@ -162,8 +135,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -173,60 +144,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-simplewin10-screen-grab-utility/"><u>[New] 2024 Approved  SimpleWin10 Screen Grab Utility</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-2024-approved-the-ultimate-strategy-for-role-assignment-on-discord/"><u>[New] 2024 Approved  The Ultimate Strategy for Role Assignment on Discord</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-gain-free-photo-footage-via-essential-4-youtube-picks/"><u>[New] Gain Free Photo Footage via Essential 4 YouTube Picks</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-mastering-obs-the-ultimate-tutorial-for-live-broadcasts/"><u>[New] In 2024, Mastering OBS  The Ultimate Tutorial for Live Broadcasts</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-skyrocketing-subscribers-free-techniques-for-youtube-success/"><u>[New] In 2024, Skyrocketing Subscribers  Free Techniques for YouTube Success</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-saving-your-focus-a-guide-to-quieting-naysayers-on-google-video-calls-for-2024/"><u>[New] Saving Your Focus  A Guide to Quieting Naysayers on Google Video Calls for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-scaling-down-macos-from-sierra-to-el-capitan-os/"><u>[New] Scaling Down MacOS  From Sierra To El Capitan OS</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-future-is-now-how-vida-transforms-video-editing/"><u>[New] The Future Is Now  How Vida Transforms Video Editing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-essential-techniques-for-funimate-video-extraction/"><u>[Updated] 2024 Approved  Essential Techniques for Funimate Video Extraction</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-snipers-manual-to-capturing-live-online-music/"><u>[Updated] The Sniper’s Manual to Capturing Live Online Music</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-fundamental-steps-for-transforming-pins-into-audios/"><u>2024 Approved  Fundamental Steps for Transforming Pins Into Audios</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-survivals-thrill-top-picks-for-heart-pounding-zombie-games/"><u>2024 Approved  Survival's Thrill  Top Picks for Heart-Pounding Zombie Games</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-realme-c51-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Realme C51 | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-and-blue-prism/"><u>ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-facilitates-consistent-document-management-in-rochlings-sap-system-for-improved-efficiency-latest-industry-news/"><u>ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-showcases-artificial-intelligence-insights-at-the-2018-aiim-event/"><u>ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-auditing-initiatives-boosted-by-ab-inbevs-backing-of-forhumanity/"><u>AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity</u></a></li>
-<li><a href="https://howto.techidaily.com/android-screen-stuck-general-realme-narzo-60-5g-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Realme Narzo 60 5G Partly Screen Unresponsive | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/audiophiles-companion-best-cd-players-and-changers-24/"><u>Audiophile’s Companion: Best CD Players & Changers '24</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-traffic-with-cookiebot-technology-smart-analytics-tools/"><u>Boosting Web Traffic with Cookiebot Technology - Smart Analytics Tools!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-battre-en-regle-les-plateformes-financieres-numeriques-natives-decouvrez-notre-verification-complete-par-abbyy/"><u>Comment Battre en Règle Les Plateformes Financières Numériques Natives : Découvrez Notre Vérification Complète Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-for-seamless-customer-experience-tracking/"><u>Cookiebot-Driven Insights for Seamless Customer Experience Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-leading-ai-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Leading AI Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-unleash-the-power-of-automated-conversions/"><u>Cookiebot-Enhanced: Unleash the Power of Automated Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-unleashing-advanced-tracking-solutions-for-your-websites-success/"><u>Cookiebot: Unleashing Advanced Tracking Solutions for Your Website's Success</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/cutting-through-the-facade-real-vs-pretend-facebook-followers-for-2024/"><u>Cutting Through the Facade  Real vs Pretend Facebook Followers for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/demystifying-rpa-insights-from-the-abbyy-experts-guide/"><u>Demystifying RPA: Insights From the ABBYY Expert's Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/desamorcez-votre-gestion-des-credits-immobiliers-grace-a-levolutif-et-performant-service-de-dematerialisation-la-caisse-depargne-bretagne-pays-de-loire/"><u>Désamorcez Votre Gestion Des Crédits Immobiliers Grâce À L'évolutif Et Performant Service De Dématérialisation La Caisse D’Epargne Bretagne Pays De Loire</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-your-site-performance-using-cookiebot-technology/"><u>Elevate Your Site Performance Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/empowering-website-insights-with-cookiebot-advanced-tracking-solutions-for-improved-seo/"><u>Empowering Website Insights with Cookiebot: Advanced Tracking Solutions for Improved SEO</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-site-performance-with-our-cookiebot-integrated-tools/"><u>Enhance Site Performance with Our Cookiebot Integrated Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-website-traffic-analysis-with-our-advanced-cookiebot-technology-solutions/"><u>Enhance Website Traffic Analysis with Our Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-by-cookiebot-solutions/"><u>Enhanced by Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-multifunctional-toshiba-printer-with-built-in-abbyy-ocr-technology/"><u>Enhanced Multifunctional Toshiba Printer with Built-In ABBYY OCR Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-accounting-efficiency-with-advanced-automated-solutions/"><u>Enhancing Accounting Efficiency with Advanced Automated Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-financial-stability-with-ai-driven-bank-compliance-measures-and-resilience-tactics/"><u>Enhancing Financial Stability with AI-Driven Bank Compliance Measures and Resilience Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-robotic-process-automation-efficiency-with-advanced-process-analytics-insights-from-the-abbyy-experience/"><u>Enhancing Robotic Process Automation Efficiency with Advanced Process Analytics: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-a-look-into-the-efficiency-of-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Data Collection: A Look Into the Efficiency of Cookiebot Solutions</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/for-fresh-filmmakers-an-introduction-to-aspect-ratios-and-resolution-for-2024/"><u>For Fresh Filmmakers  An Introduction to Aspect Ratios & Resolution for 2024</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>How to Check Distance and Radius on Google Maps For your Apple iPhone 14 Plus | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-pause-life360-location-sharing-for-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Xiaomi Redmi K70 | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-restore-night-light-functionality-on-your-pc-with-windows-10-or-11/"><u>How to Restore Night Light Functionality on Your PC with Windows 10 or 11</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/master-your-star-wars-movie-marathon-the-perfect-viewing-order-on-disneyplus/"><u>Master Your 'Star Wars' Movie Marathon: The Perfect Viewing Order on Disney+</u></a></li>
-<li><a href="https://howto.techidaily.com/oppo-reno-11-pro-5g-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo Reno 11 Pro 5G Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-microsoft-sharepoint-workflows-with-cutting-edge-ocr-capabilities-from-abbyy-experts/"><u>Optimizing Microsoft SharePoint Workflows with Cutting-Edge OCR Capabilities From ABBYY Experts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-web-experiences-with-advanced-cookiebot-technology/"><u>Optimizing Web Experiences with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/peak-matrix-2019-abbyy-stands-out-in-everest-groups-rankings-of-leading-idp-tools-and-applications/"><u>Peak Matrix™ 2019: ABBYY Stands Out in Everest Group's Rankings of Leading IDP Tools and Applications</u></a></li>
-<li><a href="https://change-location.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-musical-embellishments-for-digital-images/"><u>[New] In 2024, Musical Embellishments for Digital Images</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-instagram-concealing-tags-efficiently-for-2024/"><u>[New] Mastering Instagram Concealing Tags Efficiently for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-decoding-faux-support-a-guide-for-savvy-social-network-users/"><u>2024 Approved Decoding Faux Support A Guide for Savvy Social Network Users</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-the-best-translator-to-translate-videos-online/"><u>2024 Approved The Best Translator to Translate Videos Online</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Vivo S18e? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/is-chatgpt-compromising-your-privacy/"><u>Is ChatGPT Compromising Your Privacy?</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/protect-your-data-understanding-the-abbyy-cloud-agreement-for-gdpr-adherence/"><u>Protect Your Data: Understanding the ABBYY Cloud Agreement for GDPR Adherence</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/the-future-of-digital-transformation-insights-from-the-2018-abbyy-technology-summit-on-content-intelligence/"><u>The Future of Digital Transformation: Insights From the 2018 ABBYY Technology Summit on Content Intelligence</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-to-product-revelation-best-15-unboxing-channels/"><u>The Ultimate Guide to Product Revelation  Best 15 Unboxing Channels</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/top-6-must-read-digital-intelligence-insights-of-2020-featured-on-the-abbyy-blog/"><u>Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-tips-resolve-access-denied-error-in-printer-driver-setup/"><u>Troubleshooting Tips: Resolve 'Access Denied' Error in Printer Driver Setup</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-realme-11x-5g-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Realme 11X 5G Screen | Dr.fone</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/universitat-zurich-optimiert-prufungen-mit-abbyy-flexicapture-korrektursystem/"><u>Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unlock-deeper-understanding-with-abbyys-guide-on-elevated-bi-and-process-mining-tactics-ebook/"><u>Unlock Deeper Understanding with ABBYY's Guide on Elevated BI & Process Mining Tactics [eBook]</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-how-to-stream-local-video-to-chromecast-on-windowsmacandroidios/"><u>Updated 2024 Approved How to Stream Local Video to Chromecast on Windows/Mac/Android/iOS</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unseen-chronicles-5-expertly-crafted-viewer-tools-for-2024/"><u>Unseen Chronicles 5 Expertly Crafted Viewer Tools for 2024</u></a></li>
 </ul></div>
+

@@ -1,38 +1,20 @@
 ---
 title: "Cookiebot Fuels Our Site's Intelligence: Discover the Smart Technology Driving Us!"
-date: 2024-09-08T23:36:36.588Z
-updated: 2024-09-09T23:36:36.588Z
+date: 2024-09-09T22:52:01.896Z
+updated: 2024-09-14T19:52:58.803Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/96aa1b87d78d9da06b5a26c2f6109ba265782381d85277a374a3a1037690eb16.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Cookiebot Fuels Our Site's Intelligence: Discover the Smart Technology Driving Us!
 
 [Back to Webinars](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## A Guide to Achieving Process Excellence during COVID and Beyond
 
 English
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### New Techniques in Process Improvement
 
 Pen and paper-based value stream mapping (VSM) is the established tool for recording processes, identifying waste, and deriving recommendations for action. However, its application in the healthcare industry today requires a high level of effort and is challenging due to process complexity, variations, and siloed information. Compounding the problem, COVID-19 has made it extremely difficult for process improvement specialists to conduct in-person assessments and Kaizen events.
@@ -46,11 +28,12 @@ Pen and paper-based value stream mapping (VSM) is the established tool for recor
 * Tracking compliance with improvement initiatives post-implementation
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Watch now
 
 ### Get in touch with us
@@ -58,28 +41,17 @@ Pen and paper-based value stream mapping (VSM) is the established tool for recor
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Thank you, enjoy your webinar!
 
 [![14 A Guide To Achieving Process Excellence During COVID & Beyond](https://static4.abbyy.com/abbyycommedia/29631/14-a-guide-to-achieving-process-excellence-during-covid-beyond.jpg)](https://www.youtube.com/watch?v=VoLSbg-urvE) 
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
@@ -138,8 +110,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -149,47 +119,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-easily-create-compelling-fb-video-ads-with-no-cost-kit/"><u>[New] 2024 Approved  Easily Create Compelling FB Video Ads with No-Cost Kit</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-solving-mysterious-oneself-appearing-in-video-conversations/"><u>[New] 2024 Approved  Solving Mysterious Oneself Appearing in Video Conversations</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-definitive-top-5-agile-camcorders-for-adventure/"><u>[New] In 2024, Definitive Top 5 Agile Camcorders for Adventure</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-premier-mp4-to-fb-video-transforming-tools/"><u>[New] In 2024, Premier MP4 to FB Video Transforming Tools</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-short-segment-screenplay-snippet/"><u>[New] Short Segment Screenplay Snippet</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-fastest-8-capture-tools-unveiled/"><u>[Updated] 2024 Approved  Fastest 8 Capture Tools Unveiled</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-tegakiflexicaptureocr-abbyy/"><u>「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-from-reel-to-share-creating-perfect-vt-videos-in-fcpx/"><u>2024 Approved  From Reel to Share  Creating Perfect VT Videos in FCPX</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-banners-makers-10plus-online-tools-to-create-channel-art/"><u>2024 Approved  Youtube Banners Makers  10+ Online Tools to Create Channel Art</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-finereader-wesentliches-tool-in-der-dokumentenverarbeitung-und-analyse/"><u>ABBYY FineReader - Wesentliches Tool in Der Dokumentenverarbeitung Und Analyse</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-industry-pioneer-in-process-analytics-and-intelligent-data-extraction/"><u>ABBYY: Industry Pioneer in Process Analytics and Intelligent Data Extraction</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-open-source-neoml-bibliothek-erlebt-einen-sprung-nach-vorn-mit-python-integration-und-beispielloser-geschwindigkeit/"><u>ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-perspective-on-synergizing-with-ai-for-enhanced-team-performance/"><u>ABBYY's Perspective on Synergizing with AI for Enhanced Team Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/advanced-insights-exploring-beyond-business-analytics-and-process-analysis-ebook-by-abbyy/"><u>Advanced Insights: Exploring Beyond Business Analytics and Process Analysis eBook by ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatische-dokumentverarbeitung-in-wilmington-mit-abbyy-software/"><u>Automatische Dokumentverarbeitung in Wilmington Mit ABBYY Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversion-rates-using-innovative-cookiebot-tracking-solutions/"><u>Boost Conversion Rates Using Innovative Cookiebot Tracking Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-success-boost-your-sites-visibility-and-conversions/"><u>Cookiebot-Driven Success: Boost Your Site's Visibility and Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-solutions-optimized-user-experience-with-advanced-tracking/"><u>Cookiebot-Enabled Solutions: Optimized User Experience with Advanced Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-site-with-advanced-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Site with Advanced Analytics and Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-the-secret-ingredient-behind-tailored-user-experiences/"><u>Cookiebot: The Secret Ingredient Behind Tailored User Experiences</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-twin-evolution-brochure-unlocking-innovations-with-abbyy/"><u>Digital Twin Evolution Brochure - Unlocking Innovations with ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-optimizing-your-sites-visibility/"><u>Driven by Cookiebot: Optimizing Your Site's Visibility</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/efficiently-managing-insurance-claims-with-ecclesia-the-abbyy-integration/"><u>Efficiently Managing Insurance Claims with Ecclesia: The ABBYY Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-conversion-rates-using-leading-analytics-software/"><u>Enhanced Conversion Rates Using Leading Analytics Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-data-collection-with-the-help-of-cookiebot-technology/"><u>Enhanced Data Collection with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-with-cookiebot-technology/"><u>Enhancing Website Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/find-the-perfect-game-ready-laptop-without-breaking-your-bank-best-choices-under-1k/"><u>Find the Perfect Game-Ready Laptop Without Breaking Your Bank: Best Choices Under $1K</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-robotic-process-automation-for-efficient-logistics-exploring-the-power-of-abbyy-solutions/"><u>Harnessing Robotic Process Automation for Efficient Logistics: Exploring the Power of ABBYY Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-personalization-and-analytics/"><u>Harnessing the Power of Cookiebot for Advanced Site Personalization and Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-abbyys-smart-data-extraction-is-reshaping-the-future-of-service-businesses/"><u>How ABBYY's Smart Data Extraction Is Reshaping the Future of Service Businesses</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Realme Narzo 60 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-xiaomi-redmi-note-12-pro-4g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Xiaomi Redmi Note 12 Pro 4G to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Honor X50i+ | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-podcast-name-selection-step-by-step-guide-plus-50plus-top-ideas-list/"><u>In 2024, Mastering Podcast Name Selection  Step-by-Step Guide + 50+ Top Ideas List</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovatives-tool-von-abbyy-finereader-perfekt-fur-die-universitat-innsbruck-und-mehr/"><u>Innovatives Tool Von ABBYY FineReader - Perfekt Für Die Universität Innsbruck Und Mehr!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/metro-ag-auf-dem-weg-in-die-digitale-ara-eine-reise-durch-innovation-und-technologie/"><u>METRO AG Auf Dem Weg in Die Digitale Ära: Eine Reise Durch Innovation Und Technologie</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/navigating-the-future-of-arb-in-finance-unveiling-strategies-from-abbyy-white-paper-on-digital-transformation/"><u>Navigating the Future of ARB in Finance – Unveiling Strategies From ABBYY White Paper on Digital Transformation</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimize-your-websites-performance-using-advanced-cookiebot-solutions/"><u>Optimize Your Website's Performance Using Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-13-ultra-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on 13 Ultra</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/revolutionize-your-paperwork-unveiling-the-power-of-abbyy-vantage-version-21/"><u>Revolutionize Your Paperwork: Unveiling the Power of ABBYY Vantage Version 2.1</u></a></li>
-<li><a href="https://fox-http.techidaily.com/top-8-vr-gaming-accessories-for-2024/"><u>Top 8 VR Gaming Accessories for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/unlock-iphone-6-plus-without-passcode-easily-drfone-by-drfone-ios/"><u>Unlock iPhone 6 Plus Without Passcode Easily | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-restore-lost-sounds-to-twitter-vids/"><u>[New] Restore Lost Sounds to Twitter Vids</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-snicker-showcase-top-10-tweets/"><u>[New] Snicker Showcase Top 10 Tweets</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-next-step-in-virtual-reality-jaunt-vr-review-for-2024/"><u>[New] The Next Step in Virtual Reality Jaunt VR Review for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-how-to-perfectly-place-music-stickers-on-instagram-content/"><u>[Updated] How to Perfectly Place Music Stickers on Instagram Content</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-visualize-freely-premium-no-cost-screen-capture-tools/"><u>[Updated] Visualize Freely Premium No-Cost Screen Capture Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-prime-fb-video-converters-secure-mp4-downloads/"><u>2024 Approved Prime FB Video Converters Secure MP4 Downloads</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-realme-11-proplus-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Realme 11 Pro+ Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-dominates-2022-spark-matrix-rankings-by-quadrant-knowledge-solutions-for-advanced-document-analysis/"><u>ABBYY Dominates 2022 SPARK Matrix Rankings by Quadrant Knowledge Solutions for Advanced Document Analysis</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-leadership-in-customer-excellence-meet-larysa-lototska/"><u>ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyyocr/"><u>ABBYY組み込みOCR採用：東芝テックの新シリーズ印刷機</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-strategy-shifts-global-economys-influence-explored-in-comprehensive-intelligence-automation-overview/"><u>AI Strategy Shifts: Global Economy's Influence Explored in Comprehensive Intelligence Automation Overview</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-download-the-latest-drivers-for-your-canon-mg2900-printer/"><u>How to Download the Latest Drivers for Your Canon MG2900 Printer</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-dynamic-instagram-collage-views/"><u>In 2024, Dynamic Instagram Collage Views</u></a></li>
 </ul></div>
+

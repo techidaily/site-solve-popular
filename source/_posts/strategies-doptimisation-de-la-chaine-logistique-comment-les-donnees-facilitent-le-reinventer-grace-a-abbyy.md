@@ -1,24 +1,12 @@
 ---
 title: "Stratégies D'Optimisation De La Chaîne Logistique: Comment Les Données Facilitent Le Réinventer Grâce À ABBYY"
-date: 2024-09-08T23:36:37.688Z
-updated: 2024-09-09T23:36:37.688Z
+date: 2024-09-11T18:33:55.409Z
+updated: 2024-09-14T16:27:24.501Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c91ef4997081e65543be4ed1e14a92e0b1b11ea3fa4aac3ca09a237127556c70.png
 ---
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stratégies D'Optimisation De La Chaîne Logistique: Comment Les Données Facilitent Le Réinventer Grâce À ABBYY
 
 [Back to Webinars](https://tools.techidaily.com/abbyy/products/)
@@ -31,20 +19,8 @@ French
 
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25106/04-lindaameur-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Linda Ameur
 
 Directrice Commerciale, **ABBYY**
@@ -57,42 +33,18 @@ Expert Automobile Supply Chain
 
 ![Raphaelsavy 198X198](https://static2.abbyy.com/abbyycommedia/31059/alteryx-logo-forcards-96x29.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Raphaelsavy 198X198](https://static2.abbyy.com/abbyycommedia/35564/raphaelsavy-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Raphaël Savy
 
 Southern Europe Director, **Alteryx**
 
 ![Eric De Riedmatten 198X198](https://static5.abbyy.com/abbyycommedia/31772/eric-de-riedmatten-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Eric de Riedmatten
 
 Journaliste économique
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Description
 
 Rejoignez-nous pour notre table ronde filmée « L’optimisation de la Supply Chain par les données – la culture du « data driven » pour l’amélioration des processus ».
@@ -100,11 +52,12 @@ Rejoignez-nous pour notre table ronde filmée « L’optimisation de la Supply C
 Organisée dans le cadre d’Agora Live Supply Chain, cette table ronde réunit Eric de Riedmatten, journaliste, Dimitri Manoussis, Expert Automobile Supply Chain, Linda Ameur, Directrice Commerciale France, ABBYY et Raphael Savy, Directeur Europe du Sud, Alteryx qui discuteront comment les nouvelles technologies peuvent augmenter la performance de la Supply Chain.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Les sujets :
 
 * Résilience et visibilité de la Supply Chain sont plus importantes que jamais
@@ -112,35 +65,45 @@ Organisée dans le cadre d’Agora Live Supply Chain, cette table ronde réunit 
 * Réduction de la complexité et de l’incertitude au travers de nouvelles technologies pour une bonne gestion de la Supply Chain
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Regardez maintenant
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Merci et bon webinaire !
 
 [![Agora Supply Chain Fr 750X421](https://static5.abbyy.com/abbyycommedia/31773/agora-supply-chain-fr-750x421.jpg)](https://www.youtube.com/watch?v=oNQxCtTklSM) 
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -198,8 +161,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -209,39 +170,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-the-enigma-of-missing-video-suggestions-in-your-feed/"><u>[New] 2024 Approved  The Enigma of Missing Video Suggestions in Your Feed</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unlock-youtube-tracks-anytime-without-spending-a-dime-the-best-audio-crackers/"><u>[New] Unlock YouTube Tracks Anytime, Without Spending a Dime  The Best Audio Crackers</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-digital-tapes-a-comprehensive-recorder-roundup/"><u>[Updated] Digital Tapes  A Comprehensive Recorder Roundup</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-communication-incorporating-fun-with-emojis/"><u>[Updated] YouTube Communication  Incorporating Fun with Emojis</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/sap-intelligent-rpa-abbyy-abbyy/"><u>高度な文書処理技術と組み合わせた、SAP Intelligent RPA にABBYYを統合する方法 | ABBYYの技術解説</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-collaborative-venture-with-apponfly-elevating-document-processing-solutions/"><u>ABBYY Unveils New Collaborative Venture with AppOnFly: Elevating Document Processing Solutions</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/apple-silicons-newest-marvel-unveiling-the-m4-chip-launch-and-technical-specifications/"><u>Apple Silicon's Newest Marvel: Unveiling the M4 Chip - Launch & Technical Specifications</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automate-your-leads-with-cookiebot-enabled-solutions/"><u>Automate Your Leads with Cookiebot-Enabled Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automated-customer-engagement-with-cookiebot-technology/"><u>Automated Customer Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-traffic-with-cookiebot-powerful-site-engagement-tools/"><u>Boost Traffic with Cookiebot - Powerful Site Engagement Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-engagement-with-cookiebot-technology-for-tailored-content-delivery/"><u>Boosting Engagement with Cookiebot Technology for Tailored Content Delivery</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/combining-power-of-abbyy-with-alteryx-for-enhanced-data-management-and-process-automation-solutions/"><u>Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions</u></a></li>
-<li><a href="https://techtrends.techidaily.com/connect-your-fire-stick-to-fubotv-for-unlimited-streaming-options/"><u>Connect Your Fire Stick to FuboTV for Unlimited Streaming Options</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-analytics-unleashing-website-personalization-and-targeting/"><u>Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-personalization-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Driven Personalization: Enhance User Experience with Smart Tracking</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/developing-a-web-app-with-the-help-of-chatgpt-innovative-techniques-unveiled/"><u>Developing a Web App with the Help of ChatGPT: Innovative Techniques Unveiled</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/expert-reviews-at-toms-computer-world-gear-insights/"><u>Expert Reviews at Tom's Computer World: Gear Insights</u></a></li>
-<li><a href="https://driver-download.techidaily.com/free-brother-mfc-7860dw-printer-driver-installation-guide-for-windows/"><u>Free Brother MFC-7860DW Printer Driver Installation Guide for Windows</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/get-your-pc-listening-to-you-not-too-x-recorder/"><u>Get Your PC Listening to You, Not Too - X-Recorder</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-digital-drama-videoviral-sagas-unfold-online/"><u>In 2024, Digital Drama  #VideoViral Sagas Unfold Online</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-meizu-21-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Meizu 21 for Streaming | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-scan-and-convert-documents-with-ocr-technology-perfectpdf-tools/"><u>IPhone Scan & Convert Documents with OCR Technology - PerfectPDF Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/les-avantages-de-rpa-pour-les-entreprises-francaises-une-etude-revelatrice-dun-retour-sur-investissement-positif-des-la-premiere-annee-informations-par-abby29/"><u>Les Avantages De RPA Pour Les Entreprises Françaises : Une Étude Révélatrice D'un Retour Sur Investissement Positif Dès La Première Année - Informations Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/les-dernieres-avancees-de-machine-learning-sur-la-solution-flexicapture-optimiser-avec-abbyy-technologie/"><u>Les Dernières Avancées De Machine Learning Sur La Solution FlexiCapture - Optimiser Avec ABBYY Technologie</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-cookiebot-for-superior-conversion-rates-and-seamless-personalization-on-your-website/"><u>Leveraging Cookiebot for Superior Conversion Rates and Seamless Personalization on Your Website</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-seamless-mobile-onboarding-with-strategies-from-the-abbyy-handbook/"><u>Mastering Seamless Mobile Onboarding with Strategies From the ABBYY Handbook</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-crafting-an-effective-online-page-for-search-engines/"><u>Mastering the Art of Crafting an Effective Online Page for Search Engines</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-universal-copy-paste-seamless-sharing-across-devices-and-enhancing-your-fitness-routine-with-indoor-cycling-insights-from-the-abbyy-expertise/"><u>Mastering Universal Copy-Paste: Seamless Sharing Across Devices & Enhancing Your Fitness Routine with Indoor Cycling - Insights From the ABBYY Expertise</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/promising-future-with-us-policy-changes-expert-analysis-on-abbyys-platform/"><u>Promising Future with US Policy Changes | Expert Analysis on ABBYY's Platform</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/soundscapes-spectrum-music-finder-service/"><u>Soundscapes Spectrum  Music Finder Service</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/strengthen-business-continuity-with-effective-process-enhancement/"><u>Strengthen Business Continuity with Effective Process Enhancement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-subcontracting-options-for-enhanced-abbyy-software-solutions/"><u>Top Subcontracting Options for Enhanced ABBYY Software Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/transformez-la-lecture-de-vos-recus-en-temps-reel-grace-a-lia-abbyy-sphere-numerique/"><u>Transformez La Lecture De Vos Reçus en Temps Réel Grâce À L'IA : ABBYY Sphère Numérique</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ultimate-guide-cleaning-and-formatting-data-for-efficient-ai-model-training/"><u>Ultimate Guide: Cleaning and Formatting Data for Efficient AI Model Training</u></a></li>
-<li><a href="https://win-answers.techidaily.com/ultimate-solutions-for-preventing-nba-2k21-from-crashing-on-pc-gaming-systems/"><u>Ultimate Solutions for Preventing NBA 2K21 From Crashing on PC Gaming Systems</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-asmr-mastery-your-guide-to-nighttime-relaxation/"><u>[Updated] ASMR Mastery Your Guide to Nighttime Relaxation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-birthstones-and-emojis-tailoring-your-whatsapp-profile-by-sign/"><u>[Updated] Birthstones and Emojis Tailoring Your WhatsApp Profile by Sign</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-realme-narzo-n53-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-vivo-y36i-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Vivo Y36i FRP</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-ocr-rpa49/"><u>伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-presente-ses-innovantes-technologies-ia-pour-lextraction-de-donnees-au-salon-banque-and-innovation-evenement-cle-2018/"><u>ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-advanced-language-translator-powered-by-ntt-docomo-features-ocr-for-multilingual-support/"><u>ABBYY's Advanced Language Translator - Powered by NTT DOCOMO, Features OCR for Multilingual Support</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-sdgs/"><u>ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-reno-9a-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo Reno 9A to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-secrets-to-stellar-youtube-livestreaming-top-cameras/"><u>In 2024, Secrets to Stellar YouTube Livestreaming - Top Cameras</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/liquefactive-necrosis/"><u>Liquefactive Necrosis</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-the-ultimate-list-top-gaming-sites-for-free-game-downloads/"><u>New In 2024, The Ultimate List Top Gaming Sites for Free Game Downloads</u></a></li>
 </ul></div>
+

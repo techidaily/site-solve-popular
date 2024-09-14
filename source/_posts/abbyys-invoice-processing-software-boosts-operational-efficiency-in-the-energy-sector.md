@@ -1,7 +1,7 @@
 ---
 title: ABBYY's Invoice Processing Software Boosts Operational Efficiency in the Energy Sector
-date: 2024-09-08T23:36:35.759Z
-updated: 2024-09-09T23:36:35.759Z
+date: 2024-09-12T17:36:07.039Z
+updated: 2024-09-14T19:18:54.403Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7802234057966a55c104bcf23729049f87338b2a1d7bc4238b5d8ebb2aadc3bf.jpg
@@ -13,42 +13,18 @@ thumbnail: https://thmb.techidaily.com/7802234057966a55c104bcf23729049f87338b2a1
 
 Oil & Gas | Accounts Payable Automation
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Automated Invoice Processing from ABBYY Drives Higher Efficiency for Energy Distributor
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/abbyy.png?h=40&iar=0&w=120)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Automated Invoice Processing from ABBYY Drives Higher Efficiency for Energy Distributor
 
 Other | Accounts Payable Automation 
 
 ![](https://static1.abbyy.com/abbyycommedia/15257/4208e_images_cs_papco556x303.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Customer Overview
 
 ![PAPCO](https://static1.abbyy.com/abbyycommedia/15224/papco-logo-200px.jpg) 
@@ -63,12 +39,6 @@ Other | Accounts Payable Automation
 
 ![ScanStore](https://static4.abbyy.com/abbyycommedia/15226/logo_online_scanner_store.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | Name     | ScanStore                                     |
 | -------- | --------------------------------------------- |
 | Industry | Data Capture solution provider                |
@@ -92,12 +62,6 @@ As a leading energy solutions supplier in the Eastern United States, PAPCO recei
 
 ###### SEE HOW ABBYY CAN HELP
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### over **600,000**
 
 invoices from 1,000 vendors
@@ -158,9 +122,23 @@ Collins also sees a future of new opportunities for PAPCO using the FlexiCapture
 
 [![FlexiCapture for Invoices](https://static5.abbyy.com/abbyycommedia/14349/6-flexicapture-forinvoices.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture for Invoices](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Accounts payable](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Accounts Payable](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
@@ -172,12 +150,6 @@ Collins also sees a future of new opportunities for PAPCO using the FlexiCapture
 
 Share  True ?  : "" 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -190,8 +162,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -201,36 +171,16 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-pc-video-magic-discovering-apowersofts-recorder/"><u>[New] 2024 Approved  PC Video Magic  Discovering Apowersoft’s Recorder</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-navigate-the-social-media-lands-cookie-with-youtubes-automatic-play-feature/"><u>[Updated] 2024 Approved  Navigate the Social Media Lands Cookie with YouTube's Automatic Play Feature</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-selecting-the-ultimate-gear-for-stellar-4k-production/"><u>[Updated] Selecting the Ultimate Gear for Stellar 4K Production</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-tegakiflexicaptureocr-abbyy/"><u>「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-backs-humanity-project-in-pioneering-unbiased-ai-oversight-tools/"><u>ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-finereader-wesentliches-tool-in-der-dokumentenverarbeitung-und-analyse/"><u>ABBYY FineReader - Wesentliches Tool in Der Dokumentenverarbeitung Und Analyse</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724312941231-abbyy-flexicapture/"><u>ABBYY FlexiCapture の正式日本市場発売開始</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-industry-pioneer-in-process-analytics-and-intelligent-data-extraction/"><u>ABBYY: Industry Pioneer in Process Analytics and Intelligent Data Extraction</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-open-source-neoml-bibliothek-erlebt-einen-sprung-nach-vorn-mit-python-integration-und-beispielloser-geschwindigkeit/"><u>ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-perspective-on-synergizing-with-ai-for-enhanced-team-performance/"><u>ABBYY's Perspective on Synergizing with AI for Enhanced Team Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/advanced-insights-exploring-beyond-business-analytics-and-process-analysis-ebook-by-abbyy/"><u>Advanced Insights: Exploring Beyond Business Analytics and Process Analysis eBook by ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatische-dokumentverarbeitung-in-wilmington-mit-abbyy-software/"><u>Automatische Dokumentverarbeitung in Wilmington Mit ABBYY Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversion-rates-using-innovative-cookiebot-tracking-solutions/"><u>Boost Conversion Rates Using Innovative Cookiebot Tracking Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-success-boost-your-sites-visibility-and-conversions/"><u>Cookiebot-Driven Success: Boost Your Site's Visibility and Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-solutions-optimized-user-experience-with-advanced-tracking/"><u>Cookiebot-Enabled Solutions: Optimized User Experience with Advanced Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-site-with-advanced-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Site with Advanced Analytics and Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-the-secret-ingredient-behind-tailored-user-experiences/"><u>Cookiebot: The Secret Ingredient Behind Tailored User Experiences</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-twin-evolution-brochure-unlocking-innovations-with-abbyy/"><u>Digital Twin Evolution Brochure - Unlocking Innovations with ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-optimizing-your-sites-visibility/"><u>Driven by Cookiebot: Optimizing Your Site's Visibility</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/efficiently-managing-insurance-claims-with-ecclesia-the-abbyy-integration/"><u>Efficiently Managing Insurance Claims with Ecclesia: The ABBYY Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-conversion-rates-using-leading-analytics-software/"><u>Enhanced Conversion Rates Using Leading Analytics Software</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/facebook-cover-video-best-practices-and-setup-for-2024/"><u>Facebook Cover Video | Best Practices and Setup for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/guide-to-resolve-critical-error-code-c1900101-on-pc/"><u>Guide to Resolve Critical Error Code C1900101 on PC</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-6-plus-to-other-iphone-13-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 6 Plus to other iPhone 13 devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-guide-to-simplified-gs-yt-cta-implementation/"><u>In 2024, Guide to Simplified GS-YT CTA Implementation</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-moment-in-time-windows-108-screenshots-explained/"><u>In 2024, Moment in Time  Windows 10/8 Screenshots Explained</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-solutions-addressing-graphics-driver-alert-warnings/"><u>Step-by-Step Solutions: Addressing Graphics Driver Alert Warnings</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/streamline-e-commerce-success-the-power-of-advanced-cookiebot-solutions/"><u>Streamline E-Commerce Success: The Power of Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://program-issues.techidaily.com/the-truth-behind-mafia-ivs-definitive-edition-absence-from-storefronts/"><u>The Truth Behind Mafia IV's Definitive Edition Absence From Storefronts</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-ultimate-tutorial-on-engaging-in-dialogue-through-mozilla-thunderbirds-chat-functionality/"><u>The Ultimate Tutorial on Engaging in Dialogue Through Mozilla Thunderbird's Chat Functionality</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unveiling-process-intelligence-insights-into-advanced-data-analytics/"><u>Unveiling Process Intelligence: Insights Into Advanced Data Analytics</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-maximizing-gameplay-preservation-on-the-newest-windows-11/"><u>[New] In 2024, Maximizing Gameplay Preservation on the Newest Windows 11</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-streamlining-your-avatar-on-google-meet-devices/"><u>[New] Streamlining Your Avatar on Google Meet Devices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-how-to-use-the-instagram-question-sticker/"><u>[Updated] In 2024, How to Use the Instagram Question Sticker?</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-ocr-rpa49/"><u>伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-advanced-language-translator-powered-by-ntt-docomo-features-ocr-for-multilingual-support/"><u>ABBYY's Advanced Language Translator - Powered by NTT DOCOMO, Features OCR for Multilingual Support</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-sdgs/"><u>ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-infinix-hot-30i-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Infinix Hot 30i via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722967868837-complete-guide-to-updating-logitech-k400-plus-driver-begin-download-here/"><u>Complete Guide to Updating Logitech K400 Plus Driver - Begin Download Here!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-a2-phone-without-google-account-by-drfone-android/"><u>How to Unlock Oppo A2 Phone without Google Account?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/inside-investment-examining-the-pros-of-chatgpt-premium/"><u>Inside Investment: Examining the Pros of ChatGPT Premium</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-samsung-galaxy-f15-5g-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Samsung Galaxy F15 5G</u></a></li>
 </ul></div>
+

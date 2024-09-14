@@ -1,18 +1,12 @@
 ---
 title: "Optimized with Automated Bots: Boosting Your Site's Performance"
-date: 2024-09-08T23:36:37.025Z
-updated: 2024-09-09T23:36:37.025Z
+date: 2024-09-13T19:56:55.355Z
+updated: 2024-09-14T21:28:07.709Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b23f7aea0239ccf0208f3f76d9301c76c818b9985a4f6edf3b35f62e51fa261d.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Optimized with Automated Bots: Boosting Your Site's Performance
 
 12/ 2100%实际尺寸适合宽度适合高度适合页面自动介绍杂志连续的
@@ -20,8 +14,6 @@ thumbnail: https://thmb.techidaily.com/b23f7aea0239ccf0208f3f76d9301c76c818b9985
 SOLUTION BRIEF | HEALTHCARE Key challenge When physicians refer patients to hospitals or medical centers, the primary method for submitting referrals remains via a fax service. Processing the referral documents then requires a number of manual steps, which are often interrupted due to missing information or authorizations. The process becomes lengthy, causing unnecessary stress for patients and driving them to seek care elsewhere. Missed opportunities for patient referral appointments cost hospitals between $821k and $971k per physician per year. Solution ABBYY’s intelligent automation platform for referral management combines intelligent document processing with process mining to automate the integration of patient referral fax data into the EHR and provide guidance to improve the entire referral process end to end. It’s helping U.S. hospitals and medical centers to improve both patient and revenue cycle outcomes. Referral Management Transform patient referrals into revenue Only 54% of faxed referrals result in scheduled appointments. Source Reduce referral leakage and improve patient experience with ABBYY With ABBYY’s AI-driven platforms, ABBYY Vantage and ABBYY Timeline, hospitals and medical centers are achieving results like: • Touchless processing of 100% of referrals • 10 minutes per referral saved • 80% straight-through processing of referrals • 50% higher automation of referral process • 20% revenue gain in 12 months • 50% reduced processing cost per referral 
 
 For more information, please visit [www.abbyy.com](https://tools.techidaily.com/abbyy/products/) If you have additional questions, contact your local ABBYY representative listed under [www.abbyy.com/contacts](https://tools.techidaily.com/abbyy/products/). © ABBYY 2024\. ABBYY is a registered trademark or a trademark of ABBYY Development Inc. and/or its affiliates. This designation can also be logo, product or company name (or part of any of the above) of ABBYY Development Inc. and/ or its affiliates and may not be used without consent of their respective owners. All other product names and trademarks mentioned herein are the property of their respective owners. DS-440 abbyy.com ABBYY Vantage – Intelligent Document Processing [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) is the industry’s first low-code / no-code intelligent document processing platform, built specifically for the needs of the enterprise. Vantage provides pre-trained AI models that understand each of your document types (structured, semi- structured, and unstructured), enabling straight-through, touchless processing of document data with unprecedented speed and accuracy. Use Vantage in referral management to: Automatically process fax referrals and prior authorizations accurately and timely, so patients can be seen faster Integrate data from faxes into EHRs automatically, eliminating manual data entry and delivering more accurate data Automate the process of onboarding a referred patient Partner with ABBYY ABBYY puts healthcare organizations’ information to work to enable them to address today’s financial and regulatory challenges while maintaining high standards for patient care. The ABBYY approach to purpose-built AI ensures that technology accelerates the organization toward the achievement of its goals, now and in the future. Learn more at [ABBYY.com/healthcare](https://tools.techidaily.com/abbyy/products/) ABBYY Timeline – Process Intelligence [ABBYY Timeline](https://tools.techidaily.com/abbyy/products/) is a market-leading platform for process mining, task mining, prediction, and simulation. Timeline uses the data from healthcare systems (EHR, ERP, LIMS, etc.) to provide an interactive model of your processes, enabling you to analyze events, visualize bottlenecks, and identify potential risks, so you can take remedial actions. Use Timeline in referral management to: Use your data to visualize the referral process and patient experience end to end Identify process bottlenecks that contribute to delays, errors, added costs, and missed opportunities Measure and monitor the effectiveness of your entire referral program, including cost per referral Discover revenue leakage in your referral and prior authorization process 
-
-
 
 0/0
 
@@ -35,19 +27,11 @@ For more information, please visit [www.abbyy.com](https://tools.techidaily.com/
 
 [![Created with BuildVu](https://www.abbyy.com/buildvu-logo.png)](https://www.idrsolutions.com/online-pdf-to-html-converter)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -58,39 +42,24 @@ For more information, please visit [www.abbyy.com](https://tools.techidaily.com/
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-expert-strategies-in-nvidia-screen-capturing-for-2024/"><u>[New] Expert Strategies in NVIDIA Screen Capturing for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-from-capture-to-curve-an-insider-look-at-editing-and-sharing-360-videos-on-youtube/"><u>[New] From Capture to Curve  An Insider Look at Editing and Sharing 360° Videos on YouTube</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-mastering-your-marketing-edge-establishing-a-biz-page-on-instagram/"><u>[New] Mastering Your Marketing Edge  Establishing a Biz Page on Instagram</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-professional-screenshot-taker-apowersoft-screen-recorder-for-2024/"><u>[New] Professional Screenshot Taker  Apowersoft Screen Recorder for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-litescreen-recorder-review-and-alternatives/"><u>[Updated] 2024 Approved  LiteScreen Recorder Review and Alternatives</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-navigating-digital-earnings-a-side-by-side-comparison/"><u>[Updated] 2024 Approved  Navigating Digital Earnings  A Side-by-Side Comparison</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unveiling-secrets-enhancing-facebook-lives-impact/"><u>[Updated] 2024 Approved  Unveiling Secrets  Enhancing Facebook Lives' Impact</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-and-blue-prism/"><u>ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-facilitates-consistent-document-management-in-rochlings-sap-system-for-improved-efficiency-latest-industry-news/"><u>ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-showcases-artificial-intelligence-insights-at-the-2018-aiim-event/"><u>ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-auditing-initiatives-boosted-by-ab-inbevs-backing-of-forhumanity/"><u>AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-traffic-with-cookiebot-technology-smart-analytics-tools/"><u>Boosting Web Traffic with Cookiebot Technology - Smart Analytics Tools!</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/charting-the-course-for-creative-campaigns-on-facebook-2024/"><u>Charting the Course for Creative Campaigns on Facebook, 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-battre-en-regle-les-plateformes-financieres-numeriques-natives-decouvrez-notre-verification-complete-par-abbyy/"><u>Comment Battre en Règle Les Plateformes Financières Numériques Natives : Découvrez Notre Vérification Complète Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-for-seamless-customer-experience-tracking/"><u>Cookiebot-Driven Insights for Seamless Customer Experience Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-leading-ai-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Leading AI Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-unleash-the-power-of-automated-conversions/"><u>Cookiebot-Enhanced: Unleash the Power of Automated Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-unleashing-advanced-tracking-solutions-for-your-websites-success/"><u>Cookiebot: Unleashing Advanced Tracking Solutions for Your Website's Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/data-driven-personalization-through-smart-analytics-solutions/"><u>Data-Driven Personalization Through Smart Analytics Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/demystifying-rpa-insights-from-the-abbyy-experts-guide/"><u>Demystifying RPA: Insights From the ABBYY Expert's Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/desamorcez-votre-gestion-des-credits-immobiliers-grace-a-levolutif-et-performant-service-de-dematerialisation-la-caisse-depargne-bretagne-pays-de-loire/"><u>Désamorcez Votre Gestion Des Crédits Immobiliers Grâce À L'évolutif Et Performant Service De Dématérialisation La Caisse D’Epargne Bretagne Pays De Loire</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-your-site-performance-using-cookiebot-technology/"><u>Elevate Your Site Performance Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/empowering-website-insights-with-cookiebot-advanced-tracking-solutions-for-improved-seo/"><u>Empowering Website Insights with Cookiebot: Advanced Tracking Solutions for Improved SEO</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-site-performance-with-our-cookiebot-integrated-tools/"><u>Enhance Site Performance with Our Cookiebot Integrated Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-website-traffic-analysis-with-our-advanced-cookiebot-technology-solutions/"><u>Enhance Website Traffic Analysis with Our Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-by-cookiebot-solutions/"><u>Enhanced by Cookiebot Solutions</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/exploring-ai-face-generators-for-2024/"><u>Exploring AI Face Generators for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-vivo-y100t-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Vivo Y100t? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Infinix Note 30 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-examining-the-income-mechanics-of-tseries-on-youtube/"><u>In 2024, Examining the Income Mechanics of TSeries on YouTube</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/protect-your-data-understanding-the-abbyy-cloud-agreement-for-gdpr-adherence/"><u>Protect Your Data: Understanding the ABBYY Cloud Agreement for GDPR Adherence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/the-future-of-digital-transformation-insights-from-the-2018-abbyy-technology-summit-on-content-intelligence/"><u>The Future of Digital Transformation: Insights From the 2018 ABBYY Technology Summit on Content Intelligence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-6-must-read-digital-intelligence-insights-of-2020-featured-on-the-abbyy-blog/"><u>Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/universitat-zurich-optimiert-prufungen-mit-abbyy-flexicapture-korrektursystem/"><u>Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unlock-deeper-understanding-with-abbyys-guide-on-elevated-bi-and-process-mining-tactics-ebook/"><u>Unlock Deeper Understanding with ABBYY's Guide on Elevated BI & Process Mining Tactics [eBook]</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-action-in-full-hd-top-7-camcorders-for-thrills/"><u>[New] In 2024, Action in Full HD Top 7 Camcorders for Thrills</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-find-the-perfect-free-video-editor-app-for-iphones-and-ipads/"><u>[Updated] In 2024, Find the Perfect Free Video Editor App for iPhones & iPads</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-nubia-red-magic-9-pro-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Nubia Red Magic 9 Pro</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/get-abbyy-textgrabber-free-new-on-the-fly-translating-capabilities-for-android-devices/"><u>Get ABBYY TextGrabber Free: New On-the-Fly Translating Capabilities for Android Devices</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-convert-youtube-videos-to-gifs-no-download/"><u>How to Convert YouTube Videos to GIFs [No Download]</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-chorus-and-bass-macs-sound-control/"><u>In 2024, Chorus & Bass Mac's Sound Control</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-locked-apple-id-on-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, How to Fix Locked Apple ID on iPhone 11 Pro Max</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leverage-enhanced-user-experience-websites-boosted-using-the-powerful-cookiebot-platform/"><u>Leverage Enhanced User Experience: Websites Boosted Using the Powerful Cookiebot Platform</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leveraging-cookiebot-technology-for-improved-website-engagement/"><u>Leveraging Cookiebot Technology for Improved Website Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/master-your-connections-using-ios-12-features-for-business-cards-tips-from-abbyb-log/"><u>Master Your Connections Using iOS 12 Features for Business Cards - Tips From ABBYB Log</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iuocreodoplusodgplusoctplusodpeodleodreodvoacgombqewmluaipuevptog44ki44ow44ot44o86kqn5a6a44ob44kn44od44kv44oq44k544oi44gn6kal44gk44gr44kl5paw44gx44ge5lql5qw25/"><u>キャッシュフロー最適化戦略: アブビー認定チェックリストで見つける新しい事業機会</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

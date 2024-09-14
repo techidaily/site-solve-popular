@@ -1,7 +1,7 @@
 ---
 title: How ABBYY's Smart Data Extraction Is Reshaping the Future of Service Businesses
-date: 2024-08-30T10:59:24.325Z
-updated: 2024-08-31T10:59:24.325Z
+date: 2024-09-13T16:30:49.753Z
+updated: 2024-09-14T18:38:01.577Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d0cb748bcb0f62a12329bda108fa11c6c1e0878f52106a0e40a69c79938a6a30.jpg
@@ -42,15 +42,6 @@ Here are some of the key benefits that intelligent capture brings to digital tra
 * Knowledge workers can focus on problem resolution instead of processing routine transactions
 * Customers can be offered additional goods and services during their transaction based on content analytics
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ## Application of Intelligent Capture in the service industry
 
 There are many possible uses for intelligent capture in service industries:
@@ -60,8 +51,12 @@ There are many possible uses for intelligent capture in service industries:
 * **Employee onboarding**. When a new employee starts with a company, they may have to submit many documents, such as identity and tax forms. Intelligent capture allows them to photograph or submit these using their mobile device, then automatically extract the information and upload it to the HR system.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Points to consider before implementation
 
 Intelligent capture solutions employ a suite of technologies, depending on the documents and data to be captured: recognition, classification, text analytics, and even photo recognition. It’s essential that the solution that you select has been tested on the type of documents that you will be capturing to ensure that documents are properly classified, and the content extracted for use in the downstream business processes. If your customers will be capturing their documents directly, the solution needs to support mobile device cameras and uploading from their own PCs, which may require a cloud solution to support secure scanning and upload.
@@ -72,9 +67,6 @@ However, you also need to ensure that the downstream business processes are as a
 
 ![Sandy Kemsley](https://static4.abbyy.com/abbyycommedia/25712/sandykemsley-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sandy Kemsley
 
 Process Automation Industry Analyst at Column 2
@@ -86,8 +78,18 @@ During her career of more than 20 years, she has started and run successful prod
 Since 2001, she has returned to private consulting practice as a BPM/DPA architect, performing engagements for financial services and insurance organizations across North America, and as an analyst working with BPM/DPA vendors. In addition to writing her blog, she often speaks at conferences about BPM/DPA and digital transformation, and is a contributing author to books on social BPM and adaptive case management. Sandy is the recipient of the 2016 Marvin L. Manheim award for significant contributions in the field of workflow, and the 2019 winner of the Workflow Management Coalition’s award for Outstanding Business Transformation Consultant.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -142,8 +144,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -153,40 +153,12 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-content-strategy-premier-ranks-apps-explored/"><u>[New] 2024 Approved  Elevate Your Content Strategy - Premier Ranks Apps Explored</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-inspirational-insta-captions-to-elevate-your-social-presence/"><u>[New] 2024 Approved  Inspirational Insta Captions to Elevate Your Social Presence</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-playbook-for-a-thriving-youtube-gaming-platform/"><u>[New] In 2024, The Ultimate Playbook for a Thriving YouTube Gaming Platform</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-5-easy-ways-to-multiply-your-youtube-follower-base/"><u>[Updated] 2024 Approved  5 Easy Ways to Multiply Your YouTube Follower Base</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-how-to-use-voicemod-on-discord/"><u>[Updated] 2024 Approved  How To Use Voicemod On Discord</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-cutting-edge-techniques-for-excellent-powerpoint-recordings/"><u>[Updated] In 2024, Cutting-Edge Techniques for Excellent PowerPoint Recordings</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iuoajoodhplusocuoocvplusodqplusodleocqeodvoodoos9noaikoobruwwgumwgowutuodquocueodidrkv53pmbrjgrvjgqjgrjg7zjgplkuk3lv4pjgajjgzfjgzjg4hjgqfjg4pjgqjg6rjgrnjg4j1/"><u>「デジタルフォーム作成の専門家リスト:保険セクターを中心としたチェックリストガイド」</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-chip-synchrony-the-new-era-of-fluid-video-editing-experience/"><u>2024 Approved  Chip Synchrony  The New Era of Fluid Video Editing Experience</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/7-pioneering-metaverse-projects-for-profound-understanding-for-2024/"><u>7 Pioneering Metaverse Projects for Profound Understanding for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-ocr-rpa49/"><u>伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-global-idp/"><u>ABBYY Global IDPトレンドの最新発表:成果報告書解説</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-presente-ses-innovantes-technologies-ia-pour-lextraction-de-donnees-au-salon-banque-and-innovation-evenement-cle-2018/"><u>ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-advanced-language-translator-powered-by-ntt-docomo-features-ocr-for-multilingual-support/"><u>ABBYY's Advanced Language Translator - Powered by NTT DOCOMO, Features OCR for Multilingual Support</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-sdgs/"><u>ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatisierte-rechnungsbearbeitung-fur-energielieferanten-mit-branchenrelevanz-empfehlungen-von-abbyy/"><u>Automatisierte Rechnungsbearbeitung Für Energielieferanten Mit Branchenrelevanz – Empfehlungen Von ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-site-traffic-with-cookiebot-integration-strategies/"><u>Boost Site Traffic with Cookiebot Integration Strategies</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-web-visibility-instantly-using-the-powerful-cookiebot-seo-tech/"><u>Boost Web Visibility Instantly Using the Powerful Cookiebot SEO Tech</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/carlsberg-accelere-son-debut-en-mer-avec-la-technologie-abbyy-un-nouveau-partenariat-industriel/"><u>Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Website's User Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-enhanced-personalization-and-engagement/"><u>Cookiebot-Enabled Sites: Enhanced Personalization & Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-user-experience-with-automated-data-gathering-the-power-of-cookiebot-technology/"><u>Enhanced User Experience with Automated Data Gathering: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-insurance-risk-assessment-via-automated-data-centric-methods/"><u>Enhancing Insurance Risk Assessment via Automated, Data-Centric Methods</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-kyc-compliance-in-finance-with-ai-and-ml-techniques-download-our-comprehensive-guide/"><u>Enhancing KYC Compliance in Finance with AI & ML Techniques - Download Our Comprehensive Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-online-experience-through-cookiebot-driven-analytics/"><u>Enhancing Online Experience Through Cookiebot-Driven Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-through-cookiebot-technology/"><u>Enhancing Website Analytics Through Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-enhanced-digital-presence-with-cookiebot-integration-bespoke-online-growth-tools/"><u>Experience Enhanced Digital Presence with Cookiebot Integration | Bespoke Online Growth Tools</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-project-your-video-conference-onto-a-tv-setup-with-zoom/"><u>How To Project Your Video Conference Onto a TV Setup With Zoom</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Infinix Note 30 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-with-ocr-convert-pdfs-and-jpgs-using-finereader/"><u>IPhone Document Scanning with OCR: Convert PDFs & JPGs Using FineReader</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-improved-online-traffic-and-user-interaction/"><u>Leverage Cookiebot Technology for Improved Online Traffic & User Interaction</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/claude-vs-chatgpt-deciding-on-the-best-ai-bot-for-daily-task-management/"><u>Claude Vs. ChatGPT – Deciding on the Best AI Bot for Daily Task Management</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Vivo T2 5G? | Dr.fone</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/safe-ways-to-obtain-keepvid-pro-crack-expert-tips-and-troubleshooting/"><u>Safe Ways to Obtain KeepVid Pro Crack: Expert Tips & Troubleshooting</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tech-insight-pulling-and-keeping-twitters-vids-in-phone/"><u>Tech Insight Pulling and Keeping Twitters Vids in Phone</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
 </ul></div>
+

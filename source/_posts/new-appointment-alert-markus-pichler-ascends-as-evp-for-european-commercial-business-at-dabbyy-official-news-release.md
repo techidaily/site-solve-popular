@@ -1,46 +1,22 @@
 ---
 title: "New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release"
-date: 2024-09-08T23:36:38.230Z
-updated: 2024-09-09T23:36:38.230Z
+date: 2024-09-11T16:24:03.814Z
+updated: 2024-09-14T20:00:04.796Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e99583f6b5b06e719853b0ad4d8e79890585ba4f6bebb22736b51161b0bbe49e.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Markus Pichler devient VP Commercial Europe d’ABBYY
 
 04 mars 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Fort de 20 années d’expérience au sein du marché du logiciel, Markus vient soutenir la croissance et le rayonnement d’ABBYY sur le marché européen._ 
 
 ABBYY, le spécialiste de l’intelligence digitale, annonce la nomination de Markus Pichler au poste de VP Commercial Europe. Pour mener à bien ses nouvelles missions, Markus capitalisera sur sa fine connaissance du marché de l'intelligence digitale, des problématiques de gestion de contenu en entreprise et son expertise dans le domaine de la vente.
@@ -77,8 +53,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -88,57 +62,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-televising-digital-media-integrating-fb-video/"><u>[New] In 2024, Televising Digital Media  Integrating FB Video ?</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-the-great-livestream-showdown-streamlabs-vs-obs-head-to-head/"><u>[New] In 2024, The Great Livestream Showdown  Streamlabs Vs. OBS Head-to-Head</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cutting-edge-tools-for-unique-youtube-channel-names/"><u>[Updated] 2024 Approved  Cutting-Edge Tools for Unique YouTube Channel Names</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-how-to-upload-youtube-shorts-video-from-computer-and-mobile/"><u>[Updated] 2024 Approved  How to Upload YouTube Shorts Video From Computer and Mobile?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-critical-clip-climbers-ranking-video-hours-from-1-to-10-for-2024/"><u>[Updated] Critical Clip Climbers  Ranking Video Hours From #1 to #10 for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-democracy-dashboard-top-5-voting-simulation-titles-for-2024/"><u>[Updated] Democracy Dashboard  Top 5 Voting Simulation Titles for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-digital-broadcasting-service-review-for-2024/"><u>[Updated] Digital Broadcasting Service Review for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-propel-your-instagram-content-techniques-for-higher-interaction/"><u>[Updated] In 2024, Propel Your Instagram Content  Techniques for Higher Interaction</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-recording-titans-duel/"><u>[Updated] In 2024, Recording Titans Duel</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-virtual-racing-masterclass-our-five-favorite-games/"><u>[Updated] In 2024, Virtual Racing Masterclass  Our Five Favorite Games</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-oneplus-nord-n30-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your OnePlus Nord N30 5G | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-nokia-c12-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Nokia C12 | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-elevates-mariko-maeda-to-leadership-role-president-and-representative-director-for-strengthening-the-japanese-market-presence/"><u>ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-insights-sync-your-wireless-headset-with-ease-and-keep-passwords-protected/"><u>ABBYY Insights: Sync Your Wireless Headset with Ease and Keep Passwords Protected</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-ocr-software-development-kit-advanced-automatic-document-scanning-and-interpretation/"><u>Abbyy OCR Software Development Kit: Advanced Automatic Document Scanning & Interpretation</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-web-application-for-scanning-and-organizing-business-cards-in-the-cloud/"><u>ABBYY Unveils New Web Application for Scanning and Organizing Business Cards in the Cloud</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-anthony-macciola-as-their-latest-appointment-chief-innovation-officer/"><u>ABBYY Welcomes Anthony Macciola as Their Latest Appointment: Chief Innovation Officer</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-automatisierte-intelligenz-innovative-losungen-auf-der-expo-fur-dienstleistungsverlagerung-und-konsolidierung/"><u>ABBYY-Automatisierte Intelligenz: Innovative Lösungen Auf Der Expo Für Dienstleistungsverlagerung Und Konsolidierung</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724313274377-abbyy/"><u>ABBYYチェッカリスト - 金融市場で勝ち抜くための強化戦略</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automated-marketing-mastery-with-cookiebot-technology/"><u>Automated Marketing Mastery with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-ihre-firmenproduktivitat-mit-der-digitalisierung-vernichtet-den-papier-aktenkeller/"><u>Boost Ihre Firmenproduktivität Mit Der Digitalisierung - Vernichtet Den Papier-Aktenkeller!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-website-traffic-analysis-with-our-advanced-cookiebot-technology-solutions/"><u>Enhance Website Traffic Analysis with Our Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-by-cookiebot-solutions/"><u>Enhanced by Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-multifunctional-toshiba-printer-with-built-in-abbyy-ocr-technology/"><u>Enhanced Multifunctional Toshiba Printer with Built-In ABBYY OCR Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-accounting-efficiency-with-advanced-automated-solutions/"><u>Enhancing Accounting Efficiency with Advanced Automated Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-financial-stability-with-ai-driven-bank-compliance-measures-and-resilience-tactics/"><u>Enhancing Financial Stability with AI-Driven Bank Compliance Measures and Resilience Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-robotic-process-automation-efficiency-with-advanced-process-analytics-insights-from-the-abbyy-experience/"><u>Enhancing Robotic Process Automation Efficiency with Advanced Process Analytics: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-tools/"><u>Enhancing User Experience Through Smart Data Collection Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-a-look-into-the-efficiency-of-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Data Collection: A Look Into the Efficiency of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-with-advanced-cookiebot-technology/"><u>Enhancing User Experience with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/excellence-recognized-and-best-practices-established/"><u>Excellence Recognized and Best Practices Established!</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/free-image-repository-roundup-top-10-sites-reviewed-for-2024/"><u>Free Image Repository Roundup  Top 10 Sites Reviewed for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-flip-flop-your-watching-anchoring-yourself-at-the-end-of-queue/"><u>[New] In 2024, Flip-Flop Your Watching Anchoring Yourself at the End of Queue</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-precision-in-action-3-methods-for-gaming-footage/"><u>[New] In 2024, Precision in Action 3 Methods for Gaming Footage</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-a-beginners-approach-to-adding-dates-to-photographs-for-2024/"><u>[Updated] A Beginner's Approach to Adding Dates to Photographs for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-how-to-use-aiseesoft-screen-recorder/"><u>[Updated] How to Use Aiseesoft Screen Recorder</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-samsung-galaxy-a14-4g-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Samsung Galaxy A14 4G | Dr.fone</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/from-alpine-adventures-to-digital-signatures-the-abbyy-guide-on-smartwatch-innovations-and-skiing-apps/"><u>From Alpine Adventures to Digital Signatures: The ABBYY Guide on Smartwatch Innovations and Skiing Apps</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-erase-an-iphone-15-without-apple-id-password-by-drfone-ios/"><u>How To Erase an iPhone 15 Without Apple ID Password?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Honor Play 8T | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-apple-iphone-14-plus-when-phone-is-broken-drfone-by-drfone-ios/"><u>In 2024, How to Turn Off Find My Apple iPhone 14 Plus when Phone is Broken? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-motorola-moto-g24-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Motorola Moto G24 | Dr.fone</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/innovazione-in-cattolica-assicurazioni-con-elaborazione-documentale-intelligente-per-un-miglioramento-dei-servizi/"><u>Innovazione in Cattolica Assicurazioni Con Elaborazione Documentale Intelligente per Un Miglioramento Dei Servizi</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/iphone-application-visibility-restoration-how-to-display-all-your-apps/"><u>IPhone Application Visibility Restoration: How to Display All Your Apps</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-and-conversion-use-ocr-technology-with-finereader-pdf/"><u>IPhone Document Scanning & Conversion: Use OCR Technology with FineReader PDF</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-smarter-web-presence-and-seo-success/"><u>Leverage Cookiebot Technology for Smarter Web Presence and SEO Success</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-in-2024-behind-the-scenes-sound-management-expert-insights-into-using-ducking-effects/"><u>New In 2024, Behind-the-Scenes Sound Management Expert Insights Into Using Ducking Effects</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/optimized-with-automated-tracking-discover-the-power-of-cookiebot-technology/"><u>Optimized with Automated Tracking: Discover the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-next-level-analytics-and-conversion-boost/"><u>Optimized With Cookiebot: Next-Level Analytics & Conversion Boost</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/redefining-accounts-payable-the-synergy-of-automation-and-content-knowledge/"><u>Redefining Accounts Payable: The Synergy of Automation and Content Knowledge</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/robert-youngjohns-steering-vision-as-abbyys-esteemed-board-chair/"><u>Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-top-best-final-cut-pro-x-alternatives-on-windows-and-mac-and-linux-free-and-paid/"><u>Updated 2024 Approved Top Best Final Cut Pro X Alternatives on Windows & Mac & Linux Free & Paid</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unrivaled-sonic-union-for-speakers-for-2024/"><u>Unrivaled Sonic Union for Speakers for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

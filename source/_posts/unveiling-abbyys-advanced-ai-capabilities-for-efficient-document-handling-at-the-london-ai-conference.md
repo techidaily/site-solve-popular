@@ -1,46 +1,22 @@
 ---
 title: Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference
-date: 2024-09-08T23:36:35.671Z
-updated: 2024-09-09T23:36:35.671Z
+date: 2024-09-09T21:48:09.514Z
+updated: 2024-09-14T18:28:42.062Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea7246067d0e64ce56f240c9081.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY to showcase powerful AI for documents at AI Summit London
 
 June 11, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY®, a global provider of content intelligent solutions and services, will join the world’s foremost innovators at The AI Summit London on 13th and 14th June. ABBYY, a Platinum Sponsor of the conference, will showcase its expertise in Artificial Intelligence (AI), innovations in AI-powered content intelligence and digital transformation alongside Microsoft, Facebook, Amazon, Google, Accenture and IBM, to help participants gain a practical understanding of AI, its use cases and impact on content-centric business processes
 
 During the keynote at 2:25pm on the 14th June, ABBYY Chief Innovation Officer Anthony Macciola will address the challenge of getting valuable insights from unstructured content to gain a competitive edge. He will discuss trends in Robotic Process Automation and talk about how content intelligence can make robots smarter. “AI improves the way enterprises and organisations understand their customers, their desires, and goals. Content Intelligence enables real-time understanding of content and communications, providing faster, more convenient customer service and efficient processing of information. Resolving customer service issues before they arise could significantly lower customer abandonment rates,” commented Anthony Macciola, Chief Innovation Officer at ABBYY Global.
@@ -77,8 +53,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -88,51 +62,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-disruptive-beats-curated-list-of-music-mutators/"><u>[Updated] In 2024, Disruptive Beats  Curated List of Music Mutators</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-google-pixel-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Google Pixel 8 | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-europe-201/"><u>AI Europe 201</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ameliorer-les-resultats-de-la-robotique-de-processus-assistee-par-ordinateur-rpa-analyse-et-techniques-avancees-chez-abbyy/"><u>Améliorer Les Résultats De La Robotique De Processus Assistée Par Ordinateur (RPA) - Analyse Et Techniques Avancées Chez ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/at-leading-annual-summit-abbyy-showcases-advanced-ml-and-ai-technologies-for-future-success/"><u>At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-website-performance-with-cookiebot-integration-the-key-to-successful-seo-strategies/"><u>Boost Website Performance with Cookiebot Integration - The Key to Successful SEO Strategies</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/cant-view-mkv-movies-content-on-motorola-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Can’t view MKV movies content on Motorola</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-automation-enhancing-your-digital-marketing-efforts/"><u>Cookiebot-Driven Automation: Enhancing Your Digital Marketing Efforts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-solutions-enhanced-site-traffic-and-conversion/"><u>Cookiebot-Driven Solutions | Enhanced Site Traffic & Conversion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-websites-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's Analytics & Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-boosting-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Boosting Your Site with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-the-backbone-of-personalized-web-interactions/"><u>Cookiebot: The Backbone of Personalized Web Interactions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-the-efficient-and-smart-powering-behind-your-web-analytics/"><u>Cookiebot: The Efficient and Smart Powering Behind Your Web Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cut-invoice-processing-time-in-half-using-norco-technology/"><u>Cut Invoice Processing Time in Half Using Norco Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/detailed-privacy-and-protection-overview-your-guide-to-enhanced-security-measures/"><u>Detailed Privacy and Protection Overview: Your Guide to Enhanced Security Measures</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/discovering-abbyy-teams-of-athletes-more-than-just-their-profession/"><u>Discovering ABBYY Teams of Athletes: More than Just Their Profession</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effortless-bill-settlement-with-abbyy-enabled-mobile-banking-application/"><u>Effortless Bill Settlement with ABBYY-Enabled Mobile Banking Application</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effortless-business-automation-harnessing-the-power-of-zero-coding-ai-tools/"><u>Effortless Business Automation: Harnessing the Power of Zero-Coding AI Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-digital-marketing-with-the-cookiebot-advantage/"><u>Enhance Your Digital Marketing with the Cookiebot Advantage</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-site-performance-with-the-help-of-cookiebot-technology/"><u>Enhanced Site Performance with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-business-results-three-key-strategies-with-ai-and-smart-automation/"><u>Enhancing Business Results: Three Key Strategies with AI & Smart Automation</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-advanced-audience-engagement-using-smart-tracking-cookiebot-technology/"><u>Experience Advanced Audience Engagement Using Smart Tracking - Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/geschwindige-zollabwicklung-warentransport-von-uk-nach-eu-beschleunigt-auf-unter-5-minuten/"><u>Geschwindige Zollabwicklung: Warentransport Von UK Nach EU Beschleunigt Auf Unter 5 Minuten</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/get-abbyy-textgrabber-free-new-on-the-fly-translating-capabilities-for-android-devices/"><u>Get ABBYY TextGrabber Free: New On-the-Fly Translating Capabilities for Android Devices</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-oppo-k11x-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Oppo K11x | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sign-a-pdf-v13-document-with-digital-signature-app-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to sign a PDF v1.3 document with digital signature app</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-oppo-find-x7-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Oppo Find X7 to New Phone | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Nokia G310 | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-pixel-humorist-tools-kapwings-meme-mastery/"><u>In 2024, Pixel Humorist Tools  Kapwing’s Meme Mastery</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-enhanced-user-experience-websites-boosted-using-the-powerful-cookiebot-platform/"><u>Leverage Enhanced User Experience: Websites Boosted Using the Powerful Cookiebot Platform</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-cookiebot-technology-for-improved-website-engagement/"><u>Leveraging Cookiebot Technology for Improved Website Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/master-your-connections-using-ios-12-features-for-business-cards-tips-from-abbyb-log/"><u>Master Your Connections Using iOS 12 Features for Business Cards - Tips From ABBYB Log</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximize-engagement-with-advanced-analytics-the-cookiebot-integration-advantage/"><u>Maximize Engagement with Advanced Analytics: The Cookiebot Integration Advantage</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximizing-page-visibility-a-guide-to-advanced-seo-techniques/"><u>Maximizing Page Visibility: A Guide to Advanced SEO Techniques</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimize-with-cookiebot-advanced-tools-for-superior-web-engagement-and-personalization/"><u>Optimize With Cookiebot: Advanced Tools for Superior Web Engagement and Personalization</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-enhancing-your-sites-visibility/"><u>Optimized with Cookiebot Technology: Enhancing Your Site's Visibility</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-the-latest-from-cookiebot-enhance-your-websites-analytics-today/"><u>Optimized with the Latest From Cookiebot: Enhance Your Website's Analytics Today!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-microsoft-sharepoint-workflows-with-cutting-edge-ocr-capabilities-from-abbyy-experts/"><u>Optimizing Microsoft SharePoint Workflows with Cutting-Edge OCR Capabilities From ABBYY Experts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-web-experiences-with-advanced-cookiebot-technology/"><u>Optimizing Web Experiences with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/peak-matrix-2019-abbyy-stands-out-in-everest-groups-rankings-of-leading-idp-tools-and-applications/"><u>Peak Matrix™ 2019: ABBYY Stands Out in Everest Group's Rankings of Leading IDP Tools and Applications</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/protect-your-data-understanding-the-abbyy-cloud-agreement-for-gdpr-adherence/"><u>Protect Your Data: Understanding the ABBYY Cloud Agreement for GDPR Adherence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/the-future-of-digital-transformation-insights-from-the-2018-abbyy-technology-summit-on-content-intelligence/"><u>The Future of Digital Transformation: Insights From the 2018 ABBYY Technology Summit on Content Intelligence</u></a></li>
-<li><a href="https://fox-access.techidaily.com/the-ultimate-guide-to-kinemaster-usage-and-top-alternative-platforms/"><u>The Ultimate Guide to KineMaster Usage and Top Alternative Platforms</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-6-must-read-digital-intelligence-insights-of-2020-featured-on-the-abbyy-blog/"><u>Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/universitat-zurich-optimiert-prufungen-mit-abbyy-flexicapture-korrektursystem/"><u>Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unlocking-myths-why-cracking-todays-advanced-conversational-ais-like-gpt-3-remains-a-challenge/"><u>Unlocking Myths: Why Cracking Today's Advanced Conversational AIs Like GPT-3 Remains a Challenge</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iuocreodoplusodgplusoctplusodpeodleodreodvoacgombqewmluaipuevptog44ki44ow44ot44o86kqn5a6a44ob44kn44od44kv44oq44k544oi44gn6kal44gk44gr44kl5paw44gx44ge5lql5qw25/"><u>キャッシュフロー最適化戦略: アブビー認定チェックリストで見つける新しい事業機会</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-enhance-photo-clarity-with-snapchats-zoom-function-for-2024/"><u>[New] Enhance Photo Clarity with Snapchat's Zoom Function for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-2023-twitter-trends-the-most-engaged-viewers/"><u>[New] In 2024, 2023 Twitter Trends The Most Engaged Viewers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-top-vr-bike-games-a-compreayers-guide-for-2024/"><u>[New] TOP VR Bike Games A Compreayer’s Guide for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-ios-screen-recording-a-no-nonsense-approach/"><u>[Updated] 2024 Approved IOS Screen Recording A No-Nonsense Approach</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-lost-video-steps-to-fix-sony-a6400-problem/"><u>[Updated] 2024 Approved Lost Video Steps to Fix Sony A6400 Problem</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-instant-video-playback-on-fb-enabling-auto-play-of-youtube-videos-for-2024/"><u>[Updated] Instant Video Playback on FB Enabling Auto-Play of Youtube Videos for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/comment-un-logiciel-dabbyy-optimise-le-travail-des-cabinets-davocats-londoniens-pour-la-gestion-efficace-de-procedures-essentielles/"><u>Comment Un Logiciel D'ABBYY Optimise Le Travail Des Cabinets D’avocats Londoniens Pour La Gestion Efficace De Procédures Essentielles</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-elevate-your-sites-user-experience/"><u>Cookiebot-Enabled Analytics: Elevate Your Site's User Experience</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-user-experience-enhancement/"><u>Cookiebot-Enabled User Experience Enhancement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-cutting-edge-analytics/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Cutting-Edge Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-drive-better-conversions-with-smart-traffic/"><u>Cookiebot-Enhanced: Drive Better Conversions with Smart Traffic</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/drive-engagement-using-the-advanced-capabilities-of-cookiebot/"><u>Drive Engagement Using the Advanced Capabilities of Cookiebot</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-realme-c67-4g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Realme C67 4G Phone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unmatched-5-ios-backdrop-change-solutions-iphone-x87/"><u>In 2024, Unmatched 5 iOS Backdrop Change Solutions (iPhone X/8/7)</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/pushing-pc-limitations-to-run-intel-driver-effectively/"><u>Pushing PC Limitations to Run Intel Driver Effectively</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

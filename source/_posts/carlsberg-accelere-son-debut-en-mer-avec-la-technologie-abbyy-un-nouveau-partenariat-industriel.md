@@ -1,34 +1,16 @@
 ---
 title: "Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel"
-date: 2024-09-08T23:36:37.247Z
-updated: 2024-09-09T23:36:37.247Z
+date: 2024-09-10T18:34:48.527Z
+updated: 2024-09-14T18:14:04.123Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f3da9d43f76b9f516093793d9516d9565ec88b7802cbf1d4cc94115fe3f93e52.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Carlsberg s’appuie sur ABBYY pour accélérer la mise sur le marché de ses produits
 
 20 septembre 2022
@@ -37,12 +19,6 @@ thumbnail: https://thmb.techidaily.com/f3da9d43f76b9f516093793d9516d9565ec88b780
 
 ![15040 Carlsberg Blog](https://static1.abbyy.com/abbyycommedia/35962/15040_carlsberg_blog.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Le groupe Carlsberg digitalise ses processus de commande et de livraison via les solutions d’Intelligent Document Processing (IDP) d’ABBYY._
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/), multinationale spécialisée dans l’Intelligent Process Automation, équipe le [Groupe Carlsberg](https://www.carlsberggroup.com/) avec ses solutions d’Intelligent Document Processing (IDP). Ainsi, le groupe brassicole présent mondialement automatise ses processus de commande et de livraison. L’entreprise optimise ainsi ses délais de commercialisation ainsi que la satisfaction de ses clients. En accélérant la stratégie de transformation digitale de Carlsberg, les solutions d'ABBYY permettent au groupe d'augmenter l'efficacité de ses workflows et d'améliorer la productivité de ses équipes. Désormais, Carlsberg pourra de manière nettement plus rapide approvisionner en bière plus de 150 marchés.
@@ -64,34 +40,16 @@ _Neil Murphy, Directeur channel monde, ABBYY._
 La solution d'Intelligent Process Automation d'ABBYY comprend des technologies de pointe en matière d'Intelligence Document Processing (IDP), de Process Mining et de Task Mining. Parmi ces solutions figure [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/), la première plateforme Low / No Code du marché qui s’appuie sur l'IA pour analyser les documents de manière simple et rapide. Vantage rend les processus digitaux plus fluides via des fonctionnalités qui permettent de lire, analyser et extraire les informations des documents, aidant ainsi les entreprises à mener à bien leur accélération digitale. Ainsi, les entreprises sont à même de construire automatiquement un jumeau digital interactif de leur processus, de les analyser en temps réel pour identifier les points de friction, et de prédire les résultats à venir ce qui leur permet une meilleure prise de décision en matière d'investissements technologiques.   
 Pour plus d'informations, visitez <https://www.abbyy.com/solutions/intelligent-process-automation-ipa/>.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### À propos d’ABBYY
 
 ABBYY est un acteur référent de l’Intelligent Process Automation. L’entreprise ambitionne de réinventer la manière dont ses clients et leurs équipes se développent en leur apportant la connaissance nécessaire au bon fonctionnement des plateformes d’automatisation. Les solutions d’ABBYY transforment les données d’entreprise dans le but de permettre un gain en agilité et en rapidité. ABBYY aide plus de 10 000 clients dans le monde, dont bon nombre des entreprises du Fortune 500, à obtenir un impact positif dans des domaines majeurs tels que l’expérience client, la rentabilité et la compétitivité.
 
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Contact presse
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Eva-Maria Hufschmitt
 
 _ABBYY_
@@ -106,8 +64,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -117,34 +73,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-from-bland-to-breathtaking-craft-captivating-content-on-tiktok-quickly/"><u>[New] 2024 Approved  From Bland to Breathtaking  Craft Captivating Content on TikTok Quickly</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-7-innovative-approaches-to-color-correction/"><u>[New] 7 Innovative Approaches to Color Correction</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-prime-8-the-elite-select-for-facebook-movies-in-23/"><u>[Updated] 2024 Approved  Prime 8  The Elite Select for Facebook Movies in '23</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-elevates-mariko-maeda-to-leadership-role-president-and-representative-director-for-strengthening-the-japanese-market-presence/"><u>ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-insights-sync-your-wireless-headset-with-ease-and-keep-passwords-protected/"><u>ABBYY Insights: Sync Your Wireless Headset with Ease and Keep Passwords Protected</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-ocr-software-development-kit-advanced-automatic-document-scanning-and-interpretation/"><u>Abbyy OCR Software Development Kit: Advanced Automatic Document Scanning & Interpretation</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-web-application-for-scanning-and-organizing-business-cards-in-the-cloud/"><u>ABBYY Unveils New Web Application for Scanning and Organizing Business Cards in the Cloud</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-anthony-macciola-as-their-latest-appointment-chief-innovation-officer/"><u>ABBYY Welcomes Anthony Macciola as Their Latest Appointment: Chief Innovation Officer</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automated-marketing-mastery-with-cookiebot-technology/"><u>Automated Marketing Mastery with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-ihre-firmenproduktivitat-mit-der-digitalisierung-vernichtet-den-papier-aktenkeller/"><u>Boost Ihre Firmenproduktivität Mit Der Digitalisierung - Vernichtet Den Papier-Aktenkeller!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-your-site-with-cookiebots-powerful-analytics/"><u>Boost Your Site with Cookiebot's Powerful Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-your-traffic-with-cookiebots-powerful-tracking-technology/"><u>Boost Your Traffic with Cookiebot's Powerful Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/breaking-down-abbyy-omzets-successful-year-of-2abbreviation-benelux-metrics-reflect-a-23-upsurge-in-2019/"><u>Breaking Down ABBYY OMZET's Successful Year of 2Abbreviation; Benelux Metrics Reflect a 23%% Upsurge in 2019</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-unlocking-advanced-audience-targeting-features/"><u>Cookiebot-Driven Insights: Unlocking Advanced Audience Targeting Features</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience-with-tailored-content/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience with Tailored Content</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-site-enhance-your-digital-marketing-efforts/"><u>Cookiebot-Enabled Site: Enhance Your Digital Marketing Efforts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-boost-your-online-traffic-and-engagement/"><u>Cookiebot-Enabled Sites: Boost Your Online Traffic and Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-site-performance/"><u>Cookiebot-Enhanced Site Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhance-your-site-with-powerful-tracker-technology/"><u>Cookiebot: Enhance Your Site with Powerful Tracker Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhancing-your-website-with-smart-tracking-technology/"><u>Cookiebot: Enhancing Your Website with Smart Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/customized-advertising-with-the-advanced-capabilities-of-cookiebot/"><u>Customized Advertising with the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/die-neuesten-mining-fahigkeiten-von-abbyy-timeline-cu-verbesserte-integration-von-menschlichen-ressourcen-prozessen-und-inhalten/"><u>Die Neuesten Mining-Fähigkeiten Von ABBYY Timeline Cu: Verbesserte Integration Von Menschlichen Ressourcen, Prozessen Und Inhalten</u></a></li>
-<li><a href="https://common-error.techidaily.com/diy-fixes-for-non-functional-hp-laptop-cameras-in-the-windows-10-operating-system/"><u>DIY Fixes for Non-Functional HP Laptop Cameras in the Windows 10 Operating System</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Tecno Spark 20 | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-honor-magic-6-pro-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Honor Magic 6 Pro</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Oppo A1x 5G | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-password-cracking-tools-for-vivo-y200-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Vivo Y200</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-create-a-digital-doppelganger-free-online-generators/"><u>New 2024 Approved Create a Digital Doppelganger Free Online Generators</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1721890310329-revolutionize-your-mobile-search-experience-on-android-and-ios-using-bings-smart-ai-feature/"><u>Revolutionize Your Mobile Search Experience on Android and iOS Using Bing's Smart AI Feature</u></a></li>
-<li><a href="https://win11.techidaily.com/winrar-file-integrity-6-strategies-for-checksum-precision/"><u>WinRAR File Integrity: 6 Strategies for Checksum Precision</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-boosting-youtube-income-using-studio-anywhere-anyhow-for-2024/"><u>[New] Boosting YouTube Income Using Studio Anywhere, Anyhow for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-effortless-webcam-recordings-on-hp-systems-for-2024/"><u>[New] Effortless Webcam Recordings on HP Systems for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1-unleash-video-magic-mastering-spectacular-effects-and-filters/"><u>1. Unleash Video Magic: Mastering Spectacular Effects & Filters</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724313274377-abbyy/"><u>ABBYYチェッカリスト - 金融市場で勝ち抜くための強化戦略</u></a></li>
+<li><a href="https://games-able.techidaily.com/replay-classics-your-journey-through-segas-dreamcatcher-on-android/"><u>Replay Classics: Your Journey Through Sega's Dreamcatcher on Android</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

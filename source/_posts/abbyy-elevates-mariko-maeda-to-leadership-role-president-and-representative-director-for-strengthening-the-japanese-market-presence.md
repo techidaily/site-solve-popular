@@ -1,60 +1,24 @@
 ---
 title: "ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence"
-date: 2024-09-08T23:36:34.220Z
-updated: 2024-09-09T23:36:34.220Z
+date: 2024-09-13T17:05:11.126Z
+updated: 2024-09-14T21:21:28.389Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf94f405ab42db14407ed62e05.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Appoints Mariko Maeda President and Representative Director of ABBYY Japan to Grow Japanese market
 
 April 14, 2022
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Mariko Maeda 848X444](https://static4.abbyy.com/abbyycommedia/35508/april14-848x444.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY, an intelligent automation company focused on providing intelligent document processing (IDP) and process mining solutions, is pleased to announce that Mariko Maeda has been appointed President and Representative Director of ABBYY Japan Co., Ltd.
 
 Adrian Jones, Chief Revenue Officer (CRO) of ABBYY, said, "I am very pleased to announce that Mariko Maeda has been appointed President and Representative Director of Japan. She has been a senior leader in the enterprise and held senior positions at Dow Jones Japan, Thomson Reuters, Automation Anywhere and GreyOrange. She has a passion and deep understanding of the Japanese intelligent automation market and with domestic and foreign financial institutions, major business corporations, government agencies, and major consulting companies. Mariko is the right person to accelerate the expansion of the Japanese market with her energy and enthusiasm for technology. We look forward to helping the Japanese team achieve their goals, acquiring new customers, increasing the satisfaction of existing customers, and increasing our presence in the Japanese market."
@@ -67,12 +31,6 @@ Before joining ABBYY, Mariko Maeda had overseen the Japanese and Korean teams at
 
 \[1\] IDC Worldwide Intelligent Process Automation Software Forecast, 2021-2025; July 2021 #US48015622
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY powers intelligent automation. We reimagine the way people work and how companies accelerate business by delivering the intelligence that fuels automation platforms. Our solutions transform enterprise data and empower you with the insights you need to work smarter and faster. 
@@ -87,12 +45,6 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 _Director of Global Public Relations_
@@ -107,8 +59,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -118,35 +68,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-step-by-step-share-youtube-clips-on-instagram/"><u>[Updated] 2024 Approved  Step-by-Step  Share YouTube Clips on Instagram</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-guide-to-effortless-acquisition-of-exquisite-royalty-free-images/"><u>[Updated] The Guide to Effortless Acquisition of Exquisite Royalty-Free Images</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-with-advanced-automated-marketing-solutions-from-cookiebot/"><u>Driven with Advanced Automated Marketing Solutions From Cookiebot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effective-strategies-to-improve-page-visibility-in-google-search-results/"><u>Effective Strategies to Improve Page Visibility in Google Search Results</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/efficient-session-management-and-targeting-through-cutting-edge-cookiebot-solutions/"><u>Efficient Session Management and Targeting Through Cutting-Edge Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-business-excellence-by-mastering-process-mapping-assessment-and-simulation-tactics/"><u>Elevate Business Excellence by Mastering Process Mapping, Assessment & Simulation Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevating-industry-standards-ap-automation-success-story-of-siemens-and-abbyy/"><u>Elevating Industry Standards: AP Automation Success Story of Siemens and ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-collaboration-effortlessly-using-abbyy-timeline-5s-new-task-mining-technology/"><u>Enhance Collaboration Effortlessly Using ABBYY Timeline 5’S New Task Mining Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-web-personalization-with-the-power-of-cookiebot-technology/"><u>Enhance Web Personalization with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-marketing-analytics-using-cookiebot-technology/"><u>Enhance Your Marketing Analytics Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-engagement-with-cookiebot-technology-integration/"><u>Enhancing Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evolving-towards-process-intelligence-insightful-strategies-from-abbyys-leading-expert/"><u>Evolving Towards Process Intelligence: Insightful Strategies From ABBYY's Leading Expert</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-artificial-intelligence-frontiers-at-abbyy-event-shaping-tomorrows-tech-landscape/"><u>Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-customization-and-seo-success/"><u>Harnessing the Power of Cookiebot for Advanced Site Customization and SEO Success</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Vivo G2 | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-inside-the-world-of-zdsoft-video-capturing/"><u>In 2024, Inside the World of ZDSoft Video Capturing</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-is-your-apple-iphone-6s-plus-in-security-lockout-proper-ways-to-unlock-by-drfone-ios/"><u>In 2024, Is Your Apple iPhone 6s Plus in Security Lockout? Proper Ways To Unlock</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-vivo-y200e-5g-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Vivo Y200e 5G to iOS not Working Problems | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-herangehensweisen-an-die-prozessanalytik-ein-detaillierter-vergleich-zwischen-den-fuhrenden-methoden-pdf-abbyy/"><u>Innovative Herangehensweisen an Die Prozessanalytik: Ein Detaillierter Vergleich Zwischen Den Führenden Methoden (PDF) - ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-strategies-needed-adapting-trade-finance-for-emerging-market-hurdles/"><u>Innovative Strategies Needed: Adapting Trade Finance for Emerging Market Hurdles</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/innovative-techniques-for-iphone-image-compilation/"><u>Innovative Techniques for iPhone Image Compilation</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/integrity-and-ethics/"><u>Integrity and Ethics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/interactive-online-conference-expert-tips-and-strategies-for-streamlining-accounts-payable-operations/"><u>Interactive Online Conference: Expert Tips & Strategies for Streamlining Accounts Payable Operations</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/learn-to-record-high-quality-audio-with-audacity-mac/"><u>Learn to Record High-Quality Audio with Audacity, Mac</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-cutting-edge-tracking-tools-for-enhanced-performance-and-engagement/"><u>Leveraging Cutting-Edge Tracking Tools for Enhanced Performance and Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-initial-paperwork-through-vantage-solutions/"><u>Mastering the Art of Initial Paperwork Through Vantage Solutions</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/quip-quarterly-event-oriented-joke-anthology/"><u>Quip Quarterly  Event-Oriented Joke Anthology</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-shaky-footage-no-problem-fcpx-video-stabilization-tips/"><u>Updated Shaky Footage? No Problem! FCPX Video Stabilization Tips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unlocking-channel-mastery-with-studio-power-ups/"><u>[Updated] In 2024, Unlocking Channel Mastery with Studio Power-Ups</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-seamless-online-sound-conversion-ideal-tools-for-iphone-and-youtube-mp3s/"><u>[Updated] Seamless Online Sound Conversion Ideal Tools for iPhone and YouTube MP3s</u></a></li>
+<li><a href="https://fox-links.techidaily.com/advanced-editing-for-professional-photographers-time-stamping-tactics/"><u>Advanced Editing for Professional Photographers Time-Stamping Tactics</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/elevated-home-assistant-experience-with-amazons-4th-generation-echo-a-review/"><u>Elevated Home Assistant Experience with Amazon's 4Th Generation Echo – A Review</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-accounting-efficiency-with-advanced-automated-solutions/"><u>Enhancing Accounting Efficiency with Advanced Automated Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-financial-stability-with-ai-driven-bank-compliance-measures-and-resilience-tactics/"><u>Enhancing Financial Stability with AI-Driven Bank Compliance Measures and Resilience Tactics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-robotic-process-automation-efficiency-with-advanced-process-analytics-insights-from-the-abbyy-experience/"><u>Enhancing Robotic Process Automation Efficiency with Advanced Process Analytics: Insights From the ABBYY Experience</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-tools/"><u>Enhancing User Experience Through Smart Data Collection Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-a-look-into-the-efficiency-of-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Data Collection: A Look Into the Efficiency of Cookiebot Solutions</u></a></li>
+<li><a href="https://win-blog.techidaily.com/master-the-art-of-fixing-pc-instability-during-starfield-gameplay-an-expert-guide/"><u>Master the Art of Fixing PC Instability During Starfield Gameplay: An Expert Guide</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-easily-trim-cut-and-merge-avi-files-on-windows-8-2023-guide/"><u>New 2024 Approved Easily Trim, Cut, and Merge AVI Files on Windows 8 - 2023 Guide</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/no-cost-guide-convert-into-the-woods-dvd-into-mp4-format-at-home/"><u>No Cost Guide: Convert 'Into the Woods' DVD Into MP4 Format at Home</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-10-iphone-virtual-reality-games-for-next-level-play/"><u>Top 10 IPhone Virtual Reality Games for Next Level Play</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

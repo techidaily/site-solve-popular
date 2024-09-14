@@ -1,46 +1,22 @@
 ---
 title: Breaking Down ABBYY OMZET's Successful Year of 2Abbreviation; Benelux Metrics Reflect a 23%% Upsurge in 2019
-date: 2024-09-08T23:36:34.381Z
-updated: 2024-09-09T23:36:34.381Z
+date: 2024-09-11T20:35:31.086Z
+updated: 2024-09-14T19:33:51.834Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/20681dc3787d86713afd2395e0942d0819f5bca12434956d1fe5521df7d6718e.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Breaking Down ABBYY OMZET's Successful Year of 2Abbreviation; Benelux Metrics Reflect a 23% Upsurge in 2019
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Omzet ABBYY in 2019 met 23% gestegen in Benelux
 
 March 24, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Digital Intelligence-specialist ABBYY zag in het boekjaar 2019 zijn wereldwijde omzet opnieuw met dubbele cijfers stijgen. In de Benelux ging de omzet zelfs met circa 23 procent de hoogte in. Die groei werd vooral gerealiseerd door de omzet uit RPA-integraties en strategische partnerships. Een andere succesfactor was de uitbreiding van het productportfolio na de overname van TimelinePI, nu [ABBYY Timeline](https://tools.techidaily.com/abbyy/products/), het enige end-to-end Process Intelligence-platform.
 
 ABBYY zag in het boekjaar 2019 een sterke omzetgroei voor zijn oplossingen binnen de markt voor Robotic Process Automation (RPA). De totale jaaromzet vanuit RPA-partnerships, integraties en de verkoop van licenties aan fabrikanten steeg met 210 procent. ABBYY heeft momenteel meer dan vijftig RPA-partners, waaronder [UiPath](https://tools.techidaily.com/abbyy/products/), [Blue Prism](https://tools.techidaily.com/abbyy/products/), NICE, [Robiquity](https://tools.techidaily.com/abbyy/products/) en [Sprint Reply](https://tools.techidaily.com/abbyy/products/), waarbij verschillende partnerships vaak voor meer [klantadoptie](https://tools.techidaily.com/abbyy/products/) zorgen. 
@@ -76,8 +52,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -87,34 +61,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-punchline-creator-suite/"><u>[New] Punchline Creator Suite</u></a></li>
-<li><a href="https://network-issues.techidaily.com/resolved-bridging-the-online-gap-in-cod-cold-war-2024/"><u>[RESOLVED] Bridging the Online Gap in CoD Cold War 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-live-stream-longevity-preventing-and-fixing-interruptions-on-social-media/"><u>[Updated] 2024 Approved  Live Stream Longevity  Preventing and Fixing Interruptions on Social Media</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-maximize-your-youtube-shorts-earnings-for-2024/"><u>[Updated] How to Maximize Your YouTube Shorts Earnings for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-expert-round-up-the-most-effective-9-digital-recorders/"><u>[Updated] In 2024, Expert Round-Up  The Most Effective 9 Digital Recorders</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/combining-power-of-abbyy-with-alteryx-for-enhanced-data-management-and-process-automation-solutions/"><u>Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-fuels-our-sites-intelligence-discover-the-smart-technology-driving-us/"><u>Cookiebot Fuels Our Site's Intelligence: Discover the Smart Technology Driving Us!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-analytics-unleashing-website-personalization-and-targeting/"><u>Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-personalization-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Driven Personalization: Enhance User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-solutions/"><u>Cookiebot-Enabled Analytics Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-website-with-advanced-tracking/"><u>Cookiebot-Enabled: Optimize Your Website with Advanced Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-workforce-corporate-change-and-business-transformation/"><u>Digital Workforce, Corporate Change, and Business Transformation.</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/1722860049330-discover-the-ultimate-list-of-gmails-fastest-typing-tricks/"><u>Discover the Ultimate List of Gmail's Fastest Typing Tricks!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-with-advanced-automated-marketing-solutions-from-cookiebot/"><u>Driven with Advanced Automated Marketing Solutions From Cookiebot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effective-strategies-to-improve-page-visibility-in-google-search-results/"><u>Effective Strategies to Improve Page Visibility in Google Search Results</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/efficient-session-management-and-targeting-through-cutting-edge-cookiebot-solutions/"><u>Efficient Session Management and Targeting Through Cutting-Edge Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-business-excellence-by-mastering-process-mapping-assessment-and-simulation-tactics/"><u>Elevate Business Excellence by Mastering Process Mapping, Assessment & Simulation Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevating-industry-standards-ap-automation-success-story-of-siemens-and-abbyy/"><u>Elevating Industry Standards: AP Automation Success Story of Siemens and ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-collaboration-effortlessly-using-abbyy-timeline-5s-new-task-mining-technology/"><u>Enhance Collaboration Effortlessly Using ABBYY Timeline 5’S New Task Mining Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-web-personalization-with-the-power-of-cookiebot-technology/"><u>Enhance Web Personalization with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-marketing-analytics-using-cookiebot-technology/"><u>Enhance Your Marketing Analytics Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-engagement-with-cookiebot-technology-integration/"><u>Enhancing Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evolving-towards-process-intelligence-insightful-strategies-from-abbyys-leading-expert/"><u>Evolving Towards Process Intelligence: Insightful Strategies From ABBYY's Leading Expert</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revolutionizing-performance-the-2020-apple-macbook-air-with-m1-chip-unveiled/"><u>Revolutionizing Performance: The 2020 Apple MacBook Air with M1 Chip Unveiled</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-art-of-blending-music-into-your-ig-visuals/"><u>The Art of Blending Music Into Your IG Visuals</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/webex-virtual-conferencing-a-comprehensive-guide-to-its-advantages-and-disadvantages/"><u>WebEx Virtual Conferencing: A Comprehensive Guide to Its Advantages & Disadvantages</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-best-no-pressure-pc-games-guide-for-2024/"><u>[New] Best No-Pressure PC Games Guide for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-masterful-modulation-how-to-switch-up-your-characters-speech-in-free-fire/"><u>[Updated] In 2024, Masterful Modulation How to Switch Up Your Character's Speech in Free Fire</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-photo-cartoony-kick-cross-platform-windows-and-mac-software/"><u>[Updated] In 2024, Photo Cartoony Kick Cross-Platform Windows & Mac Software</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-your-digital-presence-using-cookiebots-advanced-solutions/"><u>Elevate Your Digital Presence Using Cookiebot's Advanced Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-user-experience-with-our-cookiebot-integration-solutions/"><u>Enhance User Experience with Our Cookiebot Integration Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-customer-insights-with-the-help-of-cookiebot-technology/"><u>Enhanced Customer Insights with the Help of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-marketing-precision-via-cookiebot-driven-insights/"><u>Enhanced Marketing Precision via Cookiebot-Driven Insights</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-ocr-solutions-boost-efficiency-in-top-tier-construction-information-firm/"><u>Enhanced OCR Solutions Boost Efficiency in Top-Tier Construction Information Firm</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/exploring-stardews-best-modifications-a-list-of-the-top-7/"><u>Exploring Stardew's Best Modifications A List of the Top 7</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-how-can-you-create-animated-facebook-ads-with-high-roi/"><u>In 2024, How Can You Create Animated Facebook Ads With High ROI?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-delete-icloud-account-with-or-without-password-from-your-iphone-11-pro-maxwindowsmac-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account with or without Password from your iPhone 11 Pro Max/Windows/Mac</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

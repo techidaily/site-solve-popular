@@ -1,34 +1,16 @@
 ---
 title: "Enhancing Business Results: Three Key Strategies with AI & Smart Automation"
-date: 2024-09-08T23:36:36.073Z
-updated: 2024-09-09T23:36:36.073Z
+date: 2024-09-07T16:19:13.187Z
+updated: 2024-09-14T17:57:01.324Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4116c8792bda40459f2d1e2a1bd6affbce6e7196ef5949783c79461a680de11c.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Enhancing Business Results: Three Key Strategies with AI & Smart Automation
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Positive Business Outcomes Require Trustworthy AI and Intelligent Process Automation
 
 ###### Andrew Pery
@@ -56,12 +38,6 @@ COVID-19 accelerated the trend toward AI-powered chatbots, virtual financial ass
 
 ![AI in Business - woman on phone](https://static1.abbyy.com/abbyycommedia/33513/customer-experience-new.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 These inherent benefits notwithstanding, the roundtable discussion raised a number of challenges. Chief among them is [continued consumer distrust of AI technologies](https://www.biometricupdate.com/201906/survey-shows-biometrics-not-trusted-or-understood-by-majority-of-consumers) and how their ubiquitous nature impacts privacy and security rights, with 30% of survey respondents indicating that they would be more comfortable sharing their biometric information if their financial service providers provided more transparency in explaining how their information is collected, managed, and secured. Another challenge discussed was the development and adoption of international standards iii for digital identity management and the need for collaboration iv among diverse stakeholders, including regulators. Consumers also need to have better control over their digital identities.
 
 Today, digital identity management is typically a centralized process, which is prone to cyberattacks and to privacy breaches. There is momentum toward a more [decentralized digital identity management](https://venturebeat.com/2022/02/19/decentralized-identity-solutions-could-bring-true-ownership-and-security-to-gaming/) framework that gives consumers more control over their own digital identities without dependence on third-party service providers.
@@ -71,6 +47,19 @@ Today, digital identity management is typically a centralized process, which is 
 While, according to The OECD’s tracker on national AI policies, there are over 700 AI regulatory initiatives under development in over 60 countries, there are no legislatively mandated AI regulations in place. There are, however, voluntary codes of conduct and ethical AI principles developed by international standards organizations such as the Institute of Electrical and Electronic Engineers (“IEEE”) v and the National Institute of Standards and Technology (NIST) vi. However, the AI regulatory framework is rapidly evolving. AI regulation is inevitable, as evidenced by recent developments by the European Commission, Canadian Federal Government, US Federal Trade Commission (FTC), Consumer Financial Protection Bureau (CFPB), and The Federal Reserve Board. They are all flexing their regulatory muscles through their enforcement mechanisms to protect consumers against adverse impacts arising from the increased applications that may result in discriminatory outcomes, albeit, unintended. The bottom line is that implementation of AI governance best practices is no longer a nice to have initiative, but an imperative.
 
 [Learn more about ABBYY's guiding principles for fostering the development, productization, and marketing of trustworthy AI.](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Democratization of AI: How AI is rapidly proliferating from a highly technical domain of data scientists to line of business users
 
@@ -83,17 +72,12 @@ _Sean O'Brien_
 As Sean O’Brien ix, an academic at Yale Law School and the founder of Yale’s Privacy Lab, recently warned: “Low code can be like fast food: delivered quickly and in bright packaging, but bad for you, your community, and your ecosystem.” It is important that while no-code / low-code AI development delivers inherent efficiency improvements and time to value, its implementation must include comprehensive testing to ensure that it performs in accordance with initial design objectives, removes potential bias in the training data set, and is secure from adversarial AI attacks that can undermine AI algorithmic outcomes.
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Three recommendations organizations may want to consider to fully benefit from the business value of AI technologies
 
 #### 1\. Take a data-driven approach 
@@ -102,12 +86,6 @@ A data-driven approach assists in determining where the applications of AI techn
 
 ![AI in Business - Whiteboard session with a group of people, one standing and four others sitting at table](https://static1.abbyy.com/abbyycommedia/33533/brainstorm-whiteboard-1-new.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### 2\. Combine task mining and process mining 
 
 Second, the combination of task mining and [process mining](https://tools.techidaily.com/abbyy/products/) can further help organizations gain insight to end-to-end process execution by visualizing the flow of work through the process stages and see the delays, bottlenecks, and outliers. Process mining gives line of business facts and figures from real-time event log data to back up their decisions, assess the value of AI automation opportunities, continuously monitor the performance of AI systems, and combine process mining with machine learning and artificial intelligence to achieve highly integrated and fully automated insights to forecast processes in their future state, and take action to ensure positive outcomes.
@@ -152,12 +130,6 @@ Andrew Pery is an AI Ethics Evangelist at intelligent automation company [ABBYY]
 
 Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-cipp-c-cipp-e-3a536726/).
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -212,8 +184,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -223,39 +193,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/updated-androidios-video-cutting-edge-8-top-montage-tools-revealed/"><u>[Updated] Android/iOS Video Cutting-Edge  8 Top Montage Tools Revealed</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-crimson-classic-codec-for-2024/"><u>[Updated] Crimson Classic Codec for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-leveraging-engagement-for-higher-facebook-profile-visibility/"><u>[Updated] In 2024, Leveraging Engagement for Higher Facebook Profile Visibility</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-rapid-access-accelerating-vimeo-videos/"><u>[Updated] Rapid Access  Accelerating Vimeo Videos</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-mastering-alias-update-on-google-meet-devices/"><u>2024 Approved  Mastering Alias Update on Google Meet Devices</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-elevates-mariko-maeda-to-leadership-role-president-and-representative-director-for-strengthening-the-japanese-market-presence/"><u>ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-insights-sync-your-wireless-headset-with-ease-and-keep-passwords-protected/"><u>ABBYY Insights: Sync Your Wireless Headset with Ease and Keep Passwords Protected</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-automatisierte-intelligenz-innovative-losungen-auf-der-expo-fur-dienstleistungsverlagerung-und-konsolidierung/"><u>ABBYY-Automatisierte Intelligenz: Innovative Lösungen Auf Der Expo Für Dienstleistungsverlagerung Und Konsolidierung</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724313274377-abbyy/"><u>ABBYYチェッカリスト - 金融市場で勝ち抜くための強化戦略</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-with-advanced-cookiebot-technology/"><u>Enhancing User Experience with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/excellence-recognized-and-best-practices-established/"><u>Excellence Recognized and Best Practices Established!</u></a></li>
-<li><a href="https://win-blog.techidaily.com/expert-tips-on-troubleshooting-chivalry-ii-stability-problems/"><u>Expert Tips on Troubleshooting Chivalry II Stability Problems</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/fixing-netflix-connectivity-problems-on-roku-a-step-by-step-guide/"><u>Fixing Netflix Connectivity Problems on Roku - A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/from-alpine-adventures-to-digital-signatures-the-abbyy-guide-on-smartwatch-innovations-and-skiing-apps/"><u>From Alpine Adventures to Digital Signatures: The ABBYY Guide on Smartwatch Innovations and Skiing Apps</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/from-scenes-to-screenings-filming-across-os-ecosystems-for-2024/"><u>From Scenes to Screenings  Filming Across OS Ecosystems for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/havit-nvana-5-gaming-laptop-stand-review-ultimate-airflow-management-with-five-speed-settings-and-usb-charge-support/"><u>HAVIT nVana 5 Gaming Laptop Stand Review: Ultimate Airflow Management with Five Speed Settings and USB Charge Support</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-efficient-voice-tracking-techniques-on-ipad/"><u>In 2024, Efficient Voice Tracking Techniques on iPad</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-snap-motion-blur-photos-effortlessly-with-iphone-techniques/"><u>In 2024, Snap Motion-Blur Photos Effortlessly with iPhone Techniques</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovazione-in-cattolica-assicurazioni-con-elaborazione-documentale-intelligente-per-un-miglioramento-dei-servizi/"><u>Innovazione in Cattolica Assicurazioni Con Elaborazione Documentale Intelligente per Un Miglioramento Dei Servizi</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-and-conversion-use-ocr-technology-with-finereader-pdf/"><u>IPhone Document Scanning & Conversion: Use OCR Technology with FineReader PDF</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-smarter-web-presence-and-seo-success/"><u>Leverage Cookiebot Technology for Smarter Web Presence and SEO Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-tracking-discover-the-power-of-cookiebot-technology/"><u>Optimized with Automated Tracking: Discover the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-next-level-analytics-and-conversion-boost/"><u>Optimized With Cookiebot: Next-Level Analytics & Conversion Boost</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/producing-effective-corporate-webinar-videos-for-2024/"><u>Producing Effective Corporate Webinar Videos for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/quick-click-quality-4-simple-steps-to-take-a-chromebook-screenshot/"><u>Quick Click Quality  4 Simple Steps to Take a Chromebook Screenshot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/redefining-accounts-payable-the-synergy-of-automation-and-content-knowledge/"><u>Redefining Accounts Payable: The Synergy of Automation and Content Knowledge</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/robert-youngjohns-steering-vision-as-abbyys-esteemed-board-chair/"><u>Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-audio-advantage-elevating-sound-quality-in-youtube-productions/"><u>The Audio Advantage  Elevating Sound Quality in YouTube Productions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-free-video-editing-learn-to-blur-videos-like-a-pro/"><u>Updated Free Video Editing Learn to Blur Videos Like a Pro</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-crafting-visibility-on-youtube-the-ultimate-guide-to-featured-channel-placement/"><u>[New] 2024 Approved Crafting Visibility on YouTube The Ultimate Guide to Featured Channel Placement</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-advancing-photo-viewing-in-windows-11-merge-artistic-layers-and-soundtracks-for-2024/"><u>[Updated] Advancing Photo Viewing in Windows 11 Merge Artistic Layers and Soundtracks for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-reroute-mac-screenshot-file-destination-for-2024/"><u>[Updated] Reroute Mac Screenshot File Destination for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/detailed-privacy-and-protection-overview-your-guide-to-enhanced-security-measures/"><u>Detailed Privacy and Protection Overview: Your Guide to Enhanced Security Measures</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/discovering-abbyy-teams-of-athletes-more-than-just-their-profession/"><u>Discovering ABBYY Teams of Athletes: More than Just Their Profession</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortless-bill-settlement-with-abbyy-enabled-mobile-banking-application/"><u>Effortless Bill Settlement with ABBYY-Enabled Mobile Banking Application</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortless-business-automation-harnessing-the-power-of-zero-coding-ai-tools/"><u>Effortless Business Automation: Harnessing the Power of Zero-Coding AI Tools</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fixing-realtek-network-not-operational-in-10/"><u>Fixing Realtek Network Not Operational in 10</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/how-to-amplify-your-online-presence-with-google-meets-aesthetic-tools-for-2024/"><u>How to Amplify Your Online Presence with Google Meet's Aesthetic Tools for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Vivo Y100? | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-steps-to-prevent-r-type-final-grogsyndicationerror)r-type-final-2-from-crashing-on-your-computer/"><u>Troubleshooting Steps to Prevent R-Type Final Grog/Syndication_error>R-Type Final 2 From Crashing on Your Computer</u></a></li>
+<li><a href="https://win11.techidaily.com/unleash-joy-essential-list-of-free-media-players-for-windows/"><u>Unleash Joy: Essential List of Free Media Players for Windows</u></a></li>
 </ul></div>
+

@@ -1,54 +1,24 @@
 ---
 title: "ABBYY Global IDPトレンドの最新発表:成果報告書解説"
-date: 2024-09-08T23:36:37.091Z
-updated: 2024-09-09T23:36:37.091Z
+date: 2024-09-13T16:55:33.163Z
+updated: 2024-09-14T18:22:55.749Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7a938c8213dc5d370405bab4afa736e010a188d2f4d2dd7c34adab834ad1c13.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Global IDPトレンドの最新発表:成果報告書解説
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY、オペレーショナルエクセレンスを向上させるための組織の優先事項についてのインサイトを盛り込んだ、インテリジェント文書処理（IDP）のグローバルな動向と成果に関するレポートを発表
 
 6月6日, 2023
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![News Colleagues2](https://static1.abbyy.com/abbyycommedia/33744/news-colleagues2.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYYは今日、インテリジェント文書処理（IDP）のグローバルな動向と成果に関するレポートを発表しました。これは、企業のインテリジェントオートメーションの取り組みにおける文書処理の課題とチャンスに焦点を当てて作成されたものです。 このレポートでは、企業がどのように文書中心のプロセスを最適化し、オペレーショナルエクセレンスを達成し、顧客体験を向上させ、ビジネス価値を加速させているかについての有益なインサイトをまとめ、それをイノベーションリーダーに向けて発信しています。
 
 ABBYYは、10社の独立系アナリスト企業が認めるIDPのリーダーであり、30年にわたり何十億もの文書をデジタル変換し、1万人以上の顧客に実用的なインサイトを提供してきた実績を誇ります。その内部データは世界の動向を示す指標となり得るでしょう。
@@ -87,22 +57,10 @@ ABBYYは、2023年1月から3月までの初期データに基づき、今後、
 
 ABBYY IDPの導入とパーソナライズに関する詳細については、[www.abbyy.com/resources/report/global-intelligent-document-processing-trends-outcomes-report](https://tools.techidaily.com/abbyy/products/)にアクセスして、レポートの全編とインフォグラフィックをダウンロードしてください。
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### ABBYYについて
 
 ABBYYは、貴社の情報を有効に運用するお手伝いをします。 当社のソリューションは、あらゆる文書、あらゆるフォーマット、あらゆる言語、あらゆる時間のデータを、インテリジェントな実用的成果へと変換します。 当社は、世界10,000社以上の企業をサポートし、その中にはフォーチュン500に名を連ねる企業も多数含まれており、最も重要な分野で当社との提携による恩恵を得ることができます。 ABBYYは、米国に本社を置き、世界14カ国にオフィスを構えるグローバル企業です。 詳細については、[www.abbyy.com/ja/company](https://tools.techidaily.com/abbyy/products/)をご参照ください。 [LinkedIn](https://www.linkedin.com/company/abbyy)、[Twitter](https://twitter.com/ABBYY%5FSoftware)、[Facebook](https://www.facebook.com/ABBYYsoft)でのフォローもお待ちしております。
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 報道関係者お問い合わせ先
 
 #### 株式会社井之上パブリックリレーションズ 
@@ -117,8 +75,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -128,57 +84,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-comprehensive-guide-to-whatsapp-vocal-exchange/"><u>[New] 2024 Approved  Comprehensive Guide to WhatsApp Vocal Exchange</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-audio-engineers-guide-switching-from-srt-to-ttml/"><u>[New] 2024 Approved  The Audio Engineer’s Guide  Switching From SRT to TTML</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-navigating-creator-studio-your-expert-manual/"><u>[New] In 2024, Navigating Creator Studio  Your Expert Manual</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-stardews-best-guide-to-ginger-island/"><u>[New] Stardew's Best Guide to Ginger Island</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-best-online-meeting-capture-the-leading-5-gadgets/"><u>[Updated] 2024 Approved  Best Online Meeting Capture  The Leading 5 Gadgets</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-comparing-digital-platform-profits-dailymovement-to-youtube-revenue-for-2024/"><u>[Updated] Comparing Digital Platform Profits  DailyMovement to YouTube Revenue for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-effortless-spotify-to-youtube-playlist-conversion-5-must-have-apps-for-2024/"><u>[Updated] Effortless Spotify-to-YouTube Playlist Conversion  5 Must-Have Apps for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-from-dull-to-vivid-practical-steps-to-revitalize-digital-imagery/"><u>[Updated] From Dull to Vivid  Practical Steps to Revitalize Digital Imagery</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-a-cash-cascade-on-youtube-strategies-beyond-the-ad-model/"><u>[Updated] In 2024, Crafting a Cash Cascade on YouTube  Strategies Beyond the Ad Model</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-get-your-youtube-video-seen-6-easy-steps/"><u>[Updated] In 2024, How to Get Your YouTube Video Seen - 6 Easy Steps</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-the-alphabet-soup-of-online-stream-titles/"><u>[Updated] Mastering the Alphabet Soup of Online Stream Titles</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-youtube-to-webm-the-finest-video-converters-unveiled/"><u>[Updated] YouTube-to-WebM  The Finest Video Converters Unveiled</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-tegakiflexicaptureocr-abbyy/"><u>「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ</u></a></li>
-<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-samsung-galaxy-s23plus-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Samsung Galaxy S23+ Wont Charge | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-from-zero-to-hero-on-instagram-top-5-tips-with-examples-from-elites/"><u>2024 Approved  From Zero to Hero on Instagram  Top 5 Tips with Examples From Elites</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-future-of-professional-spaces-and-their-impact-on-productivity/"><u>2024 Approved  The Future of Professional Spaces and Their Impact on Productivity</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-backs-humanity-project-in-pioneering-unbiased-ai-oversight-tools/"><u>ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-finereader-wesentliches-tool-in-der-dokumentenverarbeitung-und-analyse/"><u>ABBYY FineReader - Wesentliches Tool in Der Dokumentenverarbeitung Und Analyse</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724312941231-abbyy-flexicapture/"><u>ABBYY FlexiCapture の正式日本市場発売開始</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-industry-pioneer-in-process-analytics-and-intelligent-data-extraction/"><u>ABBYY: Industry Pioneer in Process Analytics and Intelligent Data Extraction</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-open-source-neoml-bibliothek-erlebt-einen-sprung-nach-vorn-mit-python-integration-und-beispielloser-geschwindigkeit/"><u>ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-perspective-on-synergizing-with-ai-for-enhanced-team-performance/"><u>ABBYY's Perspective on Synergizing with AI for Enhanced Team Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/advanced-insights-exploring-beyond-business-analytics-and-process-analysis-ebook-by-abbyy/"><u>Advanced Insights: Exploring Beyond Business Analytics and Process Analysis eBook by ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatische-dokumentverarbeitung-in-wilmington-mit-abbyy-software/"><u>Automatische Dokumentverarbeitung in Wilmington Mit ABBYY Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversion-rates-using-innovative-cookiebot-tracking-solutions/"><u>Boost Conversion Rates Using Innovative Cookiebot Tracking Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-success-boost-your-sites-visibility-and-conversions/"><u>Cookiebot-Driven Success: Boost Your Site's Visibility and Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-solutions-optimized-user-experience-with-advanced-tracking/"><u>Cookiebot-Enabled Solutions: Optimized User Experience with Advanced Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-site-with-advanced-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Site with Advanced Analytics and Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-the-secret-ingredient-behind-tailored-user-experiences/"><u>Cookiebot: The Secret Ingredient Behind Tailored User Experiences</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-twin-evolution-brochure-unlocking-innovations-with-abbyy/"><u>Digital Twin Evolution Brochure - Unlocking Innovations with ABBYY</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/diy-fix-for-a-non-responsive-logitech-k780-keyboard-easy-steps-inside/"><u>DIY Fix for a Non-Responsive Logitech K780 Keyboard - Easy Steps Inside</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-optimizing-your-sites-visibility/"><u>Driven by Cookiebot: Optimizing Your Site's Visibility</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/efficiently-managing-insurance-claims-with-ecclesia-the-abbyy-integration/"><u>Efficiently Managing Insurance Claims with Ecclesia: The ABBYY Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-conversion-rates-using-leading-analytics-software/"><u>Enhanced Conversion Rates Using Leading Analytics Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-data-collection-with-the-help-of-cookiebot-technology/"><u>Enhanced Data Collection with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-with-cookiebot-technology/"><u>Enhancing Website Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/get-the-scoop-on-ipados-18-free-download-date-innovative-traits-and-fresh-updates-await/"><u>Get the Scoop on iPadOS 18: Free Download Date, Innovative Traits & Fresh Updates Await!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-robotic-process-automation-for-efficient-logistics-exploring-the-power-of-abbyy-solutions/"><u>Harnessing Robotic Process Automation for Efficient Logistics: Exploring the Power of ABBYY Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-personalization-and-analytics/"><u>Harnessing the Power of Cookiebot for Advanced Site Personalization and Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-abbyys-smart-data-extraction-is-reshaping-the-future-of-service-businesses/"><u>How ABBYY's Smart Data Extraction Is Reshaping the Future of Service Businesses</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-xiaomi-14-pro-devices-by-drfone-android/"><u>How to Reset Gmail Password on Xiaomi 14 Pro Devices</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-tecno-spark-10-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Tecno Spark 10 5GMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-navigating-the-maze-of-private-snapshares/"><u>In 2024, Navigating the Maze of Private Snapshares</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/in-depth-reviews-and-tips-for-enthusiasts-on-toms-hardware-zone/"><u>In-Depth Reviews & Tips for Enthusiasts on Tom's Hardware Zone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/neoml-discover-the-power-of-abbyys-enrichit-and-open-source-software-capabilities/"><u>NeoML: Discover the Power of ABBYY's Enrichit and Open-Source Software Capabilities</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-advanced-traffic-analysis-from-cookiebot/"><u>Optimized with Advanced Traffic Analysis From Cookiebot</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Realme Narzo 60x 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/streamline-e-commerce-success-the-power-of-advanced-cookiebot-solutions/"><u>Streamline E-Commerce Success: The Power of Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-ultimate-list-of-top-15-affordable-photo-enhancement-tools/"><u>The Ultimate List of Top 15 Affordable Photo Enhancement Tools</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/understanding-the-dark-side-of-ai-five-strategies-used-by-cybercriminals/"><u>Understanding the Dark Side of AI: Five Strategies Used by Cybercriminals</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unveiling-process-intelligence-insights-into-advanced-data-analytics/"><u>Unveiling Process Intelligence: Insights Into Advanced Data Analytics</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Realme 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-tecno-spark-20-proplus-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Tecno Spark 20 Pro+ to iPhone | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-showcases-artificial-intelligence-insights-at-the-2018-aiim-event/"><u>ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-auditing-initiatives-boosted-by-ab-inbevs-backing-of-forhumanity/"><u>AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-realme-v30t-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Realme V30T Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-web-traffic-with-cookiebot-technology-smart-analytics-tools/"><u>Boosting Web Traffic with Cookiebot Technology - Smart Analytics Tools!</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/exploring-chatgpt-4-understanding-its-features-and-distinctiveness/"><u>Exploring ChatGPT-4: Understanding Its Features & Distinctiveness</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Samsung Galaxy A05? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-samsung-galaxy-xcover-7-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Samsung Galaxy XCover 7 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-whatsapps-call-conversation-strategy/"><u>Mastering WhatsApp's Call Conversation Strategy</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-tips-restoring-default-settings-on-your-samsung-soundbar/"><u>Troubleshooting Tips: Restoring Default Settings on Your Samsung Soundbar</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,46 +1,22 @@
 ---
 title: Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report
-date: 2024-09-08T23:36:38.248Z
-updated: 2024-09-09T23:36:38.248Z
+date: 2024-09-12T19:05:52.552Z
+updated: 2024-09-14T19:57:07.229Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c381619f8aafcfb0f80b6508563d2271437d8649f2f0442bcc2c7a6fb3d30ee1.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Survey Identifies Behaviors Driving Intelligent Automation Successes and Failures
 
 April 07, 2022
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![News AI](https://static5.abbyy.com/abbyycommedia/33743/news-ai.jpg) 
 
 * No longer considered a strategic initiative, RPA was the least implemented tech, with document-centric and process automation technologies leading the way.
@@ -49,12 +25,6 @@ April 07, 2022
 
 [![](https://static1.abbyy.com/abbyycommedia/35490/2022-04-06_infographic_survey_global_final.jpg?width=1068&height=558)](https://www.abbyy.com/media/35490/2022-04-06%5Finfographic%5Fsurvey%5Fglobal%5Ffinal.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 According to a recent global survey conducted by Sapio Research on behalf of [ABBYY](https://tools.techidaily.com/abbyy/products/), 98% of IT decision makers have implemented automation technologies in the last two years, spurred by the pandemic. During this time, there has been a behavioral shift in the way IT decision makers implement automation technology with a new ‘people first’ approach. The results reveal less investment in robotic process automation (RPA) with intelligent document processing (IDP) and process automation technologies being the top two deployed technologies. This resulted in a huge 89% believing they have been successful in deploying digitally transforming automations, compared to only [30%-50%](https://www.ey.com/en%5Fgl/consulting/five-design-principles-to-help-build-confidence-in-rpa-implement) in the past when they used RPA alone.
 
 The pandemic has resulted in many organizations accelerating digital technology adoption plans by [three to seven years](https://www.mckinsey.com/business-functions/mckinsey-digital/our-insights/the-new-digital-edge-rethinking-strategy-for-the-postpandemic-era), with 45% of IT decision makers having implemented three to four automation projects over the last two years. This could be due to customer demand, business survival and a massive opportunity in the market. But when it comes to why the implementation of automation technology has been so successful, it’s clear that the ‘people first’ approach to business decisions has played a key role since the pandemic, and implementing new technology is no longer only about the business, but also increasingly more about the people.
@@ -104,34 +74,10 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 _Director of Global Public Relations_
@@ -146,8 +92,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -157,44 +101,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-essential-8-strategies-for-digital-sound-recording-for-2024/"><u>[New] Essential 8 Strategies for Digital Sound Recording for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-enhancing-vimeo-videos-with-effective-end-credits/"><u>[Updated] 2024 Approved  Enhancing Vimeo Videos with Effective End Credits</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-enhance-tv-viewing-with-global-news-and-events-via-fb-live-roku-style-for-2024/"><u>[Updated] Enhance TV Viewing with Global News & Events via FB Live, Roku Style for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-how-to-use-hashtags-on-instagram-for-2024/"><u>[Updated] How to Use Hashtags on Instagram for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-making-text-dance-2-creative-animation-strategies/"><u>[Updated] Making Text Dance  2 Creative Animation Strategies</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-craft-professional-tiktoks-mastery-of-numerical-changes/"><u>2024 Approved  Craft Professional TikToks  Mastery of Numerical Changes</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-your-site-with-cookiebots-powerful-analytics/"><u>Boost Your Site with Cookiebot's Powerful Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-your-traffic-with-cookiebots-powerful-tracking-technology/"><u>Boost Your Traffic with Cookiebot's Powerful Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/breaking-down-abbyy-omzets-successful-year-of-2abbreviation-benelux-metrics-reflect-a-23-upsurge-in-2019/"><u>Breaking Down ABBYY OMZET's Successful Year of 2Abbreviation; Benelux Metrics Reflect a 23%% Upsurge in 2019</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-unlocking-advanced-audience-targeting-features/"><u>Cookiebot-Driven Insights: Unlocking Advanced Audience Targeting Features</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience-with-tailored-content/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience with Tailored Content</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-site-enhance-your-digital-marketing-efforts/"><u>Cookiebot-Enabled Site: Enhance Your Digital Marketing Efforts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-boost-your-online-traffic-and-engagement/"><u>Cookiebot-Enabled Sites: Boost Your Online Traffic and Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-site-performance/"><u>Cookiebot-Enhanced Site Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhance-your-site-with-powerful-tracker-technology/"><u>Cookiebot: Enhance Your Site with Powerful Tracker Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhancing-your-website-with-smart-tracking-technology/"><u>Cookiebot: Enhancing Your Website with Smart Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/customized-advertising-with-the-advanced-capabilities-of-cookiebot/"><u>Customized Advertising with the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/die-neuesten-mining-fahigkeiten-von-abbyy-timeline-cu-verbesserte-integration-von-menschlichen-ressourcen-prozessen-und-inhalten/"><u>Die Neuesten Mining-Fähigkeiten Von ABBYY Timeline Cu: Verbesserte Integration Von Menschlichen Ressourcen, Prozessen Und Inhalten</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/differences-between-robotic-process-automation-rpa-and-intelligent-process-automation-ipa/"><u>Differences Between Robotic Process Automation (RPA) and Intelligent Process Automation (IPA)</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digitale-revolution-mit-5-leitsatzen-expertenchecklisten-von-abbyy-jetzt-verfugbar-machen/"><u>Digitale Revolution Mit 5 Leitsätzen: Expertenchecklisten Von ABBYY Jetzt Verfügbar Machen!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effiziente-automationstechnologien-im-versicherungssektor/"><u>Effiziente Automa­tionstechnologien Im Versicherungssektor</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-your-digital-presence-using-cookiebots-advanced-solutions/"><u>Elevate Your Digital Presence Using Cookiebot's Advanced Solutions</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/elgoog-uncovered-an-in-depth-analysis-of-the-topical-and-witty-search-site/"><u>ElgooG Uncovered: An In-Depth Analysis of the Topical and Witty Search Site</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-user-experience-with-our-cookiebot-integration-solutions/"><u>Enhance User Experience with Our Cookiebot Integration Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-customer-insights-with-the-help-of-cookiebot-technology/"><u>Enhanced Customer Insights with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-marketing-precision-via-cookiebot-driven-insights/"><u>Enhanced Marketing Precision via Cookiebot-Driven Insights</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-ocr-solutions-boost-efficiency-in-top-tier-construction-information-firm/"><u>Enhanced OCR Solutions Boost Efficiency in Top-Tier Construction Information Firm</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-personalization-with-the-support-of-cookiebot-technology/"><u>Enhanced Personalization with the Support of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-efficiency-in-financial-transactions-with-abbyys-innovative-automation-technology/"><u>Enhancing Efficiency in Financial Transactions with ABBYY's Innovative Automation Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-tracking-the-power-behind-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Tracking: The Power Behind Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evaluierung-von-volkswagens-infotainmentsystemen-mit-hilfe-der-software-von-abbyy/"><u>Evaluierung Von Volkswagens Infotainmentsystemen Mit Hilfe Der Software Von ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-tomorrows-job-landscape-with-rpa-insights-from-abbyys-timeline-infobook/"><u>Exploring Tomorrow's Job Landscape with RPA: Insights From ABBYY's Timeline Infobook</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-oneplus-ace-2v-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best OnePlus Ace 2V Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-ai-driven-document-handling-for-modern-banking-systems/"><u>Innovative AI-Driven Document Handling for Modern Banking Systems</u></a></li>
-<li><a href="https://extra-information.techidaily.com/iphone-hdr-photography-for-enthusiasts/"><u>IPhone HDR Photography for Enthusiasts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-the-efficiency-of-cookiebot-technology-for-seamless-web-tracking/"><u>Leveraging the Efficiency of Cookiebot Technology for Seamless Web Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/online-marketplace-exceeds-growth-targets-and-boosts-operational-productivity-with-cutting-edge-invoice-management-technology/"><u>Online Marketplace Exceeds Growth Targets and Boosts Operational Productivity with Cutting-Edge Invoice Management Technology</u></a></li>
-<li><a href="https://driver-error.techidaily.com/qualcomm-atheros-and-windows-11-effective-solutions-for-faulty-bluetooth-drivers/"><u>Qualcomm Atheros & Windows 11: Effective Solutions for Faulty Bluetooth Drivers</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/securing-your-digital-footprint-counteracting-textgrabber-threats-and-improving-user-mobility-insights-for-abbyy-readers/"><u>Securing Your Digital Footprint: Counteracting TextGrabber Threats & Improving User Mobility | Insights for ABBYY Readers</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/sustained-profitable-expansion-abbyy-announces-back-to-back-double-digit-revenue-upswing-for-third-year-in-a-row/"><u>Sustained Profitable Expansion: ABBYY Announces Back-to-Back Double-Digit Revenue Upswing for Third Year in a Row</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-getting-started-on-youtube-broadcasts-using-obs-for-2024/"><u>[New] Getting Started on YouTube Broadcasts Using OBS for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-vision-to-execution-the-full-spectrum-of-personal-branding-on-youtube/"><u>[New] In 2024, From Vision to Execution The Full Spectrum of Personal Branding on YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-top-strategies-for-ps4-video-game-preservation/"><u>[Updated] Top Strategies for PS4 Video Game Preservation</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-xiaomi-redmi-13c-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Xiaomi Redmi 13C 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://win-forum.techidaily.com/master-your-windows-privacy-easy-ways-to-securely-log-offoff/"><u>Master Your Windows Privacy: Easy Ways to Securely Log Off/Off</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/redefining-accounts-payable-the-synergy-of-automation-and-content-knowledge/"><u>Redefining Accounts Payable: The Synergy of Automation and Content Knowledge</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

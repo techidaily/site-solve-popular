@@ -1,18 +1,12 @@
 ---
 title: "ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み"
-date: 2024-09-08T23:36:37.118Z
-updated: 2024-09-09T23:36:37.118Z
+date: 2024-09-07T17:45:06.470Z
+updated: 2024-09-14T16:32:23.021Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7d954d5ef5beb31b578dcda4509d16e23f0ef0d1b79a76b01e4834ddb01328ea.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み
 
 [全てのブログ](https://tools.techidaily.com/abbyy/products/)
@@ -27,22 +21,10 @@ thumbnail: https://thmb.techidaily.com/7d954d5ef5beb31b578dcda4509d16e23f0ef0d1b
 
 その前に改めて、SDGsの概要について説明いたします。
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 環境省が推進する SDGs（持続可能な開発目標）
 
 ![Sustainable Development Goals](https://static1.abbyy.com/abbyycommedia/34588/logo-410x100.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 出典： [持続可能な開発目標（SDGs）の推進（環境省）](http://www.env.go.jp/policy/sdgs/index.html)
 
 SDGsは2015 年に国連が採択した先進国を含む国際社会全体の 2030 年に向けた環境・経済・社会についてのゴールです。
@@ -69,12 +51,6 @@ SDGsでは以下の17のゴールが設定されています。
 16. 平和と公正をすべての人に
 17. パートナーシップで目標を達成しよう
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYYの8番と10番の取り組みについて
 
 ![Sustainable Development Goals 働きがいも経済成長も](https://static1.abbyy.com/abbyycommedia/34584/13907-icon-8.png) ![Sustainable Development Goals 人や国の不平等をなくそう](https://static1.abbyy.com/abbyycommedia/34585/13907-icon-10.png)
@@ -89,15 +65,16 @@ ABBYYは、社内の包摂的な文化をサポートすることに重点を置
 
 一部の地域では、さまざまな能力を持つ人々や貧しい家庭や農村地域からの学生を雇用するための特別なプロジェクトがあります。 また、地域に根付いたチャリティー活動（クリスマス関連のチャリティーなど）も実施しています。デジタルインテリジェンス企業として、技術人材の育成に取り組んでいます。一部の地域では、教育活動を推進し、恵まれない／過小評価されている人々のためのメンターシッププログラムや奨学金を通じての技術人材育成をサポートしています。
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYYの13番と15番の取り組みについて
 
 ![Sustainable Development Goals 気候変動に具体的な対策を](https://static1.abbyy.com/abbyycommedia/34586/13907-icon-13.png) ![Sustainable Development Goals 陸の豊かさも守ろう](https://static1.abbyy.com/abbyycommedia/34587/13907-icon-15.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 私たちはデジタルインテリジェンス企業として、ペーパーレスのビジネスプロセスにつながるデジタルトランスフォーメーション（DX）の推進に取り組んでいます。ABBYYのデジタルテクノロジーは、デジタル（ハードコピーではなく）ドキュメントに焦点を当てることにより、お客様がより環境に優しいものになるように支援します。
 
@@ -114,11 +91,12 @@ ABBYYは、サステナビリティの重要性を従業員に思い出させる
 [カスタマエクスペリエンス](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -173,8 +151,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -184,39 +160,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-epic-stories-academy-the-premier-8-list-for-2024/"><u>[New] Epic Stories Academy – The Premier 8 List for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-charting-the-undisclosed-territories-of-youtube-videos/"><u>[New] In 2024, Charting the Undisclosed Territories of YouTube Videos</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-comparing-snapchat-and-tiktok-the-ultimate-guide/"><u>[New] In 2024, Comparing Snapchat & TikTok  The Ultimate Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-navigating-instagrams-reel-downloads-with-ease-and-versatility-for-2024/"><u>[New] Navigating Instagram's Reel Downloads with Ease and Versatility for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-expert-techniques-for-high-quality-xbox-screenshots/"><u>[Updated] In 2024, Expert Techniques for High-Quality Xbox Screenshots</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-step-by-step-techniques-building-animation-with-movie-maker/"><u>[Updated] Step-by-Step Techniques  Building Animation with Movie Maker</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iuoajoodhplusocuoocvplusodqplusodleocqeodvoodoos9noaikoobruwwgumwgowutuodquocueodidrkv53pmbrjgrvjgqjgrjg7zjgplkuk3lv4pjgajjgzfjgzjg4hjgqfjg4pjgqjg6rjgrnjg4j1/"><u>「デジタルフォーム作成の専門家リスト:保険セクターを中心としたチェックリストガイド」</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-turn-your-twitter-videos-into-listenable-mp3s/"><u>2024 Approved  Turn Your Twitter Videos Into Listenable MP3s</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-where-to-buy-a-monetized-youtube-channel-a-complete-guide/"><u>2024 Approved  Where to Buy a Monetized YouTube Channel  A Complete Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-global-idp/"><u>ABBYY Global IDPトレンドの最新発表:成果報告書解説</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-presente-ses-innovantes-technologies-ia-pour-lextraction-de-donnees-au-salon-banque-and-innovation-evenement-cle-2018/"><u>ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-oppo-reno-8t-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Oppo Reno 8T Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-cutting-edge-analytics/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Cutting-Edge Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-drive-better-conversions-with-smart-traffic/"><u>Cookiebot-Enhanced: Drive Better Conversions with Smart Traffic</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/demons-souls-remastered-elevated-graphics-and-unchanged-excellence-in-play/"><u>Demon's Souls Remastered – Elevated Graphics & Unchanged Excellence in Play</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/drive-engagement-using-the-advanced-capabilities-of-cookiebot/"><u>Drive Engagement Using the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/empowering-websites-with-cookiebot-technology-for-enhanced-user-experience/"><u>Empowering Websites with Cookiebot Technology for Enhanced User Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-digital-engagement-with-cookiebot-technology/"><u>Enhanced Digital Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-user-experience-with-automated-data-gathering-the-power-of-cookiebot-technology/"><u>Enhanced User Experience with Automated Data Gathering: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-insurance-risk-assessment-via-automated-data-centric-methods/"><u>Enhancing Insurance Risk Assessment via Automated, Data-Centric Methods</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-kyc-compliance-in-finance-with-ai-and-ml-techniques-download-our-comprehensive-guide/"><u>Enhancing KYC Compliance in Finance with AI & ML Techniques - Download Our Comprehensive Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-online-experience-through-cookiebot-driven-analytics/"><u>Enhancing Online Experience Through Cookiebot-Driven Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-through-cookiebot-technology/"><u>Enhancing Website Analytics Through Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-enhanced-digital-presence-with-cookiebot-integration-bespoke-online-growth-tools/"><u>Experience Enhanced Digital Presence with Cookiebot Integration | Bespoke Online Growth Tools</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-guide-fine-tuning-snapchat-video-velocity/"><u>In 2024, The Ultimate Guide  Fine-Tuning Snapchat Video Velocity</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-google-pixel-8-pro-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Google Pixel 8 Pro Location | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/introducing-cooler-masters-ai-thermal-paste-next-gen-nanodiamond-tech-for-superior-pc-cooling-in-cryofuze-5/"><u>Introducing Cooler Master's 'AI Thermal Paste': Next-Gen Nanodiamond Tech for Superior PC Cooling in CryoFuze 5</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-with-ocr-convert-pdfs-and-jpgs-using-finereader/"><u>IPhone Document Scanning with OCR: Convert PDFs & JPGs Using FineReader</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-improved-online-traffic-and-user-interaction/"><u>Leverage Cookiebot Technology for Improved Online Traffic & User Interaction</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/navigating-easy-cross-posting-of-tiktok-videos-on-fb/"><u>Navigating Easy Cross-Posting of TikTok Videos on FB</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
-<li><a href="https://techidaily.com/three-methods-to-recover-lost-data-on-s23-by-fonelab-android-recover-data/"><u>Three methods to recover lost data on S23</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-enhance-your-media-experience-by-learning-vlcs-rotation-feature-for-2024/"><u>[New] Enhance Your Media Experience by Learning VLC's Rotation Feature for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-efficiently-add-your-own-look-to-youtube-shorts-via-simple-steps/"><u>[Updated] In 2024, Efficiently Add Your Own Look to YouTube Shorts via Simple Steps</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-how-to-download-and-share-tiktok-videos-on-iphone-no-watermark-present/"><u>2024 Approved How to Download and Share TikTok Videos on iPhone, No Watermark Present</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-vivo-y100-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-photos-from-tecno-spark-go-2024-by-fonelab-android-recover-photos/"><u>Best Android Data Recovery - Retrieve Lost Photos from Tecno Spark Go (2024).</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-unleash-the-power-of-automated-conversions/"><u>Cookiebot-Enhanced: Unleash the Power of Automated Conversions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-unleashing-advanced-tracking-solutions-for-your-websites-success/"><u>Cookiebot: Unleashing Advanced Tracking Solutions for Your Website's Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/data-driven-personalization-through-smart-analytics-solutions/"><u>Data-Driven Personalization Through Smart Analytics Solutions</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/holistic-digital-marketing-leveraging-facebook-linkedin-and-youtube-for-growth/"><u>Holistic Digital Marketing: Leveraging Facebook, LinkedIn and YouTube for Growth</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Tecno Pova 5? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/steps-to-manage-video-watcher-restrictions-on-youtube-for-2024/"><u>Steps to Manage Video Watcher Restrictions on Youtube for 2024</u></a></li>
 </ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: Empowering Websites with Cookiebot Technology for Enhanced User Experience
-date: 2024-09-08T23:36:38.013Z
-updated: 2024-09-09T23:36:38.013Z
+date: 2024-09-11T23:02:24.795Z
+updated: 2024-09-14T22:02:30.874Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a05de89bd7149842bbd8e67a6.jpg
@@ -11,30 +11,12 @@ thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a0
 
 [全てのブログ](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 日本語手書き読み取り（CLOVA OCRとFlexiCaptureの連携）(test)
 
 3月28日, 2022
 
 ![](https://static3.abbyy.com/abbyycommedia/35330/clovaocr-cover-848x444-1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [ABBYY FlexiCapture 12](https://tools.techidaily.com/abbyy/products/)（以下FlexiCapture）で[CLOVA OCR](https://clova.line.me/clova-ocr/?utm%5Fsource=abbyy&utm%5Fmedium=blog)認識エンジンを手軽に利用できるようになりました。
 
 FlexiCaptureは自身のOCRエンジンだけでなく、他社のICR/OCRエンジンを組み合わせて最適なAI OCRを実現することも可能です。
@@ -49,12 +31,6 @@ AI OCRは常に進化しており、クラウド上のサービスも多く、�
 
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35333/clovaocr-content-1-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## FlexiCaptureは複雑な文書の処理が可能
 
 FlexiCaptureは、複雑な文書にも広く対応しており、他では取得できないフォーマットでも、定型、非定型問わずに、読み取り可能です。これは、一般的なAI OCRに用いられている学習による解析だけでなく、人間が見て判断するように、特定の文字からの相対位置や何行目、何列目といった表構造の中での位置、スキャン時に発生する解像度のばらつきや傾きの補正などの機能FlexiCaptureが有しているからです。加えて、上記の機能により文書を誤認識してしまった際にもロジカルに原因追及が可能となっています。
@@ -63,18 +39,6 @@ FlexiCaptureは、複雑な文書にも広く対応しており、他では取�
 
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35332/clovaocr-content-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## FlexiCaptureは検証機能も充実
 
 AI OCRを導入するためには新たな業務が必要となります。すべてのAI OCRに対して言えることですが、どんな文書でも100%正しく認識することはできません。必然的に重要な文書であるほどOCRの結果を人の目で見て確認するという作業（以降、検証）が重要となってきます。
@@ -84,11 +48,12 @@ AI OCRを導入するためには新たな業務が必要となります。す�
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35331/clovaocr-content-3-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## FlexiCaptureは業務使用に最適
 
 [FlexiCapture](https://tools.techidaily.com/abbyy/products/)はカスタマイズ性の強さからお客様の業務に合わせた導入が可能です。各種APIおよびファイル連携により様々な入出力に対応しており、既存のシステムと合わせて導入できます。
@@ -114,6 +79,13 @@ FlexiCaptureは単体でも認識、検証、ワークフローにおいて優�
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/)
 
 [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -169,8 +141,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -180,38 +150,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-correct-obs-blackout-error-in-gaming-capture/"><u>[New] 2024 Approved  Correct OBS Blackout Error in Gaming Capture</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-essential-video-gear-the-ultimate-12-camera-guide/"><u>[New] 2024 Approved  Essential Video Gear  The Ultimate 12 Camera Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-insta-rotation-rituals-mastering-angles-that-engage-captivate-and-amaze/"><u>[New] In 2024, Insta Rotation Rituals  Mastering Angles that Engage, Captivate, and Amaze</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-elevating-engagement-with-innovative-techniques-in-fb-lives-for-2024/"><u>[Updated] Elevating Engagement with Innovative Techniques in FB Lives for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-navigating-youtubes-puzzling-buffering-patterns-for-2024/"><u>[Updated] Navigating YouTube's Puzzling Buffering Patterns for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-crafting-a-pathway-to-instagram-affordability-through-partnerships/"><u>2024 Approved  Crafting a Pathway to Instagram Affordability Through Partnerships</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-how-to-switch-windows-11-to-auto-hdr-mode/"><u>2024 Approved  How to Switch Windows 11 To Auto HDR Mode</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/sap-intelligent-rpa-abbyy-abbyy/"><u>高度な文書処理技術と組み合わせた、SAP Intelligent RPA にABBYYを統合する方法 | ABBYYの技術解説</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-collaborative-venture-with-apponfly-elevating-document-processing-solutions/"><u>ABBYY Unveils New Collaborative Venture with AppOnFly: Elevating Document Processing Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automate-your-leads-with-cookiebot-enabled-solutions/"><u>Automate Your Leads with Cookiebot-Enabled Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automated-customer-engagement-with-cookiebot-technology/"><u>Automated Customer Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-traffic-with-cookiebot-powerful-site-engagement-tools/"><u>Boost Traffic with Cookiebot - Powerful Site Engagement Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-engagement-with-cookiebot-technology-for-tailored-content-delivery/"><u>Boosting Engagement with Cookiebot Technology for Tailored Content Delivery</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/combining-power-of-abbyy-with-alteryx-for-enhanced-data-management-and-process-automation-solutions/"><u>Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-analytics-unleashing-website-personalization-and-targeting/"><u>Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-personalization-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Driven Personalization: Enhance User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-solutions/"><u>Cookiebot-Enabled Analytics Solutions</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-poco-f5-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Poco F5 5G | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-explore-best-10-free-srt-converter-apps-online/"><u>In 2024, Explore Best 10 Free Srt Converter Apps Online</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-iphone-6s-drfone-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-listen-and-act-complimentary-recognition-software/"><u>In 2024, Listen and Act  Complimentary Recognition Software</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/invisible-broadcasts-anonymous-instagram-live-tips/"><u>Invisible Broadcasts  Anonymous Instagram Live Tips</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-seamless-mobile-onboarding-with-strategies-from-the-abbyy-handbook/"><u>Mastering Seamless Mobile Onboarding with Strategies From the ABBYY Handbook</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-crafting-an-effective-online-page-for-search-engines/"><u>Mastering the Art of Crafting an Effective Online Page for Search Engines</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-universal-copy-paste-seamless-sharing-across-devices-and-enhancing-your-fitness-routine-with-indoor-cycling-insights-from-the-abbyy-expertise/"><u>Mastering Universal Copy-Paste: Seamless Sharing Across Devices & Enhancing Your Fitness Routine with Indoor Cycling - Insights From the ABBYY Expertise</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/navigating-the-wonders-of-obs-on-android-devices-for-2024/"><u>Navigating the Wonders of OBS on Android Devices for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/promising-future-with-us-policy-changes-expert-analysis-on-abbyys-platform/"><u>Promising Future with US Policy Changes | Expert Analysis on ABBYY's Platform</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/samsung-c460-printer-drivers-fast-download-and-simple-installation-guide/"><u>Samsung C460 Printer Drivers: Fast Download and Simple Installation Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/strategies-doptimisation-de-la-chaine-logistique-comment-les-donnees-facilitent-le-reinventer-grace-a-abbyy/"><u>Stratégies D'Optimisation De La Chaîne Logistique: Comment Les Données Facilitent Le Réinventer Grâce À ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/strengthen-business-continuity-with-effective-process-enhancement/"><u>Strengthen Business Continuity with Effective Process Enhancement</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-omnicharge-omni-20-your-all-in-one-qi-wireless-portable-charger-reviewed/"><u>The Ultimate Guide to Omnicharge Omni 20 - Your All-in-One Qi Wireless Portable Charger Reviewed</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-subcontracting-options-for-enhanced-abbyy-software-solutions/"><u>Top Subcontracting Options for Enhanced ABBYY Software Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/transformez-la-lecture-de-vos-recus-en-temps-reel-grace-a-lia-abbyy-sphere-numerique/"><u>Transformez La Lecture De Vos Reçus en Temps Réel Grâce À L'IA : ABBYY Sphère Numérique</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ultimate-guide-cleaning-and-formatting-data-for-efficient-ai-model-training/"><u>Ultimate Guide: Cleaning and Formatting Data for Efficient AI Model Training</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-converting-twitter-video-lyrics-to-custom-gif-animations/"><u>[New] 2024 Approved Converting Twitter Video Lyrics to Custom GIF Animations</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-perfect-playtime-footage-with-nvidia-for-2024/"><u>[Updated] Perfect Playtime Footage with NVIDIA for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-5-amazing-free-youtube-intro-makers-ranked/"><u>2024 Approved 5 Amazing Free YouTube Intro Makers Ranked</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1725285514519-winxvideoai/"><u>如何使用WinxVideoAI来优化您的视频质量：实现最高效果</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-europe-201/"><u>AI Europe 201</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ameliorer-les-resultats-de-la-robotique-de-processus-assistee-par-ordinateur-rpa-analyse-et-techniques-avancees-chez-abbyy/"><u>Améliorer Les Résultats De La Robotique De Processus Assistée Par Ordinateur (RPA) - Analyse Et Techniques Avancées Chez ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/at-leading-annual-summit-abbyy-showcases-advanced-ml-and-ai-technologies-for-future-success/"><u>At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-shaking-no-more-evaluating-photoshops-anti-shake-feature/"><u>In 2024, Shaking No More Evaluating Photoshop's Anti-Shake Feature</u></a></li>
+<li><a href="https://os-tips.techidaily.com/the-many-reasons-behind-my-passion-for-apples-seamless-digital-world/"><u>The Many Reasons Behind My Passion for Apple's Seamless Digital World</u></a></li>
 </ul></div>
+

@@ -1,46 +1,22 @@
 ---
 title: At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success
-date: 2024-09-08T23:36:35.804Z
-updated: 2024-09-09T23:36:35.804Z
+date: 2024-09-09T18:38:24.670Z
+updated: 2024-09-14T16:03:16.805Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3bea074e02c00367c73eda64c4dc35b2b7531a1754ee9632a9d2f7f9073f37e2.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Puts Machine Learning and AI Center Stage at Annual Technology Summit
 
 October 17, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _ABBYY Technology Summit 2017 Features Interactive Sessions that Enable Business Leaders to Understand and Maximize the Value of their Data._
 
 ABBYY®, a leading provider of technologies and solutions to action information, is hosting its fifth annual ABBYY Technology Summit (#ABBYYSummit17) October 25 – 27, 2017 at the Marriott Marquis San Diego Marina. Attendees at the summit will gain better understanding of strategies and tools to accelerate digital transformation initiatives that leverage their data to drive measurable business value.
@@ -69,8 +45,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -80,48 +54,29 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-enrich-tweets-with-videos-your-quick-reference/"><u>[New] Enrich Tweets with Videos  Your Quick Reference</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-how-to-view-facebook-content-on-your-home-theater-for-2024/"><u>[New] How To View Facebook Content On Your Home Theater for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-transforming-trips-into-tales-the-roadmap-to-becoming-a-travel-blogger/"><u>[New] Transforming Trips Into Tales  The Roadmap to Becoming a Travel Blogger</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-custom-ringtone-ideas-for-christian-lifestyle/"><u>2024 Approved  Custom Ringtone Ideas for Christian Lifestyle</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-tecno-pova-5-pro-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Tecno Pova 5 Pro to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Vivo X Fold 2 | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/sap-intelligent-rpa-abbyy-abbyy/"><u>高度な文書処理技術と組み合わせた、SAP Intelligent RPA にABBYYを統合する方法 | ABBYYの技術解説</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-web-visibility-instantly-using-the-powerful-cookiebot-seo-tech/"><u>Boost Web Visibility Instantly Using the Powerful Cookiebot SEO Tech</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/carlsberg-accelere-son-debut-en-mer-avec-la-technologie-abbyy-un-nouveau-partenariat-industriel/"><u>Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Website's User Engagement</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-unleash-the-power-of-live-broadcast-recording-techniques-online/"><u>[New] 2024 Approved Unleash the Power of Live Broadcast Recording Techniques Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-thematic-wow-factor-designing-engaging-youtube-templates/"><u>[New] Thematic Wow Factor Designing Engaging YouTube Templates</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-lava-yuva-3-pro-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Lava Yuva 3 Pro Activity | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-prime-5-racer-simulation-titles-to-play/"><u>2024 Approved Prime 5 Racer Simulation Titles to Play</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-enhanced-personalization-and-engagement/"><u>Cookiebot-Enabled Sites: Enhanced Personalization & Engagement</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-optimizing-your-site-with-advanced-analytics/"><u>Cookiebot-Enhanced: Optimizing Your Site with Advanced Analytics</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/digital-goods-safety-provision/"><u>Digital Goods Safety Provision</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-enhancing-online-personalization/"><u>Driven by Cookiebot: Enhancing Online Personalization</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/driven-with-innovative-cookiebot-technology/"><u>Driven with Innovative Cookiebot Technology</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/elevate-online-experience-with-cookiebot-power-solutions-for-superior-user-targeting-and-retention/"><u>Elevate Online Experience with Cookiebot Power Solutions for Superior User Targeting and Retention</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/embracing-innovative-mobility-learn-with-us-on-the-abbyy-blog/"><u>Embracing Innovative Mobility - Learn with Us on the ABBYY Blog</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-online-performance-using-the-powerful-features-of-cookiebot-technology/"><u>Enhance Online Performance Using the Powerful Features of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-with-advanced-automation-powered-by-the-cutting-edge-cookiebot-technology/"><u>Enhanced with Advanced Automation: Powered by the Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/expanded-pdf-handling-in-latest-abbyys-finereader-version-14-for-improved-document-processing/"><u>Expanded PDF Handling in Latest ABBYY's FineReader Version 14 for Improved Document Processing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-personalized-content-with-our-cookiebot-integration/"><u>Experience Personalized Content with Our Cookiebot Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/forbes-insight-transitioning-from-traditional-documents-to-advanced-digital-process-analytics/"><u>Forbes Insight: Transitioning From Traditional Documents to Advanced Digital Process Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harness-the-power-of-cookiebot-for-optimized-web-traffic-growth/"><u>Harness the Power of Cookiebot for Optimized Web Traffic Growth</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-8-free-online-courses-for-beginner-youtube-creators/"><u>In 2024, 8 Free Online Courses for Beginner YouTube Creators</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-iphone-14-plus-backup-password-heres-what-to-do-by-drfone-ios/"><u>In 2024, Forgot iPhone 14 Plus Backup Password? Heres What to Do</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-gopros-underwater-journey-essential-tactics-to-make-your-videos-stand-out/"><u>In 2024, GoPro’s Underwater Journey  Essential Tactics to Make Your Videos Stand Out</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-honor-90-gt-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Honor 90 GT ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-xiaomi-redmi-k70e-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Xiaomi Redmi K70E</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-iphone-7-plus-by-drfone-ios/"><u>In 2024, What You Want To Know About Two-Factor Authentication for iCloud On your iPhone 7 Plus</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-scan-and-convert-documents-with-ocr-technology-perfectpdf-tools/"><u>IPhone Scan & Convert Documents with OCR Technology - PerfectPDF Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/les-avantages-de-rpa-pour-les-entreprises-francaises-une-etude-revelatrice-dun-retour-sur-investissement-positif-des-la-premiere-annee-informations-par-abby29/"><u>Les Avantages De RPA Pour Les Entreprises Françaises : Une Étude Révélatrice D'un Retour Sur Investissement Positif Dès La Première Année - Informations Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/les-dernieres-avancees-de-machine-learning-sur-la-solution-flexicapture-optimiser-avec-abbyy-technologie/"><u>Les Dernières Avancées De Machine Learning Sur La Solution FlexiCapture - Optimiser Avec ABBYY Technologie</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-cookiebot-for-superior-conversion-rates-and-seamless-personalization-on-your-website/"><u>Leveraging Cookiebot for Superior Conversion Rates and Seamless Personalization on Your Website</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-seamless-mobile-onboarding-with-strategies-from-the-abbyy-handbook/"><u>Mastering Seamless Mobile Onboarding with Strategies From the ABBYY Handbook</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-crafting-an-effective-online-page-for-search-engines/"><u>Mastering the Art of Crafting an Effective Online Page for Search Engines</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-universal-copy-paste-seamless-sharing-across-devices-and-enhancing-your-fitness-routine-with-indoor-cycling-insights-from-the-abbyy-expertise/"><u>Mastering Universal Copy-Paste: Seamless Sharing Across Devices & Enhancing Your Fitness Routine with Indoor Cycling - Insights From the ABBYY Expertise</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/promising-future-with-us-policy-changes-expert-analysis-on-abbyys-platform/"><u>Promising Future with US Policy Changes | Expert Analysis on ABBYY's Platform</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/strategies-doptimisation-de-la-chaine-logistique-comment-les-donnees-facilitent-le-reinventer-grace-a-abbyy/"><u>Stratégies D'Optimisation De La Chaîne Logistique: Comment Les Données Facilitent Le Réinventer Grâce À ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/strengthen-business-continuity-with-effective-process-enhancement/"><u>Strengthen Business Continuity with Effective Process Enhancement</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/top-5-best-free-wmv-video-editors-for-2024/"><u>Top 5 Best Free WMV Video Editors for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-subcontracting-options-for-enhanced-abbyy-software-solutions/"><u>Top Subcontracting Options for Enhanced ABBYY Software Solutions</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unveiling-the-functions-a-complete-review-of-truecaller/"><u>Unveiling the Functions: A Complete Review of TrueCaller</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-oppo-a59-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-visual-glitches-in-the-sims-4-a-guide-for-video-card-troubleshooting/"><u>Overcoming Visual Glitches in The Sims 4 - A Guide for Video Card Troubleshooting</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,52 +1,28 @@
 ---
 title: Automated Customer Engagement with Cookiebot Technology
-date: 2024-09-08T23:36:36.455Z
-updated: 2024-09-09T23:36:36.455Z
+date: 2024-09-13T18:05:25.212Z
+updated: 2024-09-14T20:17:54.574Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/31fd63ab910fdd0bfef9c588934b4c990590f2025d46dff0a5963e90a62a92d8.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Automated Customer Engagement with Cookiebot Technology
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Étude ABBYY : respect des processus, quel secteur est le plus rigoureux ?
 
 15 juillet 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Près de la moitié (46 %) des décideurs évoluant dans le secteur de la banque-finance considèrent que les processus sont rigoureusement suivis dans leur entreprise, contre seulement 15 % dans le secteur public._
 
 Selon une étude conduite par ABBYY, le spécialiste de l’intelligence digitale, dans les entreprises du secteur de la banque-finance, les processus sont trois fois plus respectés que dans le secteur public. L’une des explications à cet écart est la complexité des processus jugés trop complexes ou trop nombreux pour être suivis. Du reste, il est encourageant de constater que les décideurs du secteur de la banque-finance sont ouverts de nouvelles technologies. Et pour cause, quasiment la totalité (98 %) des décideurs de ce secteur pensent que les technologies de Process Mining sont ou seraient utiles à leur entreprise, tout comme 89 % des dirigeants du secteur de l’assurance.
 
 ![infographic](https://static1.abbyy.com/abbyycommedia/29023/11982_infographics_process-mining_abbyy-survey_fr_300dpi.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
   
 _« Une des étapes essentielles pour accélérer la mutation digitale d’une entreprise est d’en appréhender les processus. Cette étape est indispensable pour les optimiser. C'est particulièrement important pour les établissements financiers qui sont confrontés à une pression soutenue depuis le début de la pandémie. L’enjeu dans ce secteur est d’assurer la continuité des activités et de s’adapter aux nouvelles attentes des clients. L’innovation insufflée par le Process Intelligence le permet. »_, remarque Linda Ameur, directrice France d’ABBYY.
 
@@ -62,12 +38,6 @@ Les décideurs du secteur de la banque-finance estiment que leurs effectifs sont
 
 ![](https://static1.abbyy.com/abbyycommedia/29012/pr-1407-table-1-fr.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Quels facteurs freinent la bonne application des processus ?**
 
 Lorsque les salariés évoluent dans l’univers de la banque ou de la finance s’éloignent des processus, c'est souvent pour fournir une meilleure qualité de service à leurs clients. En effet, près de 2/3 des décideurs dans le domaine de l’assurance (62 %) sont convaincus que leurs équipes le font dans cette optique. La moitié (50 %) des décideurs du secteur de la banque-finance partage ce constat. Cela laisse entendre que ce secteur des services financiers est particulièrement orienté client et davantage prédisposé à contourner les règles si cela est dans l’intérêt de ces derniers, notamment pour pallier des processus peu optimisés.
@@ -76,12 +46,6 @@ _« Ce n'est qu'une fois que chaque processus a été identifié, examiné, amé
 
 ![](https://static1.abbyy.com/abbyycommedia/29013/pr-1407-table-2-fr.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
   
 Pour en savoir plus sur la manière dont les entreprises du secteur de la banque-finance peuvent gérer leurs processus et leurs contenus, consultez [le dernier webinaire d'ABBYY](https://tools.techidaily.com/abbyy/products/) portant sur l'intelligence numérique appliquée aux services financiers.
 
@@ -110,8 +74,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -121,42 +83,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-revamping-reality-the-premier-11-instagram-edits/"><u>[New] 2024 Approved  Revamping Reality  The Premier 11 Instagram Edits</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-essential-top-5-xbox-hdds-for-gamers-for-2024/"><u>[New] Essential Top 5 Xbox HDDs for Gamers for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-innovative-editing-strategies-to-transform-your-youtube-channel/"><u>[New] Innovative Editing Strategies to Transform Your YouTube Channel</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-mastering-pip-feature-in-microsoft-edge/"><u>[New] Mastering PIP Feature in Microsoft Edge</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-reign-as-a-tycoon-champion-with-our-12-must-play-games/"><u>[Updated] In 2024, Reign as a Tycoon Champion with Our #12 Must-Play Games</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-prime-visual-screenshots-on-apple-systems-max-length-156-for-2024/"><u>[Updated] Prime Visual Screenshots on Apple Systems (Max Length  156) for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iuoajoodhplusocuoocvplusodqplusodleocqeodvoodoos9noaikoobruwwgumwgowutuodquocueodidrkv53pmbrjgrvjgqjgrjg7zjgplkuk3lv4pjgajjgzfjgzjg4hjgqfjg4pjgqjg6rjgrnjg4j1/"><u>「デジタルフォーム作成の専門家リスト:保険セクターを中心としたチェックリストガイド」</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-10-open-source-video-player-for-linux-windows-and-mac/"><u>2024 Approved  10 Open Source Video Player for Linux, Windows and Mac</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-global-idp/"><u>ABBYY Global IDPトレンドの最新発表:成果報告書解説</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-presente-ses-innovantes-technologies-ia-pour-lextraction-de-donnees-au-salon-banque-and-innovation-evenement-cle-2018/"><u>ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversions-using-the-latest-cookiebot-technology-features/"><u>Boost Conversions Using the Latest Cookiebot Technology Features</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-un-logiciel-dabbyy-optimise-le-travail-des-cabinets-davocats-londoniens-pour-la-gestion-efficace-de-procedures-essentielles/"><u>Comment Un Logiciel D'ABBYY Optimise Le Travail Des Cabinets D’avocats Londoniens Pour La Gestion Efficace De Procédures Essentielles</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/comprehensive-e-reader-analysis-the-amazon-kindle-paperwhite-2018-edition/"><u>Comprehensive E-Reader Analysis: The Amazon Kindle Paperwhite (2018 Edition)</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-elevate-your-sites-user-experience/"><u>Cookiebot-Enabled Analytics: Elevate Your Site's User Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-user-experience-enhancement/"><u>Cookiebot-Enabled User Experience Enhancement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-cutting-edge-analytics/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Cutting-Edge Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-drive-better-conversions-with-smart-traffic/"><u>Cookiebot-Enhanced: Drive Better Conversions with Smart Traffic</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/drive-engagement-using-the-advanced-capabilities-of-cookiebot/"><u>Drive Engagement Using the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/empowering-websites-with-cookiebot-technology-for-enhanced-user-experience/"><u>Empowering Websites with Cookiebot Technology for Enhanced User Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-digital-engagement-with-cookiebot-technology/"><u>Enhanced Digital Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-user-experience-with-automated-data-gathering-the-power-of-cookiebot-technology/"><u>Enhanced User Experience with Automated Data Gathering: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-insurance-risk-assessment-via-automated-data-centric-methods/"><u>Enhancing Insurance Risk Assessment via Automated, Data-Centric Methods</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-kyc-compliance-in-finance-with-ai-and-ml-techniques-download-our-comprehensive-guide/"><u>Enhancing KYC Compliance in Finance with AI & ML Techniques - Download Our Comprehensive Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-online-experience-through-cookiebot-driven-analytics/"><u>Enhancing Online Experience Through Cookiebot-Driven Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-through-cookiebot-technology/"><u>Enhancing Website Analytics Through Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-enhanced-digital-presence-with-cookiebot-integration-bespoke-online-growth-tools/"><u>Experience Enhanced Digital Presence with Cookiebot Integration | Bespoke Online Growth Tools</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-add-your-digital-signature-to-a-csv-document-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to add your digital signature to a .csv document</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-filmmakers-guide-to-the-top-10-essential-camera-brands/"><u>In 2024, Filmmaker's Guide to the Top 10 Essential Camera Brands</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-xiaomi-redmi-note-12-pro-4g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Xiaomi Redmi Note 12 Pro 4G Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-with-ocr-convert-pdfs-and-jpgs-using-finereader/"><u>IPhone Document Scanning with OCR: Convert PDFs & JPGs Using FineReader</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-improved-online-traffic-and-user-interaction/"><u>Leverage Cookiebot Technology for Improved Online Traffic & User Interaction</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/saving-day-printer-function-reclaimed-post-update-crisis/"><u>Saving Day: Printer Function Reclaimed Post-Update Crisis</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-ultimate-clearcut-technique-for-backdrop-free-imagery-for-2024/"><u>The Ultimate Clearcut Technique for Backdrop-Free Imagery for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-budget-entertainment-system-insignia-ns-43df710na19-fire-tv-with-alexa-revealed/"><u>Ultimate Budget Entertainment System: Insignia NS-43DF710NA19 Fire TV with Alexa, Revealed</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-cinematic-influence-building-a-powerful-video-marketing-strategy/"><u>[New] 2024 Approved Instagram Cinematic Influence Building a Powerful Video Marketing Strategy</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-secure-screenshots-without-intrusions/"><u>[New] 2024 Approved Secure Screenshots Without Intrusions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-exploring-the-world-of-animated-image-design/"><u>[New] In 2024, Exploring the World of Animated Image Design</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-tegakiflexicaptureocr-abbyy/"><u>「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-industry-pioneer-in-process-analytics-and-intelligent-data-extraction/"><u>ABBYY: Industry Pioneer in Process Analytics and Intelligent Data Extraction</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-open-source-neoml-bibliothek-erlebt-einen-sprung-nach-vorn-mit-python-integration-und-beispielloser-geschwindigkeit/"><u>ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-perspective-on-synergizing-with-ai-for-enhanced-team-performance/"><u>ABBYY's Perspective on Synergizing with AI for Enhanced Team Performance</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/advanced-insights-exploring-beyond-business-analytics-and-process-analysis-ebook-by-abbyy/"><u>Advanced Insights: Exploring Beyond Business Analytics and Process Analysis eBook by ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automatische-dokumentverarbeitung-in-wilmington-mit-abbyy-software/"><u>Automatische Dokumentverarbeitung in Wilmington Mit ABBYY Software</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/effortless-guide-converting-your-dvds-into-digital-format-for-pc-mac-and-mobile-devices/"><u>Effortless Guide: Converting Your DVDs Into Digital Format for PC, Mac & Mobile Devices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-skyrocket-your-video-discovery-with-these-essential-youtube-seo-insights/"><u>In 2024, Skyrocket Your Video Discovery with These Essential YouTube SEO Insights</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/pioneering-50gbps-high-speed-internet-nokia-and-googles-cutting-edge-testing-initiative/"><u>Pioneering 50Gbps High-Speed Internet: Nokia and Google's Cutting-Edge Testing Initiative</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-mobile-tech-music-streaming-and-e-signatures-with-smartwatches-insights-from-the-abbyy-blog/"><u>Revolutionizing Mobile Tech: Music Streaming & E-Signatures with Smartwatches – Insights From the ABBYY Blog</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

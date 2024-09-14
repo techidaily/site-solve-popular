@@ -1,18 +1,12 @@
 ---
 title: "ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska"
-date: 2024-09-08T23:36:37.853Z
-updated: 2024-09-09T23:36:37.853Z
+date: 2024-09-13T20:13:48.001Z
+updated: 2024-09-14T16:20:44.392Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3f74865abe3cde83f5178213b8f2028e6688a23ca37959ec467d0c79369ad79b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -29,18 +23,6 @@ But the sport isn’t her only passion—she also loves her job at ABBYY and has
 
 **[Follow us on Instagram and get to know the people at ABBYY](https://www.instagram.com/abbyyglobal/ "Instagram")**
 
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### What attracted you to ABBYY, and what is your role?
 
 Three things attracted me to ABBYY: people, culture, technologies. ABBYY is an amazing combination of great leadership and teamwork. It means a lot to me personally, because I am a part of a team where we live by the motto “one for all and all for one”. Also, ABBYY’s advanced [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) technologies amaze me every day.
@@ -68,29 +50,18 @@ As a family we hiked to the top of the two tallest peaks in the White Mountains�
 ![two children and two adults family at Mt. Washington summit](https://static1.abbyy.com/abbyycommedia/34361/larysalototska-mount.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 My two other hobbies are more relaxing. I absolutely love egg painting using old beeswax and color dyeing techniques. It’s an art called "pysanka" in Ukraine. I also love embroidery, mainly cross stitching. I decorate traditional Ukrainian clothes and make embroidery pictures.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### If you had one wish come true, what would it be?
 
 I lost my mom to a very aggressive and untreatable cancer. If I had one wish, it would be to create a magic pill to cure any kind of cancer.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### What’s your pet peeve?
 
 People lying. My parents taught me many good life lessons—and one was to never lie. My dad used to say, “Sooner or later the truth will be uncovered, and you will be in a much worse situation than if you stated the truth at the beginning”.
@@ -104,11 +75,12 @@ It also bothers me when I hear anyone say, “I do not know how to do this”. W
 [Meet Our Team](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -163,8 +135,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -174,55 +144,13 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-how-to-download-and-share-tiktok-videos-on-iphone-no-watermark-present/"><u>[New] 2024 Approved  How to Download and Share TikTok Videos on iPhone, No Watermark Present</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-simplifying-video-preservation-with-3-key-practices/"><u>[New] In 2024, Simplifying Video Preservation with 3 Key Practices</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-free-video-conferencing-solutions-for-windowsmac-users/"><u>[Updated] 2024 Approved  Free Video Conferencing Solutions for Windows/Mac Users</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-conquer-chronological-chaos-snapchats-video-inversion/"><u>[Updated] Conquer Chronological Chaos  Snapchat's Video Inversion</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-unraveling-popularity-myths-the-real-truth-about-instagram-reels/"><u>[Updated] Unraveling Popularity Myths  The Real Truth About Instagram Reels</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-whats-the-real-distinction-between-youtube-and-dailymention/"><u>[Updated] What's the Real Distinction Between YouTube and DailyMention?</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/sap-intelligent-rpa-abbyy-abbyy/"><u>高度な文書処理技術と組み合わせた、SAP Intelligent RPA にABBYYを統合する方法 | ABBYYの技術解説</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-collaborative-venture-with-apponfly-elevating-document-processing-solutions/"><u>ABBYY Unveils New Collaborative Venture with AppOnFly: Elevating Document Processing Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automate-your-leads-with-cookiebot-enabled-solutions/"><u>Automate Your Leads with Cookiebot-Enabled Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automated-customer-engagement-with-cookiebot-technology/"><u>Automated Customer Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-traffic-with-cookiebot-powerful-site-engagement-tools/"><u>Boost Traffic with Cookiebot - Powerful Site Engagement Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-engagement-with-cookiebot-technology-for-tailored-content-delivery/"><u>Boosting Engagement with Cookiebot Technology for Tailored Content Delivery</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/combining-power-of-abbyy-with-alteryx-for-enhanced-data-management-and-process-automation-solutions/"><u>Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ow-to-authenticate-your-yt-account-a-hint-list-for-2024/"><u>[New] How to Authenticate Your YT Account? A Hint List for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-the-smart-planners-guide-to-virtual-meeting-success/"><u>[New] In 2024, The Smart Planner's Guide to Virtual Meeting Success</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-audiovisual-amplification-harness-no-cost-tools-for-dynamic-voice-effects/"><u>[Updated] Audiovisual Amplification Harness No-Cost Tools for Dynamic Voice Effects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-constructing-attention-grabbing-trailers-for-youtube/"><u>[Updated] In 2024, Constructing Attention-Grabbing Trailers for YouTube</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/cookiebot-fuels-our-sites-intelligence-discover-the-smart-technology-driving-us/"><u>Cookiebot Fuels Our Site's Intelligence: Discover the Smart Technology Driving Us!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-analytics-unleashing-website-personalization-and-targeting/"><u>Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-personalization-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Driven Personalization: Enhance User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-solutions/"><u>Cookiebot-Enabled Analytics Solutions</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-website-with-advanced-tracking/"><u>Cookiebot-Enabled: Optimize Your Website with Advanced Tracking</u></a></li>
-<li><a href="https://win11.techidaily.com/crafting-executables-from-batch-files-in-windows/"><u>Crafting Executables From Batch Files in Windows</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/digital-workforce-corporate-change-and-business-transformation/"><u>Digital Workforce, Corporate Change, and Business Transformation.</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-with-advanced-automated-marketing-solutions-from-cookiebot/"><u>Driven with Advanced Automated Marketing Solutions From Cookiebot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effective-strategies-to-improve-page-visibility-in-google-search-results/"><u>Effective Strategies to Improve Page Visibility in Google Search Results</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/efficient-session-management-and-targeting-through-cutting-edge-cookiebot-solutions/"><u>Efficient Session Management and Targeting Through Cutting-Edge Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-business-excellence-by-mastering-process-mapping-assessment-and-simulation-tactics/"><u>Elevate Business Excellence by Mastering Process Mapping, Assessment & Simulation Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevating-industry-standards-ap-automation-success-story-of-siemens-and-abbyy/"><u>Elevating Industry Standards: AP Automation Success Story of Siemens and ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-collaboration-effortlessly-using-abbyy-timeline-5s-new-task-mining-technology/"><u>Enhance Collaboration Effortlessly Using ABBYY Timeline 5’S New Task Mining Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-web-personalization-with-the-power-of-cookiebot-technology/"><u>Enhance Web Personalization with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-marketing-analytics-using-cookiebot-technology/"><u>Enhance Your Marketing Analytics Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-engagement-with-cookiebot-technology-integration/"><u>Enhancing Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evolving-towards-process-intelligence-insightful-strategies-from-abbyys-leading-expert/"><u>Evolving Towards Process Intelligence: Insightful Strategies From ABBYY's Leading Expert</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/futuretongues-at-dubai-2020-the-linguistic-showcase/"><u>FutureTongues at Dubai 2020: The Linguistic Showcase</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-samsung-galaxy-xcover-6-pro-tactical-edition-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Samsung Galaxy XCover 6 Pro Tactical Edition Phone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-step-up-your-game-advanced-video-trimming-techniques-in-windows-11/"><u>In 2024, Step Up Your Game  Advanced Video Trimming Techniques in Windows 11</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-xiaomi-redmi-13c-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Xiaomi Redmi 13C for Streaming | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unblemished-visuals-a-buyers-ultimate-guide/"><u>In 2024, Unblemished Visuals  A Buyer's Ultimate Guide</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-unlock-your-apple-iphone-xs-in-minutes-with-iccid-code-everything-you-need-to-know-by-drfone-ios/"><u>In 2024, Unlock Your Apple iPhone XS in Minutes with ICCID Code Everything You Need to Know</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-seamless-mobile-onboarding-with-strategies-from-the-abbyy-handbook/"><u>Mastering Seamless Mobile Onboarding with Strategies From the ABBYY Handbook</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-crafting-an-effective-online-page-for-search-engines/"><u>Mastering the Art of Crafting an Effective Online Page for Search Engines</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-universal-copy-paste-seamless-sharing-across-devices-and-enhancing-your-fitness-routine-with-indoor-cycling-insights-from-the-abbyy-expertise/"><u>Mastering Universal Copy-Paste: Seamless Sharing Across Devices & Enhancing Your Fitness Routine with Indoor Cycling - Insights From the ABBYY Expertise</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/promising-future-with-us-policy-changes-expert-analysis-on-abbyys-platform/"><u>Promising Future with US Policy Changes | Expert Analysis on ABBYY's Platform</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/higher-with-youtube-shorts-a-guide-to-making-a-difference/"><u>Rank Higher with YouTube Shorts  A Guide to Making a Difference</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/strategies-doptimisation-de-la-chaine-logistique-comment-les-donnees-facilitent-le-reinventer-grace-a-abbyy/"><u>Stratégies D'Optimisation De La Chaîne Logistique: Comment Les Données Facilitent Le Réinventer Grâce À ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/strengthen-business-continuity-with-effective-process-enhancement/"><u>Strengthen Business Continuity with Effective Process Enhancement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-subcontracting-options-for-enhanced-abbyy-software-solutions/"><u>Top Subcontracting Options for Enhanced ABBYY Software Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/transformez-la-lecture-de-vos-recus-en-temps-reel-grace-a-lia-abbyy-sphere-numerique/"><u>Transformez La Lecture De Vos Reçus en Temps Réel Grâce À L'IA : ABBYY Sphère Numérique</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ultimate-guide-cleaning-and-formatting-data-for-efficient-ai-model-training/"><u>Ultimate Guide: Cleaning and Formatting Data for Efficient AI Model Training</u></a></li>
-<li><a href="https://win11.techidaily.com/windows-11-device-checkup-the-essential-five-ways-to-monitor-availability/"><u>Windows 11 Device Checkup: The Essential Five Ways to Monitor Availability</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/your-invisible-sd-no-more-anxiety/"><u>Your Invisible SD? No More Anxiety</u></a></li>
+<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-pixel-8-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from Pixel 8</u></a></li>
 </ul></div>
+

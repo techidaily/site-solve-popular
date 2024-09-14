@@ -1,18 +1,12 @@
 ---
 title: "AI Strategy Shifts: Global Economy's Influence Explored in Comprehensive Intelligence Automation Overview"
-date: 2024-09-08T23:36:37.875Z
-updated: 2024-09-09T23:36:37.875Z
+date: 2024-09-11T21:42:21.664Z
+updated: 2024-09-14T20:46:42.461Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b4bf5489aa58d7829034f75f3060e06c6a303902d9f1c209f852264705aa9ec8.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## AI Strategy Shifts: Global Economy's Influence Explored in Comprehensive Intelligence Automation Overview
 
 12345678910111213141516171819202122232425262728/ 28100%实际尺寸适合宽度适合高度适合页面自动介绍杂志连续的
@@ -36,8 +30,6 @@ Total France Germany UK USA At least 1x cost of investment 24% 30% 26% 24% 16% A
 Total France Germany UK USA At least 1x cost of investment 31% 33% 28% 32% 31% At least 2x cost of investment 47% 41% 51% 44% 53% At least 3x cost of investment 12% 16% 12% 13% 8% Lower than expected 9% 9% 8% 12% 8% What ROI has it delivered? When analyzing what the ROI actually was, it rose to expectations, with 47% of respondents saying they saw at least 2x the cost of investment. This was slightly higher in the US and Germany. • It is interesting to note that bigger organizations saw a higher number of responses for 2x cost of investment, whereas smaller organizations (less than 1000 people) saw slightly lower averages. • From an industry perspective, Telecom had the highest expectations of 3x cost of investment, but the highest percent of respondents said they saw 2x cost of investment. • Wholesale as an industry saw the highest number of respondents who said they had at least 2x the cost of investment (62%). • Similar to the expectations, the outcome of last year was comparable - 43% saw at least 2x the cost of 
 
 Monitoring software (software that monitors processes and how you complete tasks) Intelligent document processing platforms (automatic digitization of documents) Data analysis and insights (e.g. Tableau, Power BI, Qlikview) Artiﬁcial Intelligence Mobile productivity apps (e.g. mobile app scanners or PDF converters) None of the above To tal France UK USA 58% 49% 56% 60% 66% 53% 42% 56% 57% 58% 53% 45% 50% 56% 60% 52% 42% 51% 57% 58% 50% 40% 46% 58% 56% 2% 4% 2% 0% 1% Germany Does your company use any of the following Monitoring software, intelligent document processing platforms, and data analysis and insights are the most utilized technologies, however AI and mobile productivity apps are also recognized by respondents. • Unsurprisingly, the larger the organization, the more technologies are being used. Technologies are utilized the most in organizations with 4000-4999 employees (an average of 66% vs an average of 44% in an organization with 250-299 employees). • Manufacturing, Software/Technology and Hospitality are the biggest adopters of the listed technologies, whereas Agriculture • Compared to 2021, there has been an increase in companies using all technologies except for mobile productivity apps (decrease by 1%). Monitoring software (15%) and AI (12%) saw the largest increase in adoption. • In 2023, we are seeing more focus on monitoring software and intelligent document processing platforms, whilst AI is still a key focus area for respondents in their organizations \- compared to 2019, where AI and automation systems were the top solutions implemented by respondents. 
-
-
 
 0/0
 
@@ -67,27 +59,11 @@ Monitoring software (software that monitors processes and how you complete tasks
 
 [![Created with BuildVu](https://www.abbyy.com/buildvu-logo.png)](https://www.idrsolutions.com/online-pdf-to-html-converter)
 
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -98,44 +74,21 @@ Monitoring software (software that monitors processes and how you complete tasks
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-essential-ps3-simulators-for-windows-users-top-5/"><u>[Updated] Essential PS3 Simulators for Windows Users (Top 5)</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-instructions-windows-movie-maker-version-6-installation/"><u>[Updated] Instructions  Windows Movie Maker Version 6 Installation</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-pro-audio-software-win-edition/"><u>[Updated] Pro Audio Software Win Edition</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/2020abbyy7/"><u>2020年の世界的な成功事例：ABBYYで展開したプロセスインテリジェンスストーリートップ7</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-taking-flight-hubsans-latest-aerial-marvel-reviewed/"><u>2024 Approved  Taking Flight  Hubsan's Latest Aerial Marvel Reviewed</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbeyy-news-update-viele-europaer-verbringen-die-meiste-zeit-mit-abgelehnten-tatigkeiten-im-arbeitsalltag-eine-weite-sichtbarkeit/"><u>ABBEYY News Update: Viele Europäer Verbringen Die Meiste Zeit Mit Abgelehnten Tätigkeiten Im Arbeitsalltag - Eine Weite Sichtbarkeit</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-invoice-processing-software-boosts-operational-efficiency-in-the-energy-sector/"><u>ABBYY's Invoice Processing Software Boosts Operational Efficiency in the Energy Sector</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-europe-201/"><u>AI Europe 201</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ameliorer-les-resultats-de-la-robotique-de-processus-assistee-par-ordinateur-rpa-analyse-et-techniques-avancees-chez-abbyy/"><u>Améliorer Les Résultats De La Robotique De Processus Assistée Par Ordinateur (RPA) - Analyse Et Techniques Avancées Chez ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/at-leading-annual-summit-abbyy-showcases-advanced-ml-and-ai-technologies-for-future-success/"><u>At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-website-performance-with-cookiebot-integration-the-key-to-successful-seo-strategies/"><u>Boost Website Performance with Cookiebot Integration - The Key to Successful SEO Strategies</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-automation-enhancing-your-digital-marketing-efforts/"><u>Cookiebot-Driven Automation: Enhancing Your Digital Marketing Efforts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-solutions-enhanced-site-traffic-and-conversion/"><u>Cookiebot-Driven Solutions | Enhanced Site Traffic & Conversion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-websites-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's Analytics & Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-boosting-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Boosting Your Site with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-the-backbone-of-personalized-web-interactions/"><u>Cookiebot: The Backbone of Personalized Web Interactions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-the-efficient-and-smart-powering-behind-your-web-analytics/"><u>Cookiebot: The Efficient and Smart Powering Behind Your Web Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cut-invoice-processing-time-in-half-using-norco-technology/"><u>Cut Invoice Processing Time in Half Using Norco Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/detailed-privacy-and-protection-overview-your-guide-to-enhanced-security-measures/"><u>Detailed Privacy and Protection Overview: Your Guide to Enhanced Security Measures</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/discovering-abbyy-teams-of-athletes-more-than-just-their-profession/"><u>Discovering ABBYY Teams of Athletes: More than Just Their Profession</u></a></li>
-<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-zte-nubia-z60-ultra-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your ZTE Nubia Z60 Ultra Location Settings | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effortless-bill-settlement-with-abbyy-enabled-mobile-banking-application/"><u>Effortless Bill Settlement with ABBYY-Enabled Mobile Banking Application</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-artificial-intelligence-frontiers-at-abbyy-event-shaping-tomorrows-tech-landscape/"><u>Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-customization-and-seo-success/"><u>Harnessing the Power of Cookiebot for Advanced Site Customization and SEO Success</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-oppo-a59-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Oppo A59 5G Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-v29e-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Vivo V29e Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-realme-v30-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Realme V30 Phone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-herangehensweisen-an-die-prozessanalytik-ein-detaillierter-vergleich-zwischen-den-fuhrenden-methoden-pdf-abbyy/"><u>Innovative Herangehensweisen an Die Prozessanalytik: Ein Detaillierter Vergleich Zwischen Den Führenden Methoden (PDF) - ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-strategies-needed-adapting-trade-finance-for-emerging-market-hurdles/"><u>Innovative Strategies Needed: Adapting Trade Finance for Emerging Market Hurdles</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/integrity-and-ethics/"><u>Integrity and Ethics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/interactive-online-conference-expert-tips-and-strategies-for-streamlining-accounts-payable-operations/"><u>Interactive Online Conference: Expert Tips & Strategies for Streamlining Accounts Payable Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-cutting-edge-tracking-tools-for-enhanced-performance-and-engagement/"><u>Leveraging Cutting-Edge Tracking Tools for Enhanced Performance and Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-initial-paperwork-through-vantage-solutions/"><u>Mastering the Art of Initial Paperwork Through Vantage Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/navigating-privacy-laws-with-abbyys-gdpr-ready-data-processing-addendum/"><u>Navigating Privacy Laws with ABBYY's GDPR-Ready Data Processing Addendum</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-bots-boosting-your-sites-performance/"><u>Optimized with Automated Bots: Boosting Your Site's Performance</u></a></li>
-<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Proven Ways in How To Hide Location on Life360 For Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/revolutionizing-supply-chain-management-with-cutting-edge-tech-insights-from-an-abbyy-authority/"><u>Revolutionizing Supply Chain Management with Cutting-Edge Tech: Insights From an ABBYY Authority</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/revolutionizing-team-dynamics-exploring-ais-role-in-reshaping-todays-work-environment-insights-from-abbyy/"><u>Revolutionizing Team Dynamics: Exploring AI's Role in Reshaping Today's Work Environment - Insights From ABBYY</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/top-apps-upgrade-your-mobile-movies-instantly/"><u>Top Apps  Upgrade Your Mobile Movies Instantly</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-site-customization-and-improved-engagement/"><u>Utilizing Cookiebot Technology for Optimized Site Customization and Improved Engagement</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-in-depth-look-at-adobes-cloud-and-comparable-services/"><u>[New] In-Depth Look at Adobe's Cloud & Comparable Services</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-perfect-pairings-blending-tracks-with-cubase-essentials/"><u>2024 Approved Perfect Pairings Blending Tracks with Cubase Essentials</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-with-advanced-automated-marketing-solutions-from-cookiebot/"><u>Driven with Advanced Automated Marketing Solutions From Cookiebot</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effective-strategies-to-improve-page-visibility-in-google-search-results/"><u>Effective Strategies to Improve Page Visibility in Google Search Results</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/efficient-session-management-and-targeting-through-cutting-edge-cookiebot-solutions/"><u>Efficient Session Management and Targeting Through Cutting-Edge Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-business-excellence-by-mastering-process-mapping-assessment-and-simulation-tactics/"><u>Elevate Business Excellence by Mastering Process Mapping, Assessment & Simulation Tactics</u></a></li>
+<li><a href="https://games-able.techidaily.com/from-sony-console-to-personal-computer-connecting-effortlessly/"><u>From Sony Console to Personal Computer - Connecting Effortlessly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-8-best-no-cost-editing-software-for-social-media-for-2024/"><u>The 8 Best No-Cost Editing Software for Social Media for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tune-into-performance-experience-the-harmony-of-exercise-with-garmin-vivoactive-3s-music-capability/"><u>Tune Into Performance: Experience the Harmony of Exercise with Garmin Vivoactive 3'S Music Capability</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

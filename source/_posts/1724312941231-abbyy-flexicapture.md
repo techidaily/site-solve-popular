@@ -1,46 +1,22 @@
 ---
 title: ABBYY FlexiCapture の正式日本市場発売開始
-date: 2024-09-08T23:36:38.275Z
-updated: 2024-09-09T23:36:38.275Z
+date: 2024-09-13T21:19:59.744Z
+updated: 2024-09-14T17:58:23.655Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/623365f2ffae0d2d8c9a44d31ae5f64f961d3fb3d2838be2d2e5cf0ae63c28b6.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY FlexiCapture の正式日本市場発売開始
 
 [ニュースルーム](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY FlexiCaptureを日本で本格販売開始
 
 10月21日, 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ドキュメント認識・ドキュメントキャプチャ・言語技術やサービスを提供するリーダー企業であるABBYYジャパン株式会社（代表：小原洋、日本オフィス：横浜市港北区）は、インテリジェントなデータ・ドキュメントキャプチャソリューションABBYYFlexiCaptureを日本で本格販売を開始したと発表しました。ドキュメントベースのビジネスプロセスを賢く、より効率的にするために既存のプラットフォーム上にABBYY FlexiCaptureの最新拡張機能も搭載しております。分散文書処理、マルチチャンネルの文書入力、増加したシステムのユーザビリティ、制御および監視を展開するための高度なウェブベースのキャプチャは、最新拡張機能の一部です。FlexiCaptureプラットフォームは、請求書処理をサポートするように設計し拡張することも可能です。
 
 ABBYY FlexiCaptureは、ビジネスの様々なシステムで使用する重要なデータを自動抽出でき、ドキュメントベースのプロセスを合理化する、エンタープライズ・ソフトウェア・プラットフォームです。FlexiCaptureを使うと、業務を効率化できコンプライアンスニーズの実現に加え、納税申告書、アンケート、契約書、請求書、顧客のメールや住宅ローンの文書に至るまで様々な文書からデータに簡単にアクセスすることができます。ABBYY FlexiCaptureは、180以上の言語の文書を処理し、手書き認識については100以上の言語をサポートします。スタンドアローンソリューションからエンタープライズレベルのプロジェクトにまで対応します。
@@ -97,8 +73,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -108,42 +82,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-addressing-fake-profile-imagery-in-fb-conversation/"><u>[New] In 2024, Addressing Fake Profile Imagery in FB Conversation</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-transform-your-content-the-science-of-instagram-video-loops/"><u>[New] Transform Your Content  The Science of Instagram Video Loops</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-snapchat-on-mac-quick-setup-tips/"><u>[Updated] 2024 Approved  Snapchat on Mac - Quick Setup Tips</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-ultimate-mobile-sound-treat-asmr/"><u>[Updated] 2024 Approved  The Ultimate Mobile Sound Treat  ASMR</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unlocking-the-power-of-pixel-mastery-over-aspect-ratios-and-dimensions-on-facebook/"><u>[Updated] In 2024, Unlocking the Power of Pixel  Mastery over Aspect Ratios & Dimensions on Facebook</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-tegakiflexicaptureocr-abbyy/"><u>「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Motorola Moto G13 | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatische-dokumentverarbeitung-in-wilmington-mit-abbyy-software/"><u>Automatische Dokumentverarbeitung in Wilmington Mit ABBYY Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversion-rates-using-innovative-cookiebot-tracking-solutions/"><u>Boost Conversion Rates Using Innovative Cookiebot Tracking Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-success-boost-your-sites-visibility-and-conversions/"><u>Cookiebot-Driven Success: Boost Your Site's Visibility and Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-solutions-optimized-user-experience-with-advanced-tracking/"><u>Cookiebot-Enabled Solutions: Optimized User Experience with Advanced Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-site-with-advanced-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Site with Advanced Analytics and Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-the-secret-ingredient-behind-tailored-user-experiences/"><u>Cookiebot: The Secret Ingredient Behind Tailored User Experiences</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-twin-evolution-brochure-unlocking-innovations-with-abbyy/"><u>Digital Twin Evolution Brochure - Unlocking Innovations with ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-optimizing-your-sites-visibility/"><u>Driven by Cookiebot: Optimizing Your Site's Visibility</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/efficiently-managing-insurance-claims-with-ecclesia-the-abbyy-integration/"><u>Efficiently Managing Insurance Claims with Ecclesia: The ABBYY Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-conversion-rates-using-leading-analytics-software/"><u>Enhanced Conversion Rates Using Leading Analytics Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-data-collection-with-the-help-of-cookiebot-technology/"><u>Enhanced Data Collection with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-with-cookiebot-technology/"><u>Enhancing Website Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-vivo-y56-5g-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Vivo Y56 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-robotic-process-automation-for-efficient-logistics-exploring-the-power-of-abbyy-solutions/"><u>Harnessing Robotic Process Automation for Efficient Logistics: Exploring the Power of ABBYY Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-personalization-and-analytics/"><u>Harnessing the Power of Cookiebot for Advanced Site Personalization and Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-abbyys-smart-data-extraction-is-reshaping-the-future-of-service-businesses/"><u>How ABBYY's Smart Data Extraction Is Reshaping the Future of Service Businesses</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-realme-gt-3-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Realme GT 3</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-color-consistency-comparing-srgb-and-rgb-formats/"><u>In 2024, Color Consistency  Comparing Srgb and Rgb Formats</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Samsung Galaxy A23 5G | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Nokia C22 | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-what-does-jailbreaking-iphone-6-i-do-get-answers-here-by-drfone-ios/"><u>In 2024, What Does Jailbreaking iPhone 6 i Do? Get Answers here</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovatives-tool-von-abbyy-finereader-perfekt-fur-die-universitat-innsbruck-und-mehr/"><u>Innovatives Tool Von ABBYY FineReader - Perfekt Für Die Universität Innsbruck Und Mehr!</u></a></li>
-<li><a href="https://win-able.techidaily.com/mastering-stability-effective-fixes-for-state-of-decay-2s-crashing-woes-insider-advice-players/"><u>Mastering Stability: Effective Fixes for State of Decay 2'S Crashing Woes – Insider Advice Players</u></a></li>
-<li><a href="https://win-forum.techidaily.com/mastering-system-boot-processes-eliminate-unwanted-startup-programs-with-revo-uninstaller/"><u>Mastering System Boot Processes: Eliminate Unwanted Startup Programs with Revo Uninstaller</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/metro-ag-auf-dem-weg-in-die-digitale-ara-eine-reise-durch-innovation-und-technologie/"><u>METRO AG Auf Dem Weg in Die Digitale Ära: Eine Reise Durch Innovation Und Technologie</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/navigating-the-future-of-arb-in-finance-unveiling-strategies-from-abbyy-white-paper-on-digital-transformation/"><u>Navigating the Future of ARB in Finance – Unveiling Strategies From ABBYY White Paper on Digital Transformation</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimize-your-websites-performance-using-advanced-cookiebot-solutions/"><u>Optimize Your Website's Performance Using Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/pinnacle-artist-studio-overview/"><u>Pinnacle Artist Studio Overview</u></a></li>
-<li><a href="https://driver-error.techidaily.com/resolving-invalid-installation-warnings-what-to-do-when-drivers-fail-on-your-pc/"><u>Resolving Invalid Installation Warnings: What To Do When Drivers Fail on Your PC</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/updated-in-2024-top-10-free-ai-voice-generators-to-use-in-daily-life/"><u>Updated In 2024, Top 10 Free AI Voice Generators to Use in Daily Life</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-reveal-hidden-gems-top-12-steps-to-make-your-fb-videos-show-up/"><u>[Updated] Reveal Hidden Gems Top 12 Steps to Make Your FB Videos Show Up</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-huawei-p60-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-elevates-mariko-maeda-to-leadership-role-president-and-representative-director-for-strengthening-the-japanese-market-presence/"><u>ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-insights-sync-your-wireless-headset-with-ease-and-keep-passwords-protected/"><u>ABBYY Insights: Sync Your Wireless Headset with Ease and Keep Passwords Protected</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-ocr-software-development-kit-advanced-automatic-document-scanning-and-interpretation/"><u>Abbyy OCR Software Development Kit: Advanced Automatic Document Scanning & Interpretation</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-automatisierte-intelligenz-innovative-losungen-auf-der-expo-fur-dienstleistungsverlagerung-und-konsolidierung/"><u>ABBYY-Automatisierte Intelligenz: Innovative Lösungen Auf Der Expo Für Dienstleistungsverlagerung Und Konsolidierung</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724313274377-abbyy/"><u>ABBYYチェッカリスト - 金融市場で勝ち抜くための強化戦略</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-delight-top-9-uplifting-aspects-of-your-screen-time/"><u>Digital Delight: Top 9 Uplifting Aspects of Your Screen Time</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-iphone-6s-plus-face-id-by-drfone-ios-unlock-ios-unlock/"><u>How to Remove iPhone 6s Plus Face ID?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-skys-the-limit-for-your-shots-blend-free-space-and-premium-subscriptions/"><u>In 2024, Sky's the Limit for Your Shots Blend Free Space and Premium Subscriptions</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/logic-pro-the-process-of-gradually-quietening-audio-levels/"><u>Logic Pro The Process of Gradually Quietening Audio Levels</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/snapshot-review-vidmas-innovation-on-screen-capturing/"><u>Snapshot Review Vidma's Innovation on Screen Capturing</u></a></li>
+<li><a href="https://win-dash.techidaily.com/streamline-your-printing-seamless-epson-driver-updates-for-windows-computers/"><u>Streamline Your Printing: Seamless Epson Driver Updates for Windows Computers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/syncopated-stories-in-reels-merging-sound-and-vision-for-2024/"><u>Syncopated Stories in Reels Merging Sound & Vision for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

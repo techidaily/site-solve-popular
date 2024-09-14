@@ -1,52 +1,22 @@
 ---
 title: "Cookiebot: The Efficient and Smart Powering Behind Your Web Analytics"
-date: 2024-09-08T23:36:35.930Z
-updated: 2024-09-09T23:36:35.930Z
+date: 2024-09-13T21:55:29.009Z
+updated: 2024-09-14T16:56:45.698Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6c8487e0b404251fb12aeaebde28154ddd618ecb4b5d51b0cd4522eee48c4e1f.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Cookiebot: The Efficient and Smart Powering Behind Your Web Analytics
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY and Novelis Innovation Expand Partnership to Leverage Purpose-Built AI Across Europe and the US
 
 March 5, 2024
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Novelis Innovation’s momentum for deploying ABBYY purpose-built artificial intelligence (AI) solutions in Europe is expanding into the United States. Novelis successfully used ABBYY’s portfolio of intelligent automation solutions to drive greater document efficiency and strategic process visibility for several European clients in government, banking, and insurance, and Novelis will replicate this success in the United States with a broadened partnership with ABBYY. 
 
 Notable customer successes include Novelis utilizing ABBYY [Process Intelligence](https://tools.techidaily.com/abbyy/products/) to modernize electronic litigation platforms for the Conseil d’État, the highest judiciary court in France for issues relating to public administration; and Abeille Assurances, a major insurance company in France in collaboration with SS&C Blue Prism. Novelis helped these companies to eliminate major process bottlenecks, automate repetitive administrative tasks, and identify development priorities for further digital transformation of their legacy information systems.
@@ -71,30 +41,12 @@ For more information about ABBYY’s AI-powered Process Intelligence solution, v
 
 To learn more about Novelis optimization of complex business processes, read the Process Intelligence for Operational Excellence: 2024 Industry Report here: <https://www.processexcellencenetwork.com/process-mining/reports/process-intelligence-for-operational-excellence>
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### About ABBYY
 
 AABBYY puts your information to work with purpose-built AI. We combine innovation and experience to transform data from business-critical documents into intelligent actionable outcomes in over 200 languages in real time. We are trusted by more than 10,000 companies globally, including many of the Fortune 500, to drive significant impact where it matters most: accelerate the customer experience, operational excellence, and competitive advantage. ABBYY is a global company with headquarters in Milpitas, CA and offices in 12 countries, and is the [Official Intelligent Automation Partner of Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). For more information, visit [www.abbyy.com/company/about-us/](https://tools.techidaily.com/abbyy/products/) and follow us on [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware), [Facebook](https://www.facebook.com/ABBYYsoft) and [Instagram](https://www.instagram.com/abbyyglobal/).
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### About Novelis 
 
 At Novelis, we specialize in offering comprehensive solutions and services that seamlessly combine our distinct Process Expertise with Process Intelligence, Intelligent Automation, AI Advancements, Innovative Architectures, and Cybersecurity. This fusion of capabilities empowers us to deliver solutions that not only leverage cutting-edge technologies but also draw on our in-depth understanding of processes. Our holistic approach to driving process efficiency ensures that every facet of your business receives the Novelis touch.
@@ -107,8 +59,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -118,48 +68,33 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-leveraging-cg-central-luts-for-cinematic-color-enhancement/"><u>[New] 2024 Approved  Leveraging CG Central LUTs for Cinematic Color Enhancement</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-streamlining-the-process-vimeo-to-mp3-conversion/"><u>[New] 2024 Approved  Streamlining the Process  Vimeo to MP3 Conversion</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-fullscreen-innovations-unveiled-in-adobe-premiere-pro/"><u>[New] Fullscreen Innovations Unveiled in Adobe Premiere Pro</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-2023-guide-selecting-no-charge-fb-video-and-photo-artists/"><u>[Updated] 2024 Approved  2023 Guide  Selecting No-Charge FB Video & Photo Artists</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-a-step-by-step-journey-through-the-landscape-of-instagram-reels/"><u>[Updated] A Step-by-Step Journey Through the Landscape of Instagram Reels</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-how-to-multiply-engagement-on-your-instagram-story/"><u>[Updated] How to Multiply Engagement on Your Instagram Story</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-maximize-your-fb-watching-with-top-firefox-addons-and-downloaders/"><u>[Updated] In 2024, Maximize Your FB Watching with Top Firefox Addons and Downloaders</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-m1-processor-a-leap-forward-in-video-production-technology/"><u>[Updated] M1 Processor  A Leap Forward in Video Production Technology?</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-tegakiflexicaptureocr-abbyy/"><u>「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-detailed-elucinasion-the-google-podcast-application-explained/"><u>2024 Approved  Detailed Elucinasion  The Google Podcast Application Explained</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-polarr-editor-explained-the-ultimate-visual-enhancement-pathway/"><u>2024 Approved  Polarr Editor Explained  The Ultimate Visual Enhancement Pathway</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-backs-humanity-project-in-pioneering-unbiased-ai-oversight-tools/"><u>ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-finereader-wesentliches-tool-in-der-dokumentenverarbeitung-und-analyse/"><u>ABBYY FineReader - Wesentliches Tool in Der Dokumentenverarbeitung Und Analyse</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724312941231-abbyy-flexicapture/"><u>ABBYY FlexiCapture の正式日本市場発売開始</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-gabrielle-lukianchuk-as-new-cmo-driving-company-expansion/"><u>ABBYY Welcomes Gabrielle Lukianchuk as New CMO, Driving Company Expansion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-industry-pioneer-in-process-analytics-and-intelligent-data-extraction/"><u>ABBYY: Industry Pioneer in Process Analytics and Intelligent Data Extraction</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-open-source-neoml-bibliothek-erlebt-einen-sprung-nach-vorn-mit-python-integration-und-beispielloser-geschwindigkeit/"><u>ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-perspective-on-synergizing-with-ai-for-enhanced-team-performance/"><u>ABBYY's Perspective on Synergizing with AI for Enhanced Team Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyyabbyy-proof-of-identity/"><u>ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/advanced-insights-exploring-beyond-business-analytics-and-process-analysis-ebook-by-abbyy/"><u>Advanced Insights: Exploring Beyond Business Analytics and Process Analysis eBook by ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatische-dokumentverarbeitung-in-wilmington-mit-abbyy-software/"><u>Automatische Dokumentverarbeitung in Wilmington Mit ABBYY Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-productivity-key-strategies-for-your-center-of-excellence-with-abbyy-plus-blue-prism-live-session/"><u>Boosting Productivity - Key Strategies for Your Center of Excellence with ABBYY + Blue Prism Live Session</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/convenient-curvature-creation-techniques-in-pixels-for-2024/"><u>Convenient Curvature Creation Techniques in Pixels for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-twins-and-process-simulation-exploring-business-opportunity-expansion/"><u>Digital Twins and Process Simulation - Exploring Business Opportunity Expansion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/emotional-intelligence/"><u>Emotional Intelligence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-data-capture-efficiency-transitioning-to-the-advanced-abbyy-flexicapture-cloud-solution/"><u>Enhance Your Data Capture Efficiency: Transitioning to the Advanced ABBYY FlexiCapture Cloud Solution</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/fishing-footage-frontier-top-action-cameras-for-the-sea/"><u>Fishing Footage Frontier  Top Action Cameras for the Sea</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/handheld-fun-with-the-nintendo-switch-lite-an-economical-alternative-to-full-console/"><u>Handheld Fun with the Nintendo Switch Lite: An Economical Alternative to Full Console</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-honor-90-pro-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Honor 90 Pro to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-to-triumph-in-mobile-user-onboarding-your-essential-e-book-resource/"><u>How to Triumph in Mobile User Onboarding - Your Essential E-Book Resource</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Tecno Spark 20 Pro | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Huawei P60 | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/is-your-motorola-defy-2-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Motorola Defy 2 working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/mastering-photo-editing-removing-backdrops-with-picsart/"><u>Mastering Photo Editing  Removing Backdrops with Picsart</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/munchen-nutzt-abbyy-fur-die-modernisierung-und-digitale-speicherung-von-baurechnungen/"><u>München Nutzt ABBYY Für Die Modernisierung Und Digitale Speicherung Von Baurechnungen</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/neoml-discover-the-power-of-abbyys-enrichit-and-open-source-software-capabilities/"><u>NeoML: Discover the Power of ABBYY's Enrichit and Open-Source Software Capabilities</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-advanced-traffic-analysis-from-cookiebot/"><u>Optimized with Advanced Traffic Analysis From Cookiebot</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/speedy-windows-file-review-strategies/"><u>Speedy Windows File Review Strategies</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/streamline-e-commerce-success-the-power-of-advanced-cookiebot-solutions/"><u>Streamline E-Commerce Success: The Power of Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-leading-small-form-factor-gaming-desktops/"><u>The Leading Small Form Factor Gaming Desktops</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-5-simple-tips-to-boost-your-facebook-productivity/"><u>Top 5 Simple Tips to Boost Your Facebook Productivity</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unleash-dynamic-user-experiences-with-cookiebot-technology/"><u>Unleash Dynamic User Experiences with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unveiling-process-intelligence-insights-into-advanced-data-analytics/"><u>Unveiling Process Intelligence: Insights Into Advanced Data Analytics</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unveiling-secrets-for-instagram-chat-success-for-2024/"><u>Unveiling Secrets for Instagram Chat Success for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-pixelpilot-studio-plus-advanced-os-recorder/"><u>[New] 2024 Approved PixelPilot Studio Plus Advanced OS Recorder</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nsuring-profit-tracking-on-your-channel/"><u>[New] Ensuring Profit Tracking on Your Channel</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-dive-into-the-future-of-branding-with-these-10-igtv-ideas/"><u>[Updated] 2024 Approved Dive Into the Future of Branding with These 10 IGTV Ideas</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-fuels-our-sites-intelligence-discover-the-smart-technology-driving-us/"><u>Cookiebot Fuels Our Site's Intelligence: Discover the Smart Technology Driving Us!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-solutions/"><u>Cookiebot-Enabled Analytics Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-website-with-advanced-tracking/"><u>Cookiebot-Enabled: Optimize Your Website with Advanced Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/digital-workforce-corporate-change-and-business-transformation/"><u>Digital Workforce, Corporate Change, and Business Transformation.</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-with-advanced-automated-marketing-solutions-from-cookiebot/"><u>Driven with Advanced Automated Marketing Solutions From Cookiebot</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effective-strategies-to-improve-page-visibility-in-google-search-results/"><u>Effective Strategies to Improve Page Visibility in Google Search Results</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/efficient-session-management-and-targeting-through-cutting-edge-cookiebot-solutions/"><u>Efficient Session Management and Targeting Through Cutting-Edge Cookiebot Solutions</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/elevate-your-gaming-skills-using-the-cutting-edge-49-inch-philips-evonia-curved-oled-monitor/"><u>Elevate Your Gaming Skills Using The Cutting-Edge, 49-Inch Philips Evonia Curved OLED Monitor</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>How to Come up With the Best Pokemon Team On Apple iPhone SE (2022)? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-exclusive-list-20-complimentary-tools-for-fb-ad-producers/"><u>In 2024, Exclusive List 20 Complimentary Tools for Fb Ad Producers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-vivo-y78-5g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Vivo Y78 5G Phones</u></a></li>
+<li><a href="https://driver-download.techidaily.com/quick-guide-how-to-update-your-windows-devices-battery-drivers/"><u>Quick Guide: How to Update Your Windows Device's Battery Drivers</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

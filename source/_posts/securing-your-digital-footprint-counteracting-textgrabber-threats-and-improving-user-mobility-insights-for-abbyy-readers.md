@@ -1,28 +1,16 @@
 ---
 title: "Securing Your Digital Footprint: Counteracting TextGrabber Threats & Improving User Mobility | Insights for ABBYY Readers"
-date: 2024-09-08T23:36:34.856Z
-updated: 2024-09-09T23:36:34.856Z
+date: 2024-09-09T20:16:37.109Z
+updated: 2024-09-14T17:47:57.125Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f3622d27aea03408c9719ceb.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Securing Your Digital Footprint: Counteracting TextGrabber Threats & Improving User Mobility | Insights for ABBYY Readers
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Special Mobility, Disabling the TextGrabber Signature, and Tracking Your Habits
 
 August 06, 2019
@@ -33,12 +21,6 @@ In today’s Mobile Monday, we will look at some innovations that Google develop
 
 ![](https://static1.abbyy.com/abbyycommedia/26870/mobile-monday-85.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Live Relay**
 
 At the recent I/O conference, Google presented a project named Live Relay designed to help people with hearing impairments. Live Relay converts speech to text in real time and can also read out short fragments typed in by the user. The developers are planning to use a similar technology for real-time machine translation allowing speech to be instantly translated into other languages.
@@ -69,12 +51,6 @@ Currently the app can only recognize commands spoken in English, but the develop
 
 Google has developed a special package of ready-to-use tools that developers can integrate into their own apps to make them more accessible to people with disabilities. The toolkit will enable users to control apps using their voice. It will also read out UI menus and commands, and will cause different buttons to vibrate differently, so that users with visual impairments can easily recognize them.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **ABBYY Tip: Disabling the “Grabbed with** **TextGrabber** **” Signature Line**
 
 If you are using TextGrabber to send documents via email, then you might have already noticed that sometimes a signature with a text saying “Grabbed with [TextGrabber](https://go.onelink.me/oo1u/cef0166e)” appears at the bottom of your emails. Until recently, this feature was always enabled by default and the text could only be removed from your email manually.
@@ -87,12 +63,6 @@ In the latest [TextGrabber](https://go.onelink.me/uny1/c9b5ef5c) updates for iOS
 
 ![abbyy textgrabber](https://static1.abbyy.com/abbyycommedia/26871/abbyy-textgrabber.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 If you have an Android phone, do the following:
 
 1. Open [TextGrabber](https://go.onelink.me/uny1/c9b5ef5c)
@@ -117,11 +87,18 @@ That’s all, folks!
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -176,8 +153,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -187,38 +162,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-boost-your-reach-tips-and-tricks-for-uploading-to-instagram-desktop/"><u>[New] 2024 Approved  Boost Your Reach  Tips & Tricks for Uploading to Instagram Desktop</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-apex-gk-quizmasters-video-channel-list/"><u>[New] Apex GK Quizmasters' Video Channel List</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-beyond-cyberlink-hunt-for-the-ultimate-screen-recording-app-for-2024/"><u>[New] Beyond Cyberlink  Hunt for the Ultimate Screen Recording App for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-celebrating-soundtracks-the-ultimate-anime-list/"><u>[New] Celebrating Soundtracks  The Ultimate Anime List</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-real-time-conquests-unveiled-7-epic-strategy-titles-reviewed/"><u>[New] Real-Time Conquests Unveiled  7 Epic Strategy Titles Reviewed</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-microrecorder-assessment-onscreen-snaps/"><u>[Updated] In 2024, MicroRecorder Assessment  Onscreen Snaps</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iuoajoodhplusocuoocvplusodqplusodleocqeodvoodoos9noaikoobruwwgumwgowutuodquocueodidrkv53pmbrjgrvjgqjgrjg7zjgplkuk3lv4pjgajjgzfjgzjg4hjgqfjg4pjgqjg6rjgrnjg4j1/"><u>「デジタルフォーム作成の専門家リスト:保険セクターを中心としたチェックリストガイド」</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-deciphering-sharex-comparisons-and-replacements/"><u>2024 Approved  Deciphering ShareX  Comparisons & Replacements</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-youtubings-endgame-secrets-from-top-creators-and-templates/"><u>2024 Approved  YouTubing's Endgame  Secrets From Top Creators and Templates</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-ocr-rpa49/"><u>伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-global-idp/"><u>ABBYY Global IDPトレンドの最新発表:成果報告書解説</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-presente-ses-innovantes-technologies-ia-pour-lextraction-de-donnees-au-salon-banque-and-innovation-evenement-cle-2018/"><u>ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-advanced-language-translator-powered-by-ntt-docomo-features-ocr-for-multilingual-support/"><u>ABBYY's Advanced Language Translator - Powered by NTT DOCOMO, Features OCR for Multilingual Support</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-sdgs/"><u>ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatisierte-rechnungsbearbeitung-fur-energielieferanten-mit-branchenrelevanz-empfehlungen-von-abbyy/"><u>Automatisierte Rechnungsbearbeitung Für Energielieferanten Mit Branchenrelevanz – Empfehlungen Von ABBYY</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/efficient-techniques-to-snap-up-twitter-gifs/"><u>Efficient Techniques to Snap Up Twitter Gifs</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-user-experience-with-automated-data-gathering-the-power-of-cookiebot-technology/"><u>Enhanced User Experience with Automated Data Gathering: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-insurance-risk-assessment-via-automated-data-centric-methods/"><u>Enhancing Insurance Risk Assessment via Automated, Data-Centric Methods</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-kyc-compliance-in-finance-with-ai-and-ml-techniques-download-our-comprehensive-guide/"><u>Enhancing KYC Compliance in Finance with AI & ML Techniques - Download Our Comprehensive Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-online-experience-through-cookiebot-driven-analytics/"><u>Enhancing Online Experience Through Cookiebot-Driven Analytics</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/enhancing-online-workshops-with-chatgpt-a-step-by-step-guide/"><u>Enhancing Online Workshops with ChatGPT: A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-through-cookiebot-technology/"><u>Enhancing Website Analytics Through Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-enhanced-digital-presence-with-cookiebot-integration-bespoke-online-growth-tools/"><u>Experience Enhanced Digital Presence with Cookiebot Integration | Bespoke Online Growth Tools</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-does-transfer-learning-power-up-ai-unveiling-the-intricacies/"><u>How Does Transfer Learning Power Up AI? Unveiling the Intricacies</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-a-step-by-step-guide-to-finding-your-apple-id-from-your-iphone-6-plus-by-drfone-ios/"><u>In 2024, A Step-by-Step Guide to Finding Your Apple ID From Your iPhone 6 Plus</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-with-ocr-convert-pdfs-and-jpgs-using-finereader/"><u>IPhone Document Scanning with OCR: Convert PDFs & JPGs Using FineReader</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-improved-online-traffic-and-user-interaction/"><u>Leverage Cookiebot Technology for Improved Online Traffic & User Interaction</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/pc-mastery-a-step-by-step-guide-to-starting-your-pokemon-unite-journey/"><u>PC Mastery: A Step-by-Step Guide to Starting Your Pokémon Unite Journey</u></a></li>
-<li><a href="https://some-skills.techidaily.com/transforming-photos-with-simple-bg-removal-in-picsart-for-2024/"><u>Transforming Photos with Simple Bg Removal in Picsart for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/unlocking-obs-studios-full-creative-potential-with-top-methods/"><u>Unlocking OBS Studio's Full Creative Potential with Top Methods</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-icons-unveiled-elevate-your-fame-and-followers-in-record-time-heres-how-for-2024/"><u>[New] Instagram Icons Unveiled Elevate Your Fame & Followers in Record Time – Here's How for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solved-outriders-lag-issue/"><u>[Solved] Outriders Lag Issue</u></a></li>
+<li><a href="https://fox-access.techidaily.com/align-video-elements-in-your-playback-directory-for-2024/"><u>Align Video Elements in Your Playback Directory for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automate-your-leads-with-cookiebot-enabled-solutions/"><u>Automate Your Leads with Cookiebot-Enabled Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automated-customer-engagement-with-cookiebot-technology/"><u>Automated Customer Engagement with Cookiebot Technology</u></a></li>
+<li><a href="https://fox-info.techidaily.com/best-video-editing-apps-for-windows-filmmakers-expert-compilation/"><u>Best Video Editing Apps for Windows Filmmakers – Expert Compilation</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-traffic-with-cookiebot-powerful-site-engagement-tools/"><u>Boost Traffic with Cookiebot - Powerful Site Engagement Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-engagement-with-cookiebot-technology-for-tailored-content-delivery/"><u>Boosting Engagement with Cookiebot Technology for Tailored Content Delivery</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-can-we-unlock-our-samsung-galaxy-a05-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Samsung Galaxy A05 Phone Screen?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-activity-watches-for-health-enthusiasts-2024s-picks/"><u>Leading Activity Watches for Health Enthusiasts: 2024'S Picks</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/streamline-content-management-twitter-vids-to-insta-feed-for-2024/"><u>Streamline Content Management Twitter Vids to Insta Feed for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-pano-way-to-online-visibility-posting-360-photos-through-mobile-apps/"><u>The Pano-Way to Online Visibility Posting 360 Photos Through Mobile Apps</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-roblox-windows-errors-swift-fixes-to-get-you-back-in-the-game-updated/"><u>Troubleshooting Roblox Windows Errors: Swift Fixes to Get You Back in the Game - Updated</u></a></li>
 </ul></div>
+

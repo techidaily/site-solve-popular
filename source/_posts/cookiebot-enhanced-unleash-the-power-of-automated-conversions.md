@@ -1,18 +1,12 @@
 ---
 title: "Cookiebot-Enhanced: Unleash the Power of Automated Conversions"
-date: 2024-09-08T23:36:35.124Z
-updated: 2024-09-09T23:36:35.124Z
+date: 2024-09-10T18:04:19.558Z
+updated: 2024-09-14T21:43:26.272Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c2d68683c182adeb644872ae9b6efd92813d48ae83b60547183327ca40ae4d54.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Cookiebot-Enhanced: Unleash the Power of Automated Conversions
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -35,30 +29,12 @@ You may ask how such a seemingly little change in a bank protocol can be turning
 
 Combing through this Mt Everest of documents would require armies of trained legal specialists, attorneys, and regulators at a cost of time and money simply impossible to fathom. Oliver Wyman estimates that fourteen of the world’s top banks will pay $1.2B in remediation, while the costs for the industry as a whole will be multiples of that sum. ‘Much of this cost,’ he estimates ‘is linked to the arduous task of changing the terms of contracts tied to Libor whose duration extend beyond the 2021 deadline.’ i
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## If ever there was a use case for AI with ML
 
 So let’s talk a minute about contract language and how it is holding the banking industry hostage – the trillion dollar question - why consultants are needed and why technology is so important in remediation, and, in particular, why Artificial Intelligence (AI) with Machine Learning (ML) can make its biggest difference as a solution. The answer is simple, even if the solution is sophisticated. LIBOR is embedded in tens of thousands of contracts and agreements by which banks do business with each other, client businesses, and government regulators.
 
 AI with ML has been much hyped in recent years, but it often sounds like a solution looking for a problem. AI, in simple terms, is building computer programs (also called ‘computer vision’) to help them find, interpret, make decisions, and take action on complex language embedded in a corpus of data or documents as expert or highly-trained users would. Far from being a replacement for high-paid skilled labor, such as attorneys, paralegals, analysts and consultants, AI with ML helps them scale to global challenges such as LIBOR phase out.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Named entity recognition & extraction has advanced
 
 A particularly useful application of AI for LIBOR transition is recent advancements in **named entity extraction**, whereby AI-based programs can learn how to recognize legal entities in the corpus of contracts and related documents. An entity is a specific person, place, and/or action that is composed of multiple data fields that can be found anywhere in a contract. Often implied and never in a predictable place, named entities can be particularly vexing for legal experts to find as they plow through mountains of contracts.
@@ -67,12 +43,6 @@ LIBOR rates, clauses, and affected parties are all entities in contracts that ar
 
 ![Why AI Matters in LIBOR Transition](https://static1.abbyy.com/abbyycommedia/28998/11986_picture_848x444.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 With recent advancements in named entity recognition and extraction techniques, such as the ability of data scientists and legal experts to train the software with comprehensive taxonomies and variations (thesaurus, legal codes, aliases), modern AI solutions can be in production in a matter of days or weeks at a fraction of the cost of hiring an army of consultants and legal teams to do the work. LIBOR remediation experts can now help train their ‘virtual legal team’ of AI/ML software and supporting RPA bots to be their army of expert assistants to find, remediate, or flag for additional review all the impacted contracts and legal business entities.
 
 Here is where AI with ML can shine as an expert solution for LIBOR transition. By supplementing and learning how to work as an army of virtual assistants, a specialized named entity recognition solution, powered by modern AL with ML, can reduce the time of locating, understanding, and remediating the sheer volume of LIBOR-related documents from tens of person years to weeks or months of computer time. The payback in risk abatement, time, and money can speak for itself.
@@ -87,26 +57,8 @@ i _Sinead Cruise, Lawrence White, ‘The End of LIBOR: The Biggest Banking Chall
 
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Reginald J. Twigg
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -161,8 +113,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -172,43 +122,30 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-from-base-to-pro-gopro-hero5-blacks-clash-with-hero4-silver/"><u>[New] From Base to Pro  GoPro Hero5 Black's Clash with Hero4 Silver</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-crafting-compact-cities-for-a-sustainable-future/"><u>[New] In 2024, Crafting Compact Cities for a Sustainable Future</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-stellarworkspace-unified-elite-full-hd-screens/"><u>[New] In 2024, StellarWorkspace  Unified, Elite Full HD Screens</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-quick-and-reliable-mp4-file-capture-tool-for-2024/"><u>[New] Quick & Reliable MP4 File Capture Tool for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-tecno-pova-5-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Tecno Pova 5?</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/combining-power-of-abbyy-with-alteryx-for-enhanced-data-management-and-process-automation-solutions/"><u>Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-fuels-our-sites-intelligence-discover-the-smart-technology-driving-us/"><u>Cookiebot Fuels Our Site's Intelligence: Discover the Smart Technology Driving Us!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-analytics-unleashing-website-personalization-and-targeting/"><u>Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-personalization-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Driven Personalization: Enhance User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-solutions/"><u>Cookiebot-Enabled Analytics Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-website-with-advanced-tracking/"><u>Cookiebot-Enabled: Optimize Your Website with Advanced Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-workforce-corporate-change-and-business-transformation/"><u>Digital Workforce, Corporate Change, and Business Transformation.</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-with-advanced-automated-marketing-solutions-from-cookiebot/"><u>Driven with Advanced Automated Marketing Solutions From Cookiebot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effective-strategies-to-improve-page-visibility-in-google-search-results/"><u>Effective Strategies to Improve Page Visibility in Google Search Results</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/efficient-session-management-and-targeting-through-cutting-edge-cookiebot-solutions/"><u>Efficient Session Management and Targeting Through Cutting-Edge Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-business-excellence-by-mastering-process-mapping-assessment-and-simulation-tactics/"><u>Elevate Business Excellence by Mastering Process Mapping, Assessment & Simulation Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevating-industry-standards-ap-automation-success-story-of-siemens-and-abbyy/"><u>Elevating Industry Standards: AP Automation Success Story of Siemens and ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-collaboration-effortlessly-using-abbyy-timeline-5s-new-task-mining-technology/"><u>Enhance Collaboration Effortlessly Using ABBYY Timeline 5’S New Task Mining Technology</u></a></li>
-<li><a href="https://win11.techidaily.com/enhance-cross-language-interactions-with-keyboard-shortcuts-on-windows-11/"><u>Enhance Cross-Language Interactions with Keyboard Shortcuts on Windows 11</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-web-personalization-with-the-power-of-cookiebot-technology/"><u>Enhance Web Personalization with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-marketing-analytics-using-cookiebot-technology/"><u>Enhance Your Marketing Analytics Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-engagement-with-cookiebot-technology-integration/"><u>Enhancing Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evolving-towards-process-intelligence-insightful-strategies-from-abbyys-leading-expert/"><u>Evolving Towards Process Intelligence: Insightful Strategies From ABBYY's Leading Expert</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-artificial-intelligence-frontiers-at-abbyy-event-shaping-tomorrows-tech-landscape/"><u>Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/full-featured-icloud-drive-in-sierra-comprehensive-exploration-for-2024/"><u>Full-Featured iCloud Drive in Sierra – Comprehensive Exploration for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-customization-and-seo-success/"><u>Harnessing the Power of Cookiebot for Advanced Site Customization and SEO Success</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-the-required-apple-store-verification-for-iphone-se-2020-by-drfone-ios/"><u>In 2024, How To Bypass the Required Apple Store Verification For iPhone SE (2020)</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-perfect-slide-sharing-techniques-the-best-ways-to-use-a-webcam/"><u>In 2024, Perfect Slide Sharing Techniques  The Best Ways to Use a Webcam</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-herangehensweisen-an-die-prozessanalytik-ein-detaillierter-vergleich-zwischen-den-fuhrenden-methoden-pdf-abbyy/"><u>Innovative Herangehensweisen an Die Prozessanalytik: Ein Detaillierter Vergleich Zwischen Den Führenden Methoden (PDF) - ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-strategies-needed-adapting-trade-finance-for-emerging-market-hurdles/"><u>Innovative Strategies Needed: Adapting Trade Finance for Emerging Market Hurdles</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/integrity-and-ethics/"><u>Integrity and Ethics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/interactive-online-conference-expert-tips-and-strategies-for-streamlining-accounts-payable-operations/"><u>Interactive Online Conference: Expert Tips & Strategies for Streamlining Accounts Payable Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-cutting-edge-tracking-tools-for-enhanced-performance-and-engagement/"><u>Leveraging Cutting-Edge Tracking Tools for Enhanced Performance and Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-initial-paperwork-through-vantage-solutions/"><u>Mastering the Art of Initial Paperwork Through Vantage Solutions</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/software-enhancements-tidying-up-vs-total-replacement/"><u>Software Enhancements: Tidying Up Vs. Total Replacement</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/uncover-the-top-6-errors-users-make-with-cura-and-how-to-correct-them-effortlessly/"><u>Uncover the Top 6 Errors Users Make with Cura and How to Correct Them Effortlessly</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-exploring-media-top-ranking-camera-apps-for-iphonesandroid-devices-for-2024/"><u>[Updated] Exploring Media Top-Ranking Camera Apps for iPhones/Android Devices for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/10-must-know-iphone-photography-tips-today-for-2024/"><u>10 Must-Know iPhone Photography Tips Today for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-elite-mobile-filming-tech-for-iphones/"><u>2024 Approved Elite Mobile Filming Tech for iPhones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-enhance-your-vtuber-experience-with-top-voice-modification-tools/"><u>2024 Approved Enhance Your VTuber Experience with Top Voice Modification Tools</u></a></li>
+<li><a href="https://extra-information.techidaily.com/activate-windows-11s-automatic-high-dynamic-range-auto-hdr-for-2024/"><u>Activate Windows 11'S Automatic High Dynamic Range (Auto HDR) for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-a05s-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy A05s Phone without PIN</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leverage-enhanced-user-experience-websites-boosted-using-the-powerful-cookiebot-platform/"><u>Leverage Enhanced User Experience: Websites Boosted Using the Powerful Cookiebot Platform</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leveraging-cookiebot-technology-for-improved-website-engagement/"><u>Leveraging Cookiebot Technology for Improved Website Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/master-your-connections-using-ios-12-features-for-business-cards-tips-from-abbyb-log/"><u>Master Your Connections Using iOS 12 Features for Business Cards - Tips From ABBYB Log</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/maximize-engagement-with-advanced-analytics-the-cookiebot-integration-advantage/"><u>Maximize Engagement with Advanced Analytics: The Cookiebot Integration Advantage</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iuocreodoplusodgplusoctplusodpeodleodreodvoacgombqewmluaipuevptog44ki44ow44ot44o86kqn5a6a44ob44kn44od44kv44oq44k544oi44gn6kal44gk44gr44kl5paw44gx44ge5lql5qw25/"><u>キャッシュフロー最適化戦略: アブビー認定チェックリストで見つける新しい事業機会</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

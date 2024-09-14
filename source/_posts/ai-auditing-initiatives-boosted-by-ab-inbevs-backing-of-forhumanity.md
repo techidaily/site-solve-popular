@@ -1,46 +1,22 @@
 ---
 title: AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity
-date: 2024-09-08T23:36:35.049Z
-updated: 2024-09-09T23:36:35.049Z
+date: 2024-09-09T18:40:38.548Z
+updated: 2024-09-14T22:48:48.237Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8d4f635de6f8288e79a21d2dcf9027cad8747323c88b4f310acedbe966d2fadc.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY s'engage aux côtés de ForHumanity pour créer des systèmes d'audit indépendants de l'IA
 
 Mai 13, 2024
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Au cours du prochain ABBYY AI Summit qui se tiendra le 15 mai à l’Emirates Stadium de Londres, l'entreprise se penchera sur la façon dont les établissements financiers peuvent s'adapter aux exigences de conformité en constante évolution.
 
 ABBYY annonce son partenariat avec l’association [ForHumanity](https://forhumanity.center/) dans le but d'aider le secteur des services financiers à s'adapter aux nouvelles réglementations relatives à l'utilisation de l'intelligence artificielle. Dans cette optique, ABBYY copilotera un groupe de travail chargé de définir des critères d'audit pour l'IA, ainsi que pour les systèmes algorithmiques et autonomes (AAA).
@@ -68,28 +44,10 @@ Consultez ces liens pour :
 * [Plus d’informations sur l’ABBYY AI Summit](https://tools.techidaily.com/abbyy/products/)
 * [Plus d’informations sur la conformité à l’IA](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### À PROPOS D’ABBYY
 
 ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous combinons l'innovation et l'expérience pour transformer les informations issues de documents stratégiques en résultats exploitables et pertinents, dans plus de 200 langues et en temps réel. Nous permettons à plus de 10 000 entreprises dans le monde, y compris de nombreuses entreprises du classement Fortune 500, d'avoir un impact majeur là où cela compte le plus : l'expérience client, l'excellence opérationnelle et la compétitivité. ABBYY est une entreprise mondiale dont le siège social se trouve à Milpitas, en Californie, et qui dispose de bureaux dans 14 pays. ABBYY est le partenaire [officiel d’intelligente automation du club de football féminin d'Arsenal](https://tools.techidaily.com/abbyy/products/). Pour plus d'informations, consultez le site www.abbyy.com/company et rejoignez-nous sur [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware?ref%5Fsrc=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) et [Facebook](https://www.facebook.com/ABBYYsoft/?locale=fr%5FFR).
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### À PROPOS DE FORHUMANITY
 
 ForHumanity (<https://forhumanity.center/>) est une organisation à but non lucratif (501(c)(3)) et ForHumanity Europe, une association française 1901, se consacrent à l’éthique, aux biais, à la vie privée, à la confiance et à la cybersécurité dans le domaine de l’intelligence artificielle et des systèmes autonomes. ForHumanity utilise un processus ouvert et transparent qui s’appuie sur plus de 2000 contributeurs de 96 pays pour élaborer des critères d’audit, des systèmes de certification et des programmes éducatifs destinés aux professionnels du droit et de la conformité, aux éducateurs, aux auditeurs, aux développeurs et aux législateurs, afin d’atténuer les préjugés, d’améliorer l’éthique, de protéger la vie privée, de renforcer la confiance, d’améliorer la cybersécurité et d’encourager la responsabilité et la transparence dans l’intelligence artificielle et les systèmes autonomes. ForHumanity s’efforce de rendre l’IA sûre et digne de confiance pour tous.
@@ -102,8 +60,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -113,39 +69,34 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-supercharge-your-channel-with-smart-youtube-collaborations/"><u>[New] 2024 Approved  Supercharge Your Channel with Smart YouTube Collaborations</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-no-hassle-just-happiness-effortless-video-edits-on-windows-10/"><u>[New] No Hassle, Just Happiness  Effortless Video Edits on Windows 10</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-ultimate-guide-on-google-podcast-upload/"><u>2024 Approved  Ultimate Guide on Google Podcast Upload</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-gabrielle-lukianchuk-as-new-cmo-driving-company-expansion/"><u>ABBYY Welcomes Gabrielle Lukianchuk as New CMO, Driving Company Expansion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyyabbyy-proof-of-identity/"><u>ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-productivity-key-strategies-for-your-center-of-excellence-with-abbyy-plus-blue-prism-live-session/"><u>Boosting Productivity - Key Strategies for Your Center of Excellence with ABBYY + Blue Prism Live Session</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-twins-and-process-simulation-exploring-business-opportunity-expansion/"><u>Digital Twins and Process Simulation - Exploring Business Opportunity Expansion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-your-digital-presence-using-cookiebots-advanced-solutions/"><u>Elevate Your Digital Presence Using Cookiebot's Advanced Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/emotional-intelligence/"><u>Emotional Intelligence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-user-experience-with-our-cookiebot-integration-solutions/"><u>Enhance User Experience with Our Cookiebot Integration Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-data-capture-efficiency-transitioning-to-the-advanced-abbyy-flexicapture-cloud-solution/"><u>Enhance Your Data Capture Efficiency: Transitioning to the Advanced ABBYY FlexiCapture Cloud Solution</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-customer-insights-with-the-help-of-cookiebot-technology/"><u>Enhanced Customer Insights with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-marketing-precision-via-cookiebot-driven-insights/"><u>Enhanced Marketing Precision via Cookiebot-Driven Insights</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-ocr-solutions-boost-efficiency-in-top-tier-construction-information-firm/"><u>Enhanced OCR Solutions Boost Efficiency in Top-Tier Construction Information Firm</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-personalization-with-the-support-of-cookiebot-technology/"><u>Enhanced Personalization with the Support of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-efficiency-in-financial-transactions-with-abbyys-innovative-automation-technology/"><u>Enhancing Efficiency in Financial Transactions with ABBYY's Innovative Automation Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-tracking-the-power-behind-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Tracking: The Power Behind Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evaluierung-von-volkswagens-infotainmentsystemen-mit-hilfe-der-software-von-abbyy/"><u>Evaluierung Von Volkswagens Infotainmentsystemen Mit Hilfe Der Software Von ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-tomorrows-job-landscape-with-rpa-insights-from-abbyys-timeline-infobook/"><u>Exploring Tomorrow's Job Landscape with RPA: Insights From ABBYY's Timeline Infobook</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-many-attempts-to-unlock-iphone-13-pro-drfone-by-drfone-ios/"><u>How Many Attempts To Unlock iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-from-realme-gt-neo-5-se-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Realme GT Neo 5 SE Devices</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-to-triumph-in-mobile-user-onboarding-your-essential-e-book-resource/"><u>How to Triumph in Mobile User Onboarding - Your Essential E-Book Resource</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-analyzing-video-platforms-vimeo-and-youtube/"><u>In 2024, Analyzing Video Platforms  Vimeo and YouTube</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-extensive-look-at-djis-inspire-1-drone/"><u>In 2024, Extensive Look at DJI's Inspire 1 Drone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-itel-a70-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Itel A70 Phone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-ai-driven-document-handling-for-modern-banking-systems/"><u>Innovative AI-Driven Document Handling for Modern Banking Systems</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-the-efficiency-of-cookiebot-technology-for-seamless-web-tracking/"><u>Leveraging the Efficiency of Cookiebot Technology for Seamless Web Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/munchen-nutzt-abbyy-fur-die-modernisierung-und-digitale-speicherung-von-baurechnungen/"><u>München Nutzt ABBYY Für Die Modernisierung Und Digitale Speicherung Von Baurechnungen</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/netgear-wi-fi-card-software-installation-guide-and-driver-downloads/"><u>NETGEAR Wi-Fi Card Software Installation Guide and Driver Downloads</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/online-marketplace-exceeds-growth-targets-and-boosts-operational-productivity-with-cutting-edge-invoice-management-technology/"><u>Online Marketplace Exceeds Growth Targets and Boosts Operational Productivity with Cutting-Edge Invoice Management Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/securing-your-digital-footprint-counteracting-textgrabber-threats-and-improving-user-mobility-insights-for-abbyy-readers/"><u>Securing Your Digital Footprint: Counteracting TextGrabber Threats & Improving User Mobility | Insights for ABBYY Readers</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/sustained-profitable-expansion-abbyy-announces-back-to-back-double-digit-revenue-upswing-for-third-year-in-a-row/"><u>Sustained Profitable Expansion: ABBYY Announces Back-to-Back Double-Digit Revenue Upswing for Third Year in a Row</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-the-legal-framework-abbyys-cloud-product-terms-end-to-end-privacy-standards-and-gdpr-provisions-explained/"><u>Understanding the Legal Framework: ABBYY's Cloud Product Terms, End-to-End Privacy Standards & GDPR Provisions Explained</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unleash-dynamic-user-experiences-with-cookiebot-technology/"><u>Unleash Dynamic User Experiences with Cookiebot Technology</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-racing-hearts-22-short-track-triumph/"><u>[Updated] Racing Hearts '22 Short-Track Triumph</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-10-streaming-services-a-must-know/"><u>[Updated] Top 10 Streaming Services - A Must Know</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/2020abbyy7/"><u>2020年の世界的な成功事例：ABBYYで展開したプロセスインテリジェンスストーリートップ7</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-best-slogan-generator-for-virtual-events/"><u>2024 Approved Best Slogan Generator for Virtual Events</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbeyy-news-update-viele-europaer-verbringen-die-meiste-zeit-mit-abgelehnten-tatigkeiten-im-arbeitsalltag-eine-weite-sichtbarkeit/"><u>ABBEYY News Update: Viele Europäer Verbringen Die Meiste Zeit Mit Abgelehnten Tätigkeiten Im Arbeitsalltag - Eine Weite Sichtbarkeit</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-invoice-processing-software-boosts-operational-efficiency-in-the-energy-sector/"><u>ABBYY's Invoice Processing Software Boosts Operational Efficiency in the Energy Sector</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-europe-201/"><u>AI Europe 201</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ameliorer-les-resultats-de-la-robotique-de-processus-assistee-par-ordinateur-rpa-analyse-et-techniques-avancees-chez-abbyy/"><u>Améliorer Les Résultats De La Robotique De Processus Assistée Par Ordinateur (RPA) - Analyse Et Techniques Avancées Chez ABBYY</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expert-advice-troubleshooting-and-correcting-the-lost-haldll-errors-on-windows-xp-systems/"><u>Expert Advice: Troubleshooting and Correcting the Lost Hal.dll Errors on Windows XP Systems</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/farm-tastic-fun-and-games-top-friendly-farming-titles-for-2024/"><u>Farm-Tastic Fun & Games Top Friendly Farming Titles for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-vivo-y200-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Vivo Y200 to Another | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-chatgpt-identifying-and-fixing-the-six-most-common-errors/"><u>Mastering ChatGPT: Identifying & Fixing the Six Most Common Errors</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcome-your-lol-communication-hurdles-a-guide-when-voice-chat-wont-work/"><u>Overcome Your LoL Communication Hurdles: A Guide When Voice Chat Won't Work</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/revolutionizing-team-dynamics-exploring-ais-role-in-reshaping-todays-work-environment-insights-from-abbyy/"><u>Revolutionizing Team Dynamics: Exploring AI's Role in Reshaping Today's Work Environment - Insights From ABBYY</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/stop-win11-flickering-distraction/"><u>Stop Win11 Flickering Distraction</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-site-customization-and-improved-engagement/"><u>Utilizing Cookiebot Technology for Optimized Site Customization and Improved Engagement</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

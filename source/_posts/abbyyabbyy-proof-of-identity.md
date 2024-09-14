@@ -1,48 +1,24 @@
 ---
 title: ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内
-date: 2024-09-08T23:36:34.157Z
-updated: 2024-09-09T23:36:34.157Z
+date: 2024-09-10T23:02:19.528Z
+updated: 2024-09-14T21:32:44.227Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d9925e82a959f50569bbd42483d903b11385c17bd02f16f205258c110d37af55.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY、初のオールインワン本人確認ソリューション 「ABBYY Proof of Identity」を発表
 
 10月24日, 2022
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![News Abbyy Poi](https://static2.abbyy.com/abbyycommedia/36116/news-abbyy-poi.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **～AI OCRの活用により、ユーザーの使いやすさと企業にとって安全な本人確認の両立を実現、** 
 **詐欺損害の軽減や複雑な手順による消費者の離脱率低下にも寄与～** 
 
@@ -71,18 +47,6 @@ ABBYY Proof of Identityの詳細は、[こちら](https://tools.techidaily.com/a
 
 _1 Gartner、「Buyer’s Guide for Identity Proofing（身元保証のためのバイヤーズガイド）」（2021年4月7日発行）_
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### ABBYYについて
 
 ABBYYはインテリジェント・オートメーションを推進するリーディング・カンパニーです。オートメーション・プラットフォームの原動力となるテクノロジーを提供することにより、人々の働き方やビジネス加速の方法に新しいビジョンをもたらしています。ABBYYのソリューションは、企業データを変換し、よりスマートかつ迅速な業務の遂行に必要なインサイトを提供します。 
@@ -95,12 +59,6 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 報道関係者お問い合わせ先
 
 #### 株式会社井之上パブリックリレーションズ 
@@ -116,8 +74,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -127,63 +83,33 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-8-free-online-video-editors-for-youtube/"><u>[New] 2024 Approved  8 Free Online Video Editors for YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-audiovisual-excellence-on-youtube-through-enhancements/"><u>[New] Audiovisual Excellence on YouTube Through Enhancements</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-browse-the-web-for-unique-personalized-wrapped-presents-at-leading-e-stores/"><u>[New] Browse the Web for Unique, Personalized Wrapped Presents at Leading E-Stores</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-effortless-video-streams-youtube-loops-for-television-viewers-for-2024/"><u>[New] Effortless Video Streams  YouTube Loops for Television Viewers for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-pixelated-panoramas-instaslideshow/"><u>[New] In 2024, Pixelated Panoramas  InstaSlideShow</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-does-youtube-offer-frequent-payments-to-you-in-2024/"><u>[Updated] Does YouTube Offer Frequent Payments to You, In 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-premier-tiktok-editing-apps-for-windows-users-for-2024/"><u>[Updated] Premier TikTok Editing Apps for Windows Users for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-quickening-ppt-tempo-a-guide-to-faster-slides/"><u>[Updated] Quickening PPT Tempo  A Guide to Faster Slides</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-streamlining-your-webm-experience-without-spending-money-for-2024/"><u>[Updated] Streamlining Your WebM Experience Without Spending Money for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-tegakiflexicaptureocr-abbyy/"><u>「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-guide-windows-movie-maker-60-configuration/"><u>2024 Approved  Expert Guide  Windows Movie Maker 6.0 Configuration</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-free-webm-viewers-the-ultimate-comparison-of-options/"><u>2024 Approved  Free WebM Viewers  The Ultimate Comparison of Options</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-perfect-windows-11-wallpaper-transitions/"><u>2024 Approved  Perfect Windows 11 Wallpaper Transitions</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-visual-dictionary-understanding-online-social-symbolism/"><u>A Visual Dictionary: Understanding Online Social Symbolism</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-backs-humanity-project-in-pioneering-unbiased-ai-oversight-tools/"><u>ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-finereader-wesentliches-tool-in-der-dokumentenverarbeitung-und-analyse/"><u>ABBYY FineReader - Wesentliches Tool in Der Dokumentenverarbeitung Und Analyse</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724312941231-abbyy-flexicapture/"><u>ABBYY FlexiCapture の正式日本市場発売開始</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-gabrielle-lukianchuk-as-new-cmo-driving-company-expansion/"><u>ABBYY Welcomes Gabrielle Lukianchuk as New CMO, Driving Company Expansion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-industry-pioneer-in-process-analytics-and-intelligent-data-extraction/"><u>ABBYY: Industry Pioneer in Process Analytics and Intelligent Data Extraction</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-open-source-neoml-bibliothek-erlebt-einen-sprung-nach-vorn-mit-python-integration-und-beispielloser-geschwindigkeit/"><u>ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-perspective-on-synergizing-with-ai-for-enhanced-team-performance/"><u>ABBYY's Perspective on Synergizing with AI for Enhanced Team Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/advanced-insights-exploring-beyond-business-analytics-and-process-analysis-ebook-by-abbyy/"><u>Advanced Insights: Exploring Beyond Business Analytics and Process Analysis eBook by ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatische-dokumentverarbeitung-in-wilmington-mit-abbyy-software/"><u>Automatische Dokumentverarbeitung in Wilmington Mit ABBYY Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversion-rates-using-innovative-cookiebot-tracking-solutions/"><u>Boost Conversion Rates Using Innovative Cookiebot Tracking Solutions</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/boost-your-social-media-presence-by-adding-a-pin-tab-on-your-facebook-profile/"><u>Boost Your Social Media Presence by Adding a Pin Tab on Your Facebook Profile</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-productivity-key-strategies-for-your-center-of-excellence-with-abbyy-plus-blue-prism-live-session/"><u>Boosting Productivity - Key Strategies for Your Center of Excellence with ABBYY + Blue Prism Live Session</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-success-boost-your-sites-visibility-and-conversions/"><u>Cookiebot-Driven Success: Boost Your Site's Visibility and Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-solutions-optimized-user-experience-with-advanced-tracking/"><u>Cookiebot-Enabled Solutions: Optimized User Experience with Advanced Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-site-with-advanced-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Site with Advanced Analytics and Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-the-secret-ingredient-behind-tailored-user-experiences/"><u>Cookiebot: The Secret Ingredient Behind Tailored User Experiences</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-twin-evolution-brochure-unlocking-innovations-with-abbyy/"><u>Digital Twin Evolution Brochure - Unlocking Innovations with ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-twins-and-process-simulation-exploring-business-opportunity-expansion/"><u>Digital Twins and Process Simulation - Exploring Business Opportunity Expansion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-optimizing-your-sites-visibility/"><u>Driven by Cookiebot: Optimizing Your Site's Visibility</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/efficiently-managing-insurance-claims-with-ecclesia-the-abbyy-integration/"><u>Efficiently Managing Insurance Claims with Ecclesia: The ABBYY Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/emotional-intelligence/"><u>Emotional Intelligence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-data-capture-efficiency-transitioning-to-the-advanced-abbyy-flexicapture-cloud-solution/"><u>Enhance Your Data Capture Efficiency: Transitioning to the Advanced ABBYY FlexiCapture Cloud Solution</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-conversion-rates-using-leading-analytics-software/"><u>Enhanced Conversion Rates Using Leading Analytics Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-data-collection-with-the-help-of-cookiebot-technology/"><u>Enhanced Data Collection with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-with-cookiebot-technology/"><u>Enhancing Website Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://driver-error.techidaily.com/fixing-driver-errors-for-your-windows-pc-windows-10-8-and-7-solved/"><u>Fixing Driver Errors for Your Windows PC (Windows 10, 8, and 7): Solved!</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-honor-90-gt-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Honor 90 GT | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-robotic-process-automation-for-efficient-logistics-exploring-the-power-of-abbyy-solutions/"><u>Harnessing Robotic Process Automation for Efficient Logistics: Exploring the Power of ABBYY Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-personalization-and-analytics/"><u>Harnessing the Power of Cookiebot for Advanced Site Personalization and Analytics</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/how-to-fix-lenovo-laptop-screen-flickering-problem/"><u>How to Fix Lenovo Laptop Screen Flickering Problem</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-to-triumph-in-mobile-user-onboarding-your-essential-e-book-resource/"><u>How to Triumph in Mobile User Onboarding - Your Essential E-Book Resource</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-to-use-the-teleport-command-in-minecraft/"><u>How to Use the Teleport Command in Minecraft</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-tecno-spark-20c-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Tecno Spark 20C</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/mastering-the-art-of-citing-ai-tools-how-to-credit-chatgpt-accurately/"><u>Mastering the Art of Citing AI Tools: How to Credit ChatGPT Accurately</u></a></li>
-<li><a href="https://fox-info.techidaily.com/mastering-the-art-of-stealthy-sound-extinction-in-audacity-for-2024/"><u>Mastering the Art of Stealthy Sound Extinction in Audacity for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/neoml-discover-the-power-of-abbyys-enrichit-and-open-source-software-capabilities/"><u>NeoML: Discover the Power of ABBYY's Enrichit and Open-Source Software Capabilities</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-how-to-add-and-modify-audio-keyframes-in-final-cut-pro-x-for-2024/"><u>New How to Add and Modify Audio Keyframes in Final Cut Pro X for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-advanced-traffic-analysis-from-cookiebot/"><u>Optimized with Advanced Traffic Analysis From Cookiebot</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/razer-kiyo-webcam-review/"><u>Razer Kiyo Webcam Review</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/remote-work-revolutionized-6-insider-tricks-to-integrate-chatgpt-into-your-gig-jobs/"><u>Remote Work Revolutionized: 6 Insider Tricks to Integrate ChatGPT Into Your Gig Jobs</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/seamless-communication-via-chatgpts-api/"><u>Seamless Communication via ChatGPT's API</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/simple-strategies-for-recording-on-youtube-for-2024/"><u>Simple Strategies for Recording on YouTube for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/streamline-e-commerce-success-the-power-of-advanced-cookiebot-solutions/"><u>Streamline E-Commerce Success: The Power of Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unveiling-process-intelligence-insights-into-advanced-data-analytics/"><u>Unveiling Process Intelligence: Insights Into Advanced Data Analytics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-retro-editing-magic-cutting-classical-cinematography/"><u>[New] 2024 Approved Retro Editing Magic Cutting Classical Cinematography</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-step-by-step-share-video-to-instagram/"><u>[New] In 2024, Step-by-Step Share Video to Instagram</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-and-blue-prism/"><u>ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-facilitates-consistent-document-management-in-rochlings-sap-system-for-improved-efficiency-latest-industry-news/"><u>ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-showcases-artificial-intelligence-insights-at-the-2018-aiim-event/"><u>ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-auditing-initiatives-boosted-by-ab-inbevs-backing-of-forhumanity/"><u>AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-web-traffic-with-cookiebot-technology-smart-analytics-tools/"><u>Boosting Web Traffic with Cookiebot Technology - Smart Analytics Tools!</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Realme Narzo 60 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-how-to-guide-on-bypassing-iphone-x-icloud-activation-lock-by-drfone-ios/"><u>In 2024, A How-To Guide on Bypassing iPhone X iCloud Activation Lock</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-film-makers-quick-guide-to-perfect-sea-scenes/"><u>In 2024, The Film-Maker’s Quick Guide to Perfect Sea Scenes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-runners-digital-dream-top-virtual-reality-walkers/"><u>In 2024, The Runner's Digital Dream Top Virtual Reality Walkers</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On OnePlus Ace 2V? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-oneplus-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 OnePlus Android SIM Unlock APK</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/universitat-zurich-optimiert-prufungen-mit-abbyy-flexicapture-korrektursystem/"><u>Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unlock-deeper-understanding-with-abbyys-guide-on-elevated-bi-and-process-mining-tactics-ebook/"><u>Unlock Deeper Understanding with ABBYY's Guide on Elevated BI & Process Mining Tactics [eBook]</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

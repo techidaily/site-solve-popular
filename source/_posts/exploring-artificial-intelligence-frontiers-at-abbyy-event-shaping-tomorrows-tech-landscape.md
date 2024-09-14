@@ -1,46 +1,22 @@
 ---
 title: "Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape"
-date: 2024-09-08T23:36:36.847Z
-updated: 2024-09-09T23:36:36.847Z
+date: 2024-09-13T20:26:53.789Z
+updated: 2024-09-14T18:49:16.596Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b7b1a27d1ec7d492ee38fae4ae064cccff7a07bb81d0c83c83f67196d92674a7.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Hosts AI Summit at Emirates Stadium to Celebrate the Game-Changing Future of Artificial Intelligence
 
 May 7, 2024
 
 ![image-2024-05-07-11-56-02-995](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/image-2024-05-07-11-56-02-995.png?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### ABBYY AI Summit London to feature purpose-built AI success stories from Société Générale, Rolls-Royce, Emerson as well as Arsenal F.C. stars including Beth Mead and Martin Keown.
 
 Today ABBYY, a leader in purpose-built AI for intelligent automation, announced its inaugural AI Summit London, which will take place at Emirates Stadium on May 15, 2024.
@@ -76,12 +52,6 @@ The ABBYY AI Summit underscores ABBYY's commitment to delivering purpose-built A
 
 To learn more about the ABBYY AI Summit and sign up for ABBYY’s future events, please visit: <https://digital.abbyy.com/abbyy-ai-summit-2024-register-your-interest>. 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY puts your information to work with purpose-built AI. We combine innovation and experience to transform data from business-critical documents into intelligent actionable outcomes in over 200 languages in real time. We are trusted by more than 10,000 companies globally, including many of the Fortune 500, to drive significant impact where it matters most: accelerate the customer experience, operational excellence, and competitive advantage. ABBYY is a global company with headquarters in Milpitas, CA and offices in 12 countries, and is the [Official Intelligent Automation Partner of Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). For more information, visit [www.abbyy.com/company/about-us/](https://tools.techidaily.com/abbyy/products/) and follow us on [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware), [Facebook](https://www.facebook.com/ABBYYsoft) and [Instagram](https://www.instagram.com/abbyyglobal/).
@@ -96,8 +66,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -107,56 +75,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/rom-good-to-great-videos-the-20-essential-shortcuts-for-success-for-2024/"><u>[New] From Good to Great Videos  The 20 Essential Shortcuts for Success for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-mastering-ios-the-secrets-of-screen-casts/"><u>[New] In 2024, Mastering iOS  The Secrets of Screen Casts</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-sharing-twitter-videos-a-step-by-step-guide-for-whatsapp-users/"><u>[New] Sharing Twitter Videos  A Step-by-Step Guide for WhatsApp Users</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-from-basic-to-breathtaking-transforming-your-discord-avatar-for-2024/"><u>[Updated] From Basic to Breathtaking  Transforming Your Discord Avatar for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-front-row-diversions-beyond-sports-galore/"><u>[Updated] Front Row Diversions Beyond Sports Galore</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-how-to-reactivate-your-photo-viewer-in-win-11-proactively/"><u>[Updated] In 2024, How to Reactivate Your Photo Viewer in Win 11 Proactively</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-screen-capturing-magic-comprehensive-guide-and-options-ranked/"><u>[Updated] In 2024, Screen-Capturing Magic  Comprehensive Guide & Options Ranked</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-exploring-the-unspoken-rules-of-instagram-mastery/"><u>2024 Approved  Exploring the Unspoken Rules of Instagram Mastery</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-eyecatcher-studio-wx-series/"><u>2024 Approved  EyeCatcher Studio WX Series</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-from-passive-page-peeps-to-paying-patrons-facebook-monetization-magic/"><u>2024 Approved  From Passive Page Peeps to Paying Patrons  Facebook Monetization Magic</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-restored-full-screen-in-obs/"><u>2024 Approved  Restored  Full Screen in OBS</u></a></li>
-<li><a href="https://win11.techidaily.com/a-deep-dive-into-the-negative-side-of-low-end-windows-licenses/"><u>A Deep Dive Into the Negative Side of Low-End Windows Licenses</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-and-blue-prism/"><u>ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-facilitates-consistent-document-management-in-rochlings-sap-system-for-improved-efficiency-latest-industry-news/"><u>ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-showcases-artificial-intelligence-insights-at-the-2018-aiim-event/"><u>ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-auditing-initiatives-boosted-by-ab-inbevs-backing-of-forhumanity/"><u>AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-traffic-with-cookiebot-technology-smart-analytics-tools/"><u>Boosting Web Traffic with Cookiebot Technology - Smart Analytics Tools!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-battre-en-regle-les-plateformes-financieres-numeriques-natives-decouvrez-notre-verification-complete-par-abbyy/"><u>Comment Battre en Règle Les Plateformes Financières Numériques Natives : Découvrez Notre Vérification Complète Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-for-seamless-customer-experience-tracking/"><u>Cookiebot-Driven Insights for Seamless Customer Experience Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-leading-ai-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Leading AI Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-unleash-the-power-of-automated-conversions/"><u>Cookiebot-Enhanced: Unleash the Power of Automated Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-unleashing-advanced-tracking-solutions-for-your-websites-success/"><u>Cookiebot: Unleashing Advanced Tracking Solutions for Your Website's Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/data-driven-personalization-through-smart-analytics-solutions/"><u>Data-Driven Personalization Through Smart Analytics Solutions</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/deceptive-chrome-extension-pretending-to-be-chatgpt-endangers-facebook-accounts/"><u>Deceptive Chrome Extension Pretending to Be ChatGPT Endangers Facebook Accounts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/demystifying-rpa-insights-from-the-abbyy-experts-guide/"><u>Demystifying RPA: Insights From the ABBYY Expert's Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/desamorcez-votre-gestion-des-credits-immobiliers-grace-a-levolutif-et-performant-service-de-dematerialisation-la-caisse-depargne-bretagne-pays-de-loire/"><u>Désamorcez Votre Gestion Des Crédits Immobiliers Grâce À L'évolutif Et Performant Service De Dématérialisation La Caisse D’Epargne Bretagne Pays De Loire</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-your-site-performance-using-cookiebot-technology/"><u>Elevate Your Site Performance Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/empowering-website-insights-with-cookiebot-advanced-tracking-solutions-for-improved-seo/"><u>Empowering Website Insights with Cookiebot: Advanced Tracking Solutions for Improved SEO</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-site-performance-with-our-cookiebot-integrated-tools/"><u>Enhance Site Performance with Our Cookiebot Integrated Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-website-traffic-analysis-with-our-advanced-cookiebot-technology-solutions/"><u>Enhance Website Traffic Analysis with Our Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-by-cookiebot-solutions/"><u>Enhanced by Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-multifunctional-toshiba-printer-with-built-in-abbyy-ocr-technology/"><u>Enhanced Multifunctional Toshiba Printer with Built-In ABBYY OCR Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-accounting-efficiency-with-advanced-automated-solutions/"><u>Enhancing Accounting Efficiency with Advanced Automated Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-financial-stability-with-ai-driven-bank-compliance-measures-and-resilience-tactics/"><u>Enhancing Financial Stability with AI-Driven Bank Compliance Measures and Resilience Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-robotic-process-automation-efficiency-with-advanced-process-analytics-insights-from-the-abbyy-experience/"><u>Enhancing Robotic Process Automation Efficiency with Advanced Process Analytics: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-tools/"><u>Enhancing User Experience Through Smart Data Collection Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-a-look-into-the-efficiency-of-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Data Collection: A Look Into the Efficiency of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-with-advanced-cookiebot-technology/"><u>Enhancing User Experience with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-realme-11-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Realme 11 5Gwith/without a PC</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/1723808150721-how-to-have-more-fps-on-roblox-games-2024-tips/"><u>How to Have More FPS on Roblox Games – 2024 Tips</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-4-effective-methods-fake-gps-location-on-apple-iphone-15-pro-maxipad-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Effective Methods Fake GPS Location on Apple iPhone 15 Pro Max/iPad | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-oppo-reno-11-pro-5g-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Oppo Reno 11 Pro 5G FRP Bypass Instantly</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-a59-5g-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo A59 5G to Outlook | Dr.fone</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/instant-resolution-for-caught-in-printer-jobs/"><u>Instant Resolution for Caught-In Printer Jobs</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/maximizing-efficiency-with-chatgpt-a-guide-to-crafting-effective-workflows/"><u>Maximizing Efficiency with ChatGPT: A Guide to Crafting Effective Workflows</u></a></li>
-<li><a href="https://fox-that.techidaily.com/navigate-through-common-apple-pay-complications-using-these-10-simple-strategies/"><u>Navigate Through Common Apple Pay Complications Using These 10 Simple Strategies</u></a></li>
-<li><a href="https://extra-information.techidaily.com/optimal-series-professional-webcam-stabilizers/"><u>Optimal Series  Professional Webcam Stabilizers</u></a></li>
-<li><a href="https://windows11.techidaily.com/steps-to-unraveling-failed-system-call-issues-in-win1011/"><u>Steps to Unraveling 'Failed System Call' Issues in Win10/11</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On OnePlus 12R? | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unlock-deeper-understanding-with-abbyys-guide-on-elevated-bi-and-process-mining-tactics-ebook/"><u>Unlock Deeper Understanding with ABBYY's Guide on Elevated BI & Process Mining Tactics [eBook]</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlock-vivo-s17-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Vivo S17 Phone Password Without Factory Reset Full Guide Here</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-cut-and-trim-3gp-files-with-ease-updated-2023/"><u>Updated In 2024, Cut and Trim 3GP Files with Ease Updated 2023</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-unlocked-skies-cheapest-drones-that-dont-break-the-bank/"><u>[Updated] 2024 Approved Unlocked Skies Cheapest Drones that Don't Break the Bank</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-directing-tweeted-vids-to-fb-audiences/"><u>[Updated] Directing Tweeted Vids to FB Audiences</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-premier-mobile-gaming-best-android-gb-simulators/"><u>[Updated] Premier Mobile Gaming Best Android GB Simulators</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-covert-observers-fb-flashbacks-reader/"><u>2024 Approved Covert Observers FB Flashbacks Reader</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-web-personalization-with-the-power-of-cookiebot-technology/"><u>Enhance Web Personalization with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-marketing-analytics-using-cookiebot-technology/"><u>Enhance Your Marketing Analytics Using Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-engagement-with-cookiebot-technology-integration/"><u>Enhancing Engagement with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/evolving-towards-process-intelligence-insightful-strategies-from-abbyys-leading-expert/"><u>Evolving Towards Process Intelligence: Insightful Strategies From ABBYY's Leading Expert</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/expert-advice-on-integrating-different-fortnite-usernames-into-one-unified-profile/"><u>Expert Advice on Integrating Different Fortnite Usernames Into One Unified Profile</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/preserving-high-quality-outputs-a-guide-to-lossless-video-trimming-in-windows-11/"><u>Preserving High-Quality Outputs: A Guide to Lossless Video Trimming in Windows 11</u></a></li>
+<li><a href="https://fox-access.techidaily.com/prime-ai-graphic-editor-tools-for-2024/"><u>Prime AI Graphic Editor Tools for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solving-the-issue-why-your-yahoo-mail-might-fail-to-receive-messages/"><u>Solving the Issue: Why Your Yahoo Mail Might Fail to Receive Messages</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

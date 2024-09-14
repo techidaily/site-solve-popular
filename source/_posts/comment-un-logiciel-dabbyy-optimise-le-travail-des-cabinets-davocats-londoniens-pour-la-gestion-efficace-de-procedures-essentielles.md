@@ -1,7 +1,7 @@
 ---
 title: Comment Un Logiciel D'ABBYY Optimise Le Travail Des Cabinets D’avocats Londoniens Pour La Gestion Efficace De Procédures Essentielles
-date: 2024-09-08T23:36:37.907Z
-updated: 2024-09-09T23:36:37.907Z
+date: 2024-09-08T16:00:16.141Z
+updated: 2024-09-14T23:08:03.406Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/be822f3b46b270ef9926d48a1de9e3c012d7d2f35db231a8565a98612ff678d9.jpg
@@ -13,42 +13,18 @@ thumbnail: https://thmb.techidaily.com/be822f3b46b270ef9926d48a1de9e3c012d7d2f35
 
 Legal | Document Processing | Digital Archiving
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY aide un grand cabinet d'avocats londonien à harmoniser un processus crucial pour l'exploitation
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/fr/70584.png?h=40&iar=0&w=120)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY aide un grand cabinet d'avocats londonien à harmoniser un processus crucial pour l'exploitation
 
 Juridique | Traitement de documents 
 
 ![](https://static1.abbyy.com/abbyycommedia/14328/2-eversheds_fr_e.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Aperçu du client
 
 ![Eversheds](https://static2.abbyy.com/abbyycommedia/14442/eversheds-logo.jpg) 
@@ -103,22 +79,10 @@ En accélérant considérablement un processus crucial à l'exploitation, le log
 
 [![12-legal](https://static2.abbyy.com/abbyycommedia/14362/12-legal.jpg)](https://tools.techidaily.com/abbyy/products/) [Secteur juridique](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [En savoir plus](https://tools.techidaily.com/abbyy/products/) 
 
 [![2a-eversheds_fr_e_small](https://static4.abbyy.com/abbyycommedia/14327/2a-eversheds_fr_e_small.jpg)](https://static4.abbyy.com/abbyycommedia/10538/cas-client-eversheds-fr.pdf "version PDF") [version PDF](https://static4.abbyy.com/abbyycommedia/10538/cas-client-eversheds-fr.pdf "version PDF") 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Accéder au document](https://static4.abbyy.com/abbyycommedia/10538/cas-client-eversheds-fr.pdf "version PDF") 
 
 ###### Like, share or repost
@@ -141,8 +105,6 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -152,59 +114,23 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-complete-dynamics-review-2023/"><u>[New] Complete Dynamics Review 2023</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-photosegments-evaluation/"><u>[Updated] 2024 Approved  PhotoSegments Evaluation</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-become-an-expert-in-real-time-streaming-on-facebook-platform-for-2024/"><u>[Updated] Become an Expert in Real-Time Streaming on Facebook Platform for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-navigating-trends-essential-hashtags-for-todays-influencers-for-2024/"><u>[Updated] Navigating Trends  Essential Hashtags for Today's Influencers for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-resolving-imovie-cuts-understanding-crop-rationale-for-2024/"><u>[Updated] Resolving iMovie Cuts  Understanding Crop Rationale for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-tunetruthseeker-reaction-to-songs-and-speech-for-2024/"><u>[Updated] TuneTruthseeker  Reaction to Songs and Speech for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-a-comprehensive-guide-to-mastering-gopro-hero5-time-lapse/"><u>2024 Approved  A Comprehensive Guide to Mastering GoPro Hero5 Time-Lapse</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/30-innovative-video-themes-and-layouts/"><u>30 Innovative Video Themes and Layouts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-showcases-artificial-intelligence-insights-at-the-2018-aiim-event/"><u>ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724313274377-abbyy/"><u>ABBYYチェッカリスト - 金融市場で勝ち抜くための強化戦略</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-auditing-initiatives-boosted-by-ab-inbevs-backing-of-forhumanity/"><u>AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-traffic-with-cookiebot-technology-smart-analytics-tools/"><u>Boosting Web Traffic with Cookiebot Technology - Smart Analytics Tools!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-battre-en-regle-les-plateformes-financieres-numeriques-natives-decouvrez-notre-verification-complete-par-abbyy/"><u>Comment Battre en Règle Les Plateformes Financières Numériques Natives : Découvrez Notre Vérification Complète Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-for-seamless-customer-experience-tracking/"><u>Cookiebot-Driven Insights for Seamless Customer Experience Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-leading-ai-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Leading AI Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-unleash-the-power-of-automated-conversions/"><u>Cookiebot-Enhanced: Unleash the Power of Automated Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-unleashing-advanced-tracking-solutions-for-your-websites-success/"><u>Cookiebot: Unleashing Advanced Tracking Solutions for Your Website's Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/data-driven-personalization-through-smart-analytics-solutions/"><u>Data-Driven Personalization Through Smart Analytics Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/demystifying-rpa-insights-from-the-abbyy-experts-guide/"><u>Demystifying RPA: Insights From the ABBYY Expert's Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/desamorcez-votre-gestion-des-credits-immobiliers-grace-a-levolutif-et-performant-service-de-dematerialisation-la-caisse-depargne-bretagne-pays-de-loire/"><u>Désamorcez Votre Gestion Des Crédits Immobiliers Grâce À L'évolutif Et Performant Service De Dématérialisation La Caisse D’Epargne Bretagne Pays De Loire</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-your-site-performance-using-cookiebot-technology/"><u>Elevate Your Site Performance Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/empowering-website-insights-with-cookiebot-advanced-tracking-solutions-for-improved-seo/"><u>Empowering Website Insights with Cookiebot: Advanced Tracking Solutions for Improved SEO</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-site-performance-with-our-cookiebot-integrated-tools/"><u>Enhance Site Performance with Our Cookiebot Integrated Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-website-traffic-analysis-with-our-advanced-cookiebot-technology-solutions/"><u>Enhance Website Traffic Analysis with Our Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-by-cookiebot-solutions/"><u>Enhanced by Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-multifunctional-toshiba-printer-with-built-in-abbyy-ocr-technology/"><u>Enhanced Multifunctional Toshiba Printer with Built-In ABBYY OCR Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-accounting-efficiency-with-advanced-automated-solutions/"><u>Enhancing Accounting Efficiency with Advanced Automated Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-financial-stability-with-ai-driven-bank-compliance-measures-and-resilience-tactics/"><u>Enhancing Financial Stability with AI-Driven Bank Compliance Measures and Resilience Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-robotic-process-automation-efficiency-with-advanced-process-analytics-insights-from-the-abbyy-experience/"><u>Enhancing Robotic Process Automation Efficiency with Advanced Process Analytics: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-tools/"><u>Enhancing User Experience Through Smart Data Collection Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-a-look-into-the-efficiency-of-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Data Collection: A Look Into the Efficiency of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-with-advanced-cookiebot-technology/"><u>Enhancing User Experience with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/excellence-recognized-and-best-practices-established/"><u>Excellence Recognized and Best Practices Established!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/from-alpine-adventures-to-digital-signatures-the-abbyy-guide-on-smartwatch-innovations-and-skiing-apps/"><u>From Alpine Adventures to Digital Signatures: The ABBYY Guide on Smartwatch Innovations and Skiing Apps</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-vivo-x100-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Vivo X100 Phones? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On OnePlus Nord 3 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-prime-choices-purchasing-your-dreams-in-youtube-ringtones/"><u>In 2024, Prime Choices  Purchasing Your Dreams in YouTube Ringtones</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovazione-in-cattolica-assicurazioni-con-elaborazione-documentale-intelligente-per-un-miglioramento-dei-servizi/"><u>Innovazione in Cattolica Assicurazioni Con Elaborazione Documentale Intelligente per Un Miglioramento Dei Servizi</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-and-conversion-use-ocr-technology-with-finereader-pdf/"><u>IPhone Document Scanning & Conversion: Use OCR Technology with FineReader PDF</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-smarter-web-presence-and-seo-success/"><u>Leverage Cookiebot Technology for Smarter Web Presence and SEO Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-tracking-discover-the-power-of-cookiebot-technology/"><u>Optimized with Automated Tracking: Discover the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-next-level-analytics-and-conversion-boost/"><u>Optimized With Cookiebot: Next-Level Analytics & Conversion Boost</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-samsung-galaxy-a05-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Samsung Galaxy A05? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/redefining-accounts-payable-the-synergy-of-automation-and-content-knowledge/"><u>Redefining Accounts Payable: The Synergy of Automation and Content Knowledge</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/robert-youngjohns-steering-vision-as-abbyys-esteemed-board-chair/"><u>Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/e-your-contents-signature-adding-watermarks-and-logo-to-youtube-videos-for-2024/"><u>Secure Your Content's Signature  Adding Watermarks & Logo to Youtube Videos for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/speedy-utorrent-file-transfers-for-windows-users/"><u>Speedy uTorrent File Transfers for Windows Users</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/sphere-of-imaging-who-takes-the-crown-in-2024/"><u>Sphere of Imaging  Who Takes the Crown, In 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/update-your-epson-et-2750-printer-with-newest-windows-driver-downloads/"><u>Update Your Epson ET-2750 Printer with Newest Windows Driver Downloads</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-expedite-channel-growth-surpass-the-10k-view-threshold-now-for-2024/"><u>[New] Expedite Channel Growth Surpass the 10K View Threshold Now for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-deciphering-the-language-of-youtube-commenters/"><u>[Updated] 2024 Approved Deciphering the Language of YouTube Commenters</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-strategy-in-the-shopping-experience/"><u>2024 Approved Strategy in the Shopping Experience</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-engagement-with-cookiebot-technology-integration/"><u>Enhancing Engagement with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on OnePlus Ace 2V? | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-canon-mg3000-driver-software-free-download-and-update-steps/"><u>Latest Canon MG3000 Driver Software - Free Download and Update Steps</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-good-the-bad-how-chatgpt-impacts-creativity-and-writing-skills/"><u>The Good, the Bad: How ChatGPT Impacts Creativity and Writing Skills</u></a></li>
+<li><a href="https://win-answers.techidaily.com/top-5-solutions-for-resolving-the-no-user-logon-issue-in-cs-go/"><u>Top 5 Solutions for Resolving the 'No User Logon' Issue in CS: GO</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

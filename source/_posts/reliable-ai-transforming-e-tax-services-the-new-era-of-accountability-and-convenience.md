@@ -1,28 +1,16 @@
 ---
 title: "Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience"
-date: 2024-09-08T23:36:35.642Z
-updated: 2024-09-09T23:36:35.642Z
+date: 2024-09-11T17:56:51.936Z
+updated: 2024-09-14T22:50:49.642Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/83ad07fb3b3903af9b11edf490a1269ded4203aa30a9b73ce69cba9af6290248.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience
 
 [Back to The Intelligent Enterprise](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing 
 
 ######   
@@ -69,25 +57,14 @@ One leading tax preparation company found that ABBYY Vantage extracted tier-one 
 [![Vantage Video Scr](https://static5.abbyy.com/abbyycommedia/37535/vantage-video-scr.jpg)](https://www.youtube.com/watch?v=8D3a48b1dF8) 
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 By putting more control in the hands of citizen developers to quickly deliver IDP solutions for their highest value use cases, artificial intelligence provides organizations with both immediate and long-term business value.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Enhancing public outcomes
 
 According to the [White House AI Bill of Rights](https://www.whitehouse.gov/ostp/ai-bill-of-rights/), artificial intelligence must work for the benefit of the public to be considered responsible and trustworthy. By using AI-driven software to inform government entities like Congress, the IRS, and courts of discrepancies within proposed tax law, [artificial intelligence could help close the $500 billion gap in tax revenue](https://hub.jhu.edu/2023/04/06/ai-tax-loopholes/) that is lost to legal loopholes.
@@ -99,17 +76,12 @@ This is an advanced application of artificial intelligence that currently exists
 ![Chip Vonburg Blog](https://static5.abbyy.com/abbyycommedia/37527/chip-vonburg-blog.png)
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Chip VonBurg
 
 Chief Customer Officer at ABBYY
@@ -126,12 +98,6 @@ Connect with Chip on [LinkedIn](https://www.linkedin.com/in/chipvonburg/).
 
 [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg) **Are Large Language Models (LLMs) the Future?** Read more](https://tools.techidaily.com/abbyy/products/) [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg) **The Gap Is Closing Between AI Innovation and Time-to-Value** Read more](https://tools.techidaily.com/abbyy/products/) [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg) **How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning** Read more](https://tools.techidaily.com/abbyy/products/) [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg) **How Process Mining Improves Business Processes and Prevents Cyber Threats** Read more](https://tools.techidaily.com/abbyy/products/) [![Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific](https://static4.abbyy.com/abbyycommedia/37508/idp-trends-and-outcomes-report_848x444.jpg) **Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Process Mining Reveals $6 Million in Savings](https://static2.abbyy.com/abbyycommedia/37509/leading-financial-institution-saves-millions_848x444.jpg) **Customer Point of View: Process Mining Reveals $6 Million in Savings** Read more](https://tools.techidaily.com/abbyy/products/) [![Is Generative AI Trustworthy?](https://static2.abbyy.com/abbyycommedia/37531/ai-and-the-big-question_848x444.jpg) **Is Generative AI Trustworthy?** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Subscribe for updates
 
 Get updated on the latest insights and perspectives for business & technology leaders
@@ -180,8 +146,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -191,42 +155,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-ideal-frames-per-second-in-slow-motion-vids/"><u>[New] Ideal Frames Per Second in Slow Motion Vids</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-increase-viewership-fairly-insights-for-video-marketers/"><u>[New] In 2024, Increase Viewership Fairly  Insights for Video Marketers</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-screencapturetech-2023-highlighting-the-apeak-software-review/"><u>[New] In 2024, ScreenCaptureTech 2023  Highlighting the Apeak Software Review</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-premium-planet-friendly-recording-software/"><u>[New] Premium, Planet-Friendly Recording Software</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-charting-the-financial-landscape-of-youtube-marketing/"><u>[Updated] Charting the Financial Landscape of YouTube Marketing</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-quick-and-easy-instructions-for-launching-skype-group-conversations-on-both-windows-and-macos/"><u>[Updated] In 2024, Quick and Easy Instructions for Launching Skype Group Conversations on Both Windows & MacOS</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-unveiling-the-best-tablet-choices-beyond-popular-filmora-for-2024/"><u>[Updated] Unveiling the Best Tablet Choices Beyond Popular Filmora for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-itel-p55t-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Itel P55T? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-lava-yuva-2-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Lava Yuva 2 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-collaborative-venture-with-apponfly-elevating-document-processing-solutions/"><u>ABBYY Unveils New Collaborative Venture with AppOnFly: Elevating Document Processing Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automate-your-leads-with-cookiebot-enabled-solutions/"><u>Automate Your Leads with Cookiebot-Enabled Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automated-customer-engagement-with-cookiebot-technology/"><u>Automated Customer Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/beats-in-the-balance-adding-music-to-whatsapp/"><u>Beats in the Balance  Adding Music to WhatsApp</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-traffic-with-cookiebot-powerful-site-engagement-tools/"><u>Boost Traffic with Cookiebot - Powerful Site Engagement Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-engagement-with-cookiebot-technology-for-tailored-content-delivery/"><u>Boosting Engagement with Cookiebot Technology for Tailored Content Delivery</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/combining-power-of-abbyy-with-alteryx-for-enhanced-data-management-and-process-automation-solutions/"><u>Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-fuels-our-sites-intelligence-discover-the-smart-technology-driving-us/"><u>Cookiebot Fuels Our Site's Intelligence: Discover the Smart Technology Driving Us!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-analytics-unleashing-website-personalization-and-targeting/"><u>Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-personalization-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Driven Personalization: Enhance User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-solutions/"><u>Cookiebot-Enabled Analytics Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-website-with-advanced-tracking/"><u>Cookiebot-Enabled: Optimize Your Website with Advanced Tracking</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/cutting-edge-techniques-for-clear-zoom-captures-for-2024/"><u>Cutting Edge Techniques for Clear Zoom Captures for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-workforce-corporate-change-and-business-transformation/"><u>Digital Workforce, Corporate Change, and Business Transformation.</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-with-advanced-automated-marketing-solutions-from-cookiebot/"><u>Driven with Advanced Automated Marketing Solutions From Cookiebot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effective-strategies-to-improve-page-visibility-in-google-search-results/"><u>Effective Strategies to Improve Page Visibility in Google Search Results</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-how-to-get-more-likes-on-your-tiktok-unboxing-video/"><u>In 2024, How to Get More Likes on Your TikTok Unboxing Video?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-oppo-a1x-5g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Oppo A1x 5G Phone Now with These Tips</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/is-it-possible-to-use-miracast-with-apple-iphone-14-drfone-by-drfone-ios/"><u>Is it Possible to Use Miracast with Apple iPhone 14? | Dr.fone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-final-cut-pro-x-jump-cuts-from-beginner-to-pro-in-no-time/"><u>New 2024 Approved Final Cut Pro X Jump Cuts From Beginner to Pro in No Time</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimal-image-for-your-fb-sphere/"><u>Optimal Image for Your FB Sphere</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-xiaomi-mix-fold-3-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Xiaomi Mix Fold 3 and Browser | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/strategies-doptimisation-de-la-chaine-logistique-comment-les-donnees-facilitent-le-reinventer-grace-a-abbyy/"><u>Stratégies D'Optimisation De La Chaîne Logistique: Comment Les Données Facilitent Le Réinventer Grâce À ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/strengthen-business-continuity-with-effective-process-enhancement/"><u>Strengthen Business Continuity with Effective Process Enhancement</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-complete-walkthrough-of-incorporating-emoticons-in-messages-and-apps-on-the-iphone/"><u>The Complete Walkthrough of Incorporating Emoticons in Messages and Apps on the iPhone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-vivo-v27-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Vivo V27 to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-subcontracting-options-for-enhanced-abbyy-software-solutions/"><u>Top Subcontracting Options for Enhanced ABBYY Software Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/transformez-la-lecture-de-vos-recus-en-temps-reel-grace-a-lia-abbyy-sphere-numerique/"><u>Transformez La Lecture De Vos Reçus en Temps Réel Grâce À L'IA : ABBYY Sphère Numérique</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ultimate-guide-cleaning-and-formatting-data-for-efficient-ai-model-training/"><u>Ultimate Guide: Cleaning and Formatting Data for Efficient AI Model Training</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-video-frame-techniques-applying-letterboxing-and-black-bars-to-fb-media/"><u>[New] 2024 Approved Video Frame Techniques Applying Letterboxing & Black Bars to FB Media</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-androids-free-video-chat-alternatives-top-list/"><u>[New] Android's Free Video Chat Alternatives Top List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-data-realm-renaissance-pioneering-cloud-services-s-needs-for-2024/"><u>[New] Data Realm Renaissance Pioneering Cloud Services 'S Needs for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-mi-11-mini-your-gateway-to-professional-screen-recording/"><u>[New] Mi 11 Mini Your Gateway to Professional Screen Recording</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-top-kid-friendly-drone-models-for-first-flights/"><u>[Updated] 2024 Approved Top Kid-Friendly Drone Models for First Flights</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-cut-to-perfection-advanced-guide-to-cropping-videos-for-instagram/"><u>2024 Approved Cut to Perfection Advanced Guide to Cropping Videos for Instagram</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-dominates-2022-spark-matrix-rankings-by-quadrant-knowledge-solutions-for-advanced-document-analysis/"><u>ABBYY Dominates 2022 SPARK Matrix Rankings by Quadrant Knowledge Solutions for Advanced Document Analysis</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312901263-abbyy-finereader-14/"><u>ABBYY FineReader 14 - 職場向けの文書ワークフローを一新する先進技術</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyyocr/"><u>ABBYY組み込みOCR採用：東芝テックの新シリーズ印刷機</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-asteriaflexicapture-cloud/"><u>ABBYYブログで紹介! ASTERIAとFlexiCapture Cloudに対応した高度な画面分析テンプレート - 最新技術の解説</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312889342-cookiebot-enabled-optimize-your-site-with-advanced-analytics/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Analytics!</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-on-iphone-6-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account On iPhone 6?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/proven-approaches-to-amass-elite-copyright-free-imagery-for-2024/"><u>Proven Approaches to Amass Elite, Copyright-Free Imagery for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-web-analytics-and-performance/"><u>Utilizing Cookiebot Technology for Optimized Web Analytics & Performance</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/vereinheitlichte-buchhalterlosungen-mit-iguana-und-abbyy-fur-verbesserte-kreditorenverwaltung-and-geschaftsprozesse/"><u>Vereinheitlichte Buchhalterlösungen Mit IGuana Und ABBYY Für Verbesserte Kreditorenverwaltung & Geschäftsprozesse</u></a></li>
 </ul></div>
+

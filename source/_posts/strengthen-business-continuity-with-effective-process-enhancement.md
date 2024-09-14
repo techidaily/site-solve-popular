@@ -1,7 +1,7 @@
 ---
 title: Strengthen Business Continuity with Effective Process Enhancement
-date: 2024-09-08T23:36:37.705Z
-updated: 2024-09-09T23:36:37.705Z
+date: 2024-09-09T16:25:18.758Z
+updated: 2024-09-14T21:03:55.964Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/db339cfb71ad17e704275f446976657b74bdf593b2c3464a856c74dd3bbe549b.jpg
@@ -11,82 +11,35 @@ thumbnail: https://thmb.techidaily.com/db339cfb71ad17e704275f446976657b74bdf593b
 
 [Back to Webinars](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Achieve Operational Resilience through Process Optimization
 
 English
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Featuring
 
 ![20 Andrewpery 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
 ![20 Andrewpery 198X198](https://static4.abbyy.com/abbyycommedia/25498/20-andrewpery-198x198.png)
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Andrew Pery
 
 Digital Intelligence Consultant, **ABBYY**
 
 ![60 Stefanwenzel 198X198](https://static5.abbyy.com/abbyycommedia/30430/dhl-logo-forcards.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![60 Stefanwenzel 198X198](https://static4.abbyy.com/abbyycommedia/30375/60-stefanwenzel-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Stefan Wenzel
 
 VP Center of Digitization, **Deutsche Post DHL**
 
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Overview
 
 In this session from the 20th European Shared Services & Outsourcing Week 2020, with guest speaker Stefan Wenzel of Deutsche Post DHL, we showed how several large organizations adopted best practices for achieving operational resilience and higher customer service through intelligent process discovery and content-centered automation.
@@ -98,14 +51,22 @@ Through these practical examples, we demonstrate the value of achieving operatio
 * A global logistics company (DHL) reduced transaction costs through standardized global processes with the aid of intelligent automation technology.
 * A leading telecommunications company identified process bottlenecks in customer service and HR and achieved operational improvements through data-driven insights.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch now
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
@@ -173,8 +134,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -184,43 +143,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-discovering-androids-premier-mobas-ranked/"><u>[Updated] Discovering Android's Premier MOBAs Ranked</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-iphone-photo-techniques-mastering-leading-lines/"><u>[Updated] In 2024, IPhone Photo Techniques  Mastering Leading Lines</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-pursuit-of-dreamscapes-vr-travel-unleashed/"><u>[Updated] In Pursuit of Dreamscapes  VR Travel Unleashed</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-hands-on-help-quick-screen-recording-dell/"><u>2024 Approved  Hands-On Help  Quick Screen Recording (Dell)</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-screenfreedom-pro-the-unpriced-gaming-recorder/"><u>2024 Approved  ScreenFreedom Pro  The Unpriced Gaming Recorder</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-fuels-our-sites-intelligence-discover-the-smart-technology-driving-us/"><u>Cookiebot Fuels Our Site's Intelligence: Discover the Smart Technology Driving Us!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-solutions/"><u>Cookiebot-Enabled Analytics Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-website-with-advanced-tracking/"><u>Cookiebot-Enabled: Optimize Your Website with Advanced Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-workforce-corporate-change-and-business-transformation/"><u>Digital Workforce, Corporate Change, and Business Transformation.</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-with-advanced-automated-marketing-solutions-from-cookiebot/"><u>Driven with Advanced Automated Marketing Solutions From Cookiebot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effective-strategies-to-improve-page-visibility-in-google-search-results/"><u>Effective Strategies to Improve Page Visibility in Google Search Results</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/efficient-session-management-and-targeting-through-cutting-edge-cookiebot-solutions/"><u>Efficient Session Management and Targeting Through Cutting-Edge Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-business-excellence-by-mastering-process-mapping-assessment-and-simulation-tactics/"><u>Elevate Business Excellence by Mastering Process Mapping, Assessment & Simulation Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevating-industry-standards-ap-automation-success-story-of-siemens-and-abbyy/"><u>Elevating Industry Standards: AP Automation Success Story of Siemens and ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-collaboration-effortlessly-using-abbyy-timeline-5s-new-task-mining-technology/"><u>Enhance Collaboration Effortlessly Using ABBYY Timeline 5’S New Task Mining Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-web-personalization-with-the-power-of-cookiebot-technology/"><u>Enhance Web Personalization with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-marketing-analytics-using-cookiebot-technology/"><u>Enhance Your Marketing Analytics Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-engagement-with-cookiebot-technology-integration/"><u>Enhancing Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evolving-towards-process-intelligence-insightful-strategies-from-abbyys-leading-expert/"><u>Evolving Towards Process Intelligence: Insightful Strategies From ABBYY's Leading Expert</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-artificial-intelligence-frontiers-at-abbyy-event-shaping-tomorrows-tech-landscape/"><u>Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/exploring-the-dell-xps-13-9n45-timeless-design-and-enhanced-performance-via-snapdragon-x-elite/"><u>Exploring the Dell XPS 13 (9N45): Timeless Design and Enhanced Performance via Snapdragon X Elite</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-customization-and-seo-success/"><u>Harnessing the Power of Cookiebot for Advanced Site Customization and SEO Success</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-realme-gt-5-pro-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on Realme GT 5 Pro</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-correct-aspect-ratio-use-in-micro-video-tweets/"><u>In 2024, Correct Aspect Ratio Use in Micro-Video Tweets</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/innovations-of-sony-bdp-s6700-a-closer-look-for-2024/"><u>Innovations of Sony BDP-S6700  A Closer Look for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-herangehensweisen-an-die-prozessanalytik-ein-detaillierter-vergleich-zwischen-den-fuhrenden-methoden-pdf-abbyy/"><u>Innovative Herangehensweisen an Die Prozessanalytik: Ein Detaillierter Vergleich Zwischen Den Führenden Methoden (PDF) - ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-strategies-needed-adapting-trade-finance-for-emerging-market-hurdles/"><u>Innovative Strategies Needed: Adapting Trade Finance for Emerging Market Hurdles</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/integrity-and-ethics/"><u>Integrity and Ethics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/interactive-online-conference-expert-tips-and-strategies-for-streamlining-accounts-payable-operations/"><u>Interactive Online Conference: Expert Tips & Strategies for Streamlining Accounts Payable Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-cutting-edge-tracking-tools-for-enhanced-performance-and-engagement/"><u>Leveraging Cutting-Edge Tracking Tools for Enhanced Performance and Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-initial-paperwork-through-vantage-solutions/"><u>Mastering the Art of Initial Paperwork Through Vantage Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/navigating-privacy-laws-with-abbyys-gdpr-ready-data-processing-addendum/"><u>Navigating Privacy Laws with ABBYY's GDPR-Ready Data Processing Addendum</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-the-ultimate-list-of-8-mobile-audio-workstations-for-enhanced-producing/"><u>New In 2024, The Ultimate List of 8 Mobile Audio Workstations for Enhanced Producing</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-guide-resolving-android-text-messaging-failures/"><u>Step-by-Step Guide: Resolving Android Text Messaging Failures</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/strategies-doptimisation-de-la-chaine-logistique-comment-les-donnees-facilitent-le-reinventer-grace-a-abbyy/"><u>Stratégies D'Optimisation De La Chaîne Logistique: Comment Les Données Facilitent Le Réinventer Grâce À ABBYY</u></a></li>
-<li><a href="https://driver-install.techidaily.com/updating-mice-drivers-on-windows-a-step-by-step-guide/"><u>Updating Mice Drivers on Windows: A Step-by-Step Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-high-def-camera-the-top-audio-mics-guide-for-2024/"><u>[New] High-Def Camera The Top Audio Mics Guide for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-unravel-the-mystery-of-tempo-control-in-instagram-stories/"><u>[New] Unravel the Mystery of Tempo Control in Instagram Stories</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-direct-transfer-of-tweets-video-features-onto-snapchat/"><u>[Updated] 2024 Approved Direct Transfer of Tweets' Video Features Onto Snapchat</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-transforming-facebook-videos-steps-to-high-definition-for-2024/"><u>[Updated] Transforming Facebook Videos Steps to High Definition for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/2024-approved-the-ultimate-wax-tutorial-learn-to-edit-videos-like-a-pro/"><u>2024 Approved The Ultimate Wax Tutorial Learn to Edit Videos Like a Pro</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-deep-dive-into-video-workflow-enhancement-through-hdri-adoption-for-2024/"><u>A Deep Dive Into Video Workflow Enhancement Through HDRI Adoption for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automatisierte-rechnungsbearbeitung-fur-energielieferanten-mit-branchenrelevanz-empfehlungen-von-abbyy/"><u>Automatisierte Rechnungsbearbeitung Für Energielieferanten Mit Branchenrelevanz – Empfehlungen Von ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-site-traffic-with-cookiebot-integration-strategies/"><u>Boost Site Traffic with Cookiebot Integration Strategies</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-web-visibility-instantly-using-the-powerful-cookiebot-seo-tech/"><u>Boost Web Visibility Instantly Using the Powerful Cookiebot SEO Tech</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
+<li><a href="https://fox-http.techidaily.com/detailed-slomo-application-review-2024-update/"><u>Detailed SloMo Application Review - 2024 Update</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Poco F5 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transform-your-broadcasts-with-manycam-the-leading-tool-for-live-video-software-and-online-webcams/"><u>Transform Your Broadcasts with ManyCam: The Leading Tool for Live Video Software and Online Webcams</u></a></li>
 </ul></div>
+

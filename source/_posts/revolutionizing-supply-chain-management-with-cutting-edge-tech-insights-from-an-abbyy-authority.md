@@ -1,7 +1,7 @@
 ---
 title: "Revolutionizing Supply Chain Management with Cutting-Edge Tech: Insights From an ABBYY Authority"
-date: 2024-09-08T23:36:37.042Z
-updated: 2024-09-09T23:36:37.042Z
+date: 2024-09-09T20:24:11.004Z
+updated: 2024-09-14T17:34:03.760Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cc08879bb2c831a3bb04207b3ec86439cd9e17fc1be601b33ce1edbe031a09d0.jpg
@@ -15,36 +15,12 @@ thumbnail: https://thmb.techidaily.com/cc08879bb2c831a3bb04207b3ec86439cd9e17fc1
 
 French
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Intervenants
 
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25106/04-lindaameur-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Linda Ameur
 
 Directrice Commerciale, **ABBYY France**
@@ -58,11 +34,12 @@ COO, **DCbrain**
 ![90 Patrickremords 198X198 (1)](https://static4.abbyy.com/abbyycommedia/34022/90-patrickremords-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Patrick Remords
 
 Head of Supply Chain Consulting, **JLL France**
@@ -70,11 +47,18 @@ Head of Supply Chain Consulting, **JLL France**
 ![89 Cedrichervet 198X198](https://static4.abbyy.com/abbyycommedia/34025/89-cedrichervet-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Cédric Hervet
 
 Directeur Scientifique et co-fondateur, **Kardinal**
@@ -85,55 +69,58 @@ Directeur Scientifique et co-fondateur, **Kardinal**
 
 Directeur de la rédaction, **Supply Chain Village**
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Description
 
 Depuis ces dernières années, de nouvelles technologies mais aussi de nouvelles entreprises (souvent des start-ups) viennent bousculer le monde de la Supply Chain. Progressivement, l’automatisation et la robotisation s’installent dans le paysage logistique. Mais ces évolutions ne sont que les prémices d’une transformation encore plus importante qui va impacter les process, les méthodes mais aussi les formations et les métiers.
 
 Comment les professionnels de la Supply doivent s’y préparer ? Comment s’inscrire dans cette dynamique sans risque d’être dépassé par la technologie ? Pourquoi la data est-elle si importante ? Que peut apporter l’IA (aujourd’hui et demain) dans l’optimisation des réseaux ? Quelle sera la place des robots dans l’entrepôt du futur ? Telles sont (entre autres) les questions qui seront abordées lors de cette table ronde.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Regardez maintenant
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Merci et bon webinaire !
 
 [![Les Nouvelles Technos Au Service De La Supply Chain 2](https://static3.abbyy.com/abbyycommedia/34032/les-nouvelles-technos-au-service-de-la-supply-chain-2.jpg)](https://www.youtube.com/watch?v=PVnMb47saSc) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Please fill in this form to watch the webinar:
@@ -190,8 +177,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -201,38 +186,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-advanced-tips-for-capturing-and-storing-desktop-content/"><u>[New] Advanced Tips for Capturing and Storing Desktop Content</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-capturing-skies-engaging-audiences-learn-to-stream-w-dji-drones-for-2024/"><u>[New] Capturing Skies, Engaging Audiences  Learn to Stream W/ DJI Drones for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-nikon-d-500-4k-dslr-camera-review/"><u>[Updated] 2024 Approved  Nikon D 500 4K DSLR Camera Review</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-seamless-virtual-conferencing-in-gmail-via-zoom-best-practices/"><u>[Updated] Seamless Virtual Conferencing in Gmail via Zoom Best Practices</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-superior-tracking-mounts-for-cameras-phone-sensitive/"><u>[Updated] Superior Tracking Mounts for Cameras, Phone-Sensitive</u></a></li>
-<li><a href="https://howto.techidaily.com/android-screen-stuck-general-samsung-galaxy-xcover-6-pro-tactical-edition-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Samsung Galaxy XCover 6 Pro Tactical Edition Partly Screen Unresponsive | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-multifunctional-toshiba-printer-with-built-in-abbyy-ocr-technology/"><u>Enhanced Multifunctional Toshiba Printer with Built-In ABBYY OCR Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-accounting-efficiency-with-advanced-automated-solutions/"><u>Enhancing Accounting Efficiency with Advanced Automated Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-financial-stability-with-ai-driven-bank-compliance-measures-and-resilience-tactics/"><u>Enhancing Financial Stability with AI-Driven Bank Compliance Measures and Resilience Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-robotic-process-automation-efficiency-with-advanced-process-analytics-insights-from-the-abbyy-experience/"><u>Enhancing Robotic Process Automation Efficiency with Advanced Process Analytics: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-tools/"><u>Enhancing User Experience Through Smart Data Collection Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-a-look-into-the-efficiency-of-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Data Collection: A Look Into the Efficiency of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-with-advanced-cookiebot-technology/"><u>Enhancing User Experience with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/excellence-recognized-and-best-practices-established/"><u>Excellence Recognized and Best Practices Established!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/from-alpine-adventures-to-digital-signatures-the-abbyy-guide-on-smartwatch-innovations-and-skiing-apps/"><u>From Alpine Adventures to Digital Signatures: The ABBYY Guide on Smartwatch Innovations and Skiing Apps</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-audio-to-video-bridge-easy-3-step-guide-for-mp3-to-youtube-uploads/"><u>In 2024, Audio-to-Video Bridge  Easy 3-Step Guide for MP3 to YouTube Uploads</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-from-apple-iphone-8-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code From Apple iPhone 8</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-oppo-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Oppo Phones with/without a PC</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/in-2024-how-to-safeguard-tiktok-creations-a-phone-users-guide/"><u>In 2024, How to Safeguard TikTok Creations  A Phone User's Guide</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-vivo-x90s-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Vivo X90S Location | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovazione-in-cattolica-assicurazioni-con-elaborazione-documentale-intelligente-per-un-miglioramento-dei-servizi/"><u>Innovazione in Cattolica Assicurazioni Con Elaborazione Documentale Intelligente per Un Miglioramento Dei Servizi</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-and-conversion-use-ocr-technology-with-finereader-pdf/"><u>IPhone Document Scanning & Conversion: Use OCR Technology with FineReader PDF</u></a></li>
-<li><a href="https://android-frp.techidaily.com/latest-guide-how-to-bypass-nokia-c12-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Nokia C12 FRP Without Computer</u></a></li>
-<li><a href="https://extra-support.techidaily.com/leading-list-elite-call-alert-engineers-for-2024/"><u>Leading List  Elite Call Alert Engineers for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-smarter-web-presence-and-seo-success/"><u>Leverage Cookiebot Technology for Smarter Web Presence and SEO Success</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mov-to-samsung-galaxy-a15-4g-converter-convert-mov-files-for-samsung-galaxy-a15-4g-by-aiseesoft-video-converter-play-mov-on-android/"><u>MOV to Samsung Galaxy A15 4G converter-convert .mov files for Samsung Galaxy A15 4G</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-tracking-discover-the-power-of-cookiebot-technology/"><u>Optimized with Automated Tracking: Discover the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-next-level-analytics-and-conversion-boost/"><u>Optimized With Cookiebot: Next-Level Analytics & Conversion Boost</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/redefining-accounts-payable-the-synergy-of-automation-and-content-knowledge/"><u>Redefining Accounts Payable: The Synergy of Automation and Content Knowledge</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/sprinting-into-the-digital-age-picks-on-vr-treadmills-for-2024/"><u>Sprinting Into the Digital Age  Picks on VR Treadmills for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/iscal-horizons-exploring-mr-beasts-income-for-2024/"><u>[New] Fiscal Horizons Exploring Mr. Beast's Income for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mastering-subscription-the-art-of-positive-engagement/"><u>[Updated] 2024 Approved Mastering Subscription The Art of Positive Engagement</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-set-up-the-latest-hp-printer-software-on-your-pc/"><u>Download & Set Up the Latest HP Printer Software on Your PC</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-tips-for-troubleshooting-and-resolving-windows-error-code-0xc0000098/"><u>Expert Tips for Troubleshooting and Resolving Windows Error Code 0xC0000098</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/maximize-engagement-with-advanced-analytics-the-cookiebot-integration-advantage/"><u>Maximize Engagement with Advanced Analytics: The Cookiebot Integration Advantage</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/maximizing-page-visibility-a-guide-to-advanced-seo-techniques/"><u>Maximizing Page Visibility: A Guide to Advanced SEO Techniques</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimize-with-cookiebot-advanced-tools-for-superior-web-engagement-and-personalization/"><u>Optimize With Cookiebot: Advanced Tools for Superior Web Engagement and Personalization</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-enhancing-your-sites-visibility/"><u>Optimized with Cookiebot Technology: Enhancing Your Site's Visibility</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/quick-guide-to-downloading-your-zebra-gk420d-driver-effortless-setup/"><u>Quick Guide to Downloading Your ZEBRA GK420d Driver – Effortless Setup!</u></a></li>
 </ul></div>
+

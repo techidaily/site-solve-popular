@@ -1,18 +1,12 @@
 ---
 title: Innovative AI-Driven Document Handling for Modern Banking Systems
-date: 2024-09-08T23:36:34.797Z
-updated: 2024-09-09T23:36:34.797Z
+date: 2024-09-10T18:45:04.704Z
+updated: 2024-09-14T16:37:16.838Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/419750fa1c7083da86e63dfb35f51d8c92486865748e3041e969fe09697c07c0.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Innovative AI-Driven Document Handling for Modern Banking Systems
 
 123456789101112131415161718/ 18100%实际尺寸适合宽度适合高度适合页面自动介绍杂志连续的
@@ -36,8 +30,6 @@ USE CASE: CUSTOMER ONBOARDING Deliver a seamless customer experience for mobile 
 USE CASE: KYC (KNOW YOUR CUSTOMER) Identify and remediate KYC vulnerabilities Automate document intake processes to ensure compliance with anti-money laundering (AML) legislation and customer due diligence (CDD) requirements Identify content types and patterns of interaction with customers and employees to flag suspicious activity Unify channel management for phone, email, chat, web portal, mobile, file transfer, scans, and more Multinational investment bank and financial services firm uses ABBYY IDP to capture, process, and analyze data accuracy, while monitoring regulatory declarations and coordinating with their existing KYC systems 9 
 
 French investment bank processes 10 million+ pages, 400 different document types, with single solution 10 million+ USE CASE: INVESTMENT BANKING Manage finance, investment, and guarantee documents with a single solution Automate processing of hundreds of semi or unstructured document types Classify document types for indexing in document management system Easily retrieve documents from network shares 10 
-
-
 
 0/0
 
@@ -67,27 +59,11 @@ French investment bank processes 10 million+ pages, 400 different document types
 
 [![Created with BuildVu](https://www.abbyy.com/buildvu-logo.png)](https://www.idrsolutions.com/online-pdf-to-html-converter)
 
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -98,44 +74,23 @@ French investment bank processes 10 million+ pages, 400 different document types
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-anime-aesthetics-top-20-visual-elements-on-tiktok/"><u>[New] 2024 Approved  Anime Aesthetics  Top 20 Visual Elements on TikTok</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-streamlining-screen-record-on-mac-via-keyboard-shortcuts/"><u>[New] In 2024, Streamlining Screen Record on Mac via Keyboard Shortcuts</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-seminar-screen-recording-for-2024/"><u>[New] Seminar Screen Recording for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-art-of-storytelling-integrating-captions-into-your-instagram-videos-for-2024/"><u>[New] The Art of Storytelling  Integrating Captions Into Your Instagram Videos for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-embrace-the-pause-button-3-techniques-for-decelerating-youtube-video-playback-59-chars-slight-overage-with-rich-content-justification./"><u>[Updated] 2024 Approved  Embrace the Pause Button  3 Techniques for Decelerating YouTube Video Playback (59 Chars, Slight Overage with Rich Content Justification)</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-50plus-must-know-quotes-for-tiktok-success-stories/"><u>[Updated] 50+ Must-Know Quotes for TikTok Success Stories</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-does-t-series-generate-revenue-for-2024/"><u>[Updated] How Does T-Series Generate Revenue for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-the-top-platform-trio-which-one-triumphs-vimeo-youtube-dailymotion/"><u>2024 Approved  The Top Platform Trio  Which One Triumphs – Vimeo, YouTube, Dailymotion?</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-gabrielle-lukianchuk-as-new-cmo-driving-company-expansion/"><u>ABBYY Welcomes Gabrielle Lukianchuk as New CMO, Driving Company Expansion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyyabbyy-proof-of-identity/"><u>ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-productivity-key-strategies-for-your-center-of-excellence-with-abbyy-plus-blue-prism-live-session/"><u>Boosting Productivity - Key Strategies for Your Center of Excellence with ABBYY + Blue Prism Live Session</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-twins-and-process-simulation-exploring-business-opportunity-expansion/"><u>Digital Twins and Process Simulation - Exploring Business Opportunity Expansion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/emotional-intelligence/"><u>Emotional Intelligence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-data-capture-efficiency-transitioning-to-the-advanced-abbyy-flexicapture-cloud-solution/"><u>Enhance Your Data Capture Efficiency: Transitioning to the Advanced ABBYY FlexiCapture Cloud Solution</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-personalization-with-the-support-of-cookiebot-technology/"><u>Enhanced Personalization with the Support of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-efficiency-in-financial-transactions-with-abbyys-innovative-automation-technology/"><u>Enhancing Efficiency in Financial Transactions with ABBYY's Innovative Automation Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-tracking-the-power-behind-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Tracking: The Power Behind Cookiebot Solutions</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/essential-skillset-how-to-execute-screen-recording-on-mac/"><u>Essential Skillset  How to Execute Screen Recording on Mac</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evaluierung-von-volkswagens-infotainmentsystemen-mit-hilfe-der-software-von-abbyy/"><u>Evaluierung Von Volkswagens Infotainmentsystemen Mit Hilfe Der Software Von ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-tomorrows-job-landscape-with-rpa-insights-from-abbyys-timeline-infobook/"><u>Exploring Tomorrow's Job Landscape with RPA: Insights From ABBYY's Timeline Infobook</u></a></li>
-<li><a href="https://driver-error.techidaily.com/fixed-high-definition-hub-alert-relax/"><u>Fixed High-Definition Hub Alert, Relax</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Oppo Reno 8T | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-to-triumph-in-mobile-user-onboarding-your-essential-e-book-resource/"><u>How to Triumph in Mobile User Onboarding - Your Essential E-Book Resource</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-audiovisual-format-fusion-srt-to-ttml-and-ssa-mastery/"><u>In 2024, Audiovisual Format Fusion  SRT to TTML & SSA Mastery</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Google Pixel 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-engage-entertain-enlighten-crafting-compelling-live-thumbnails/"><u>In 2024, Engage, Entertain, Enlighten  Crafting Compelling Live Thumbnails</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-the-efficiency-of-cookiebot-technology-for-seamless-web-tracking/"><u>Leveraging the Efficiency of Cookiebot Technology for Seamless Web Tracking</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/mastering-real-time-audio-adjustment-a-modern-technique/"><u>Mastering Real-Time Audio Adjustment - A Modern Technique</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/munchen-nutzt-abbyy-fur-die-modernisierung-und-digitale-speicherung-von-baurechnungen/"><u>München Nutzt ABBYY Für Die Modernisierung Und Digitale Speicherung Von Baurechnungen</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/neoml-discover-the-power-of-abbyys-enrichit-and-open-source-software-capabilities/"><u>NeoML: Discover the Power of ABBYY's Enrichit and Open-Source Software Capabilities</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/online-marketplace-exceeds-growth-targets-and-boosts-operational-productivity-with-cutting-edge-invoice-management-technology/"><u>Online Marketplace Exceeds Growth Targets and Boosts Operational Productivity with Cutting-Edge Invoice Management Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-advanced-traffic-analysis-from-cookiebot/"><u>Optimized with Advanced Traffic Analysis From Cookiebot</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/pushing-boundaries-exquisite-fluid-gaming-selections-for-2024/"><u>Pushing Boundaries  Exquisite Fluid Gaming Selections for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/securing-your-digital-footprint-counteracting-textgrabber-threats-and-improving-user-mobility-insights-for-abbyy-readers/"><u>Securing Your Digital Footprint: Counteracting TextGrabber Threats & Improving User Mobility | Insights for ABBYY Readers</u></a></li>
-<li><a href="https://techtrends.techidaily.com/steps-for-creating-and-maintaining-several-successful-youtube-presence/"><u>Steps for Creating and Maintaining Several Successful YouTube Presence</u></a></li>
-<li><a href="https://win-able.techidaily.com/stop-stray-crashing-in-windows-discover-6-reliable-solutions/"><u>Stop Stray Crashing in Windows: Discover 6 Reliable Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/sustained-profitable-expansion-abbyy-announces-back-to-back-double-digit-revenue-upswing-for-third-year-in-a-row/"><u>Sustained Profitable Expansion: ABBYY Announces Back-to-Back Double-Digit Revenue Upswing for Third Year in a Row</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-the-legal-framework-abbyys-cloud-product-terms-end-to-end-privacy-standards-and-gdpr-provisions-explained/"><u>Understanding the Legal Framework: ABBYY's Cloud Product Terms, End-to-End Privacy Standards & GDPR Provisions Explained</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unleash-dynamic-user-experiences-with-cookiebot-technology/"><u>Unleash Dynamic User Experiences with Cookiebot Technology</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-gamer-guides-and-tips-best-streamers/"><u>[New] 2024 Approved Gamer Guides and Tips Best Streamers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-advanced-settings-for-uniform-stream-lighting-for-2024/"><u>[New] Advanced Settings for Uniform Stream Lighting for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-funimate-masterclass-gameplay-enhancement-for-2024/"><u>[New] Funimate Masterclass Gameplay Enhancement for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-2023how-to-share-videos-on-twitter-on-your-phone-without-retweeting/"><u>[Updated] 2024 Approved 2023|How to Share Videos on Twitter on Your Phone Without Retweeting?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-is-youtube-premium-worth-it-a-user-guide/"><u>[Updated] Is YouTube Premium Worth It A User Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-tecno-spark-20c-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Tecno Spark 20C?</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/dhcp-communication-errors-addressed-what-to-do-when-your-server-wont-respond/"><u>DHCP Communication Errors Addressed: What To Do When Your Server Won't Respond</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/enhanced-visual-effects-utilizing-3dlut-on-phone/"><u>Enhanced Visual Effects Utilizing 3DLUT on Phone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/les-avantages-de-rpa-pour-les-entreprises-francaises-une-etude-revelatrice-dun-retour-sur-investissement-positif-des-la-premiere-annee-informations-par-abby29/"><u>Les Avantages De RPA Pour Les Entreprises Françaises : Une Étude Révélatrice D'un Retour Sur Investissement Positif Dès La Première Année - Informations Par ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/les-dernieres-avancees-de-machine-learning-sur-la-solution-flexicapture-optimiser-avec-abbyy-technologie/"><u>Les Dernières Avancées De Machine Learning Sur La Solution FlexiCapture - Optimiser Avec ABBYY Technologie</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leveraging-cookiebot-for-superior-conversion-rates-and-seamless-personalization-on-your-website/"><u>Leveraging Cookiebot for Superior Conversion Rates and Seamless Personalization on Your Website</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

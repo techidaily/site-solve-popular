@@ -1,52 +1,22 @@
 ---
 title: Les Dernières Avancées De Machine Learning Sur La Solution FlexiCapture - Optimiser Avec ABBYY Technologie
-date: 2024-09-08T23:36:37.566Z
-updated: 2024-09-09T23:36:37.566Z
+date: 2024-09-09T17:26:06.073Z
+updated: 2024-09-14T20:29:38.818Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0b2657385f18cc859d59520b24816f771e8e749f151532892ba053a97dc454cb.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Les Dernières Avancées De Machine Learning Sur La Solution FlexiCapture - Optimiser Avec ABBYY Technologie
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY optimise la technologie de Machine Learning de sa plateforme FlexiCapture pour accroître ses performances de traitement des contenus d’entreprise
 
 07 novembre 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _De formidables gains de précision à la clé pour la plateforme d’intelligence des contenus_
 
   
@@ -96,8 +66,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -107,47 +75,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-elevate-sound-with-these-asmr-apps/"><u>[New] 2024 Approved  Elevate Sound with These ASMR Apps</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/reative-video-ends-top-6-budget-friendly-options/"><u>[New] Creative Video Ends  Top 6 Budget-Friendly Options</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-depth-examination-lg-bp350-screen-specifications-and-reviews-for-2024/"><u>[New] In-Depth Examination  LG BP350 Screen Specifications and Reviews for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-internal-recorder-usage-for-capturing-screens-on-mate-series-and-p-series-mate-1020-p2010-for-2024/"><u>[New] Internal Recorder Usage for Capturing Screens on Mate Series & P Series (Mate 10/20; P20/10) for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-rapid-routines-easy-laptop-recordings-dell-for-2024/"><u>[New] Rapid Routines  Easy Laptop Recordings (Dell) for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-critical-acclaim-top-9-web-recording-microphones-of-the-year-23/"><u>[Updated] 2024 Approved  Critical Acclaim  Top 9 Web Recording Microphones of the Year ('23)</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-flip-it-right-youtube-video-retrospectives-with-tips/"><u>[Updated] Flip It Right  YouTube Video Retrospectives (With Tips!)</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-high-income-content-makers-for-2024/"><u>[Updated] High-Income Content Makers for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-incorporating-real-time-photos-into-team-conversations/"><u>[Updated] In 2024, Incorporating Real-Time Photos Into Team Conversations</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-smilesketcher-turn-your-ideas-into-memes-and-graphics/"><u>2024 Approved  SmileSketcher  Turn Your Ideas Into Memes & Graphics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-and-blue-prism/"><u>ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-facilitates-consistent-document-management-in-rochlings-sap-system-for-improved-efficiency-latest-industry-news/"><u>ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-showcases-artificial-intelligence-insights-at-the-2018-aiim-event/"><u>ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-auditing-initiatives-boosted-by-ab-inbevs-backing-of-forhumanity/"><u>AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/behind-the-4k-curtain-a-closer-look-at-asuss-mg28uq-monitor/"><u>Behind the 4K Curtain  A Closer Look at ASUS's MG28UQ Monitor</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-traffic-with-cookiebot-technology-smart-analytics-tools/"><u>Boosting Web Traffic with Cookiebot Technology - Smart Analytics Tools!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-battre-en-regle-les-plateformes-financieres-numeriques-natives-decouvrez-notre-verification-complete-par-abbyy/"><u>Comment Battre en Règle Les Plateformes Financières Numériques Natives : Découvrez Notre Vérification Complète Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-for-seamless-customer-experience-tracking/"><u>Cookiebot-Driven Insights for Seamless Customer Experience Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-leading-ai-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Leading AI Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-unleash-the-power-of-automated-conversions/"><u>Cookiebot-Enhanced: Unleash the Power of Automated Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-unleashing-advanced-tracking-solutions-for-your-websites-success/"><u>Cookiebot: Unleashing Advanced Tracking Solutions for Your Website's Success</u></a></li>
-<li><a href="https://common-error.techidaily.com/cure-for-the-invisible-mouse-icon-on-windows-10-step-by-step-solution/"><u>Cure for the Invisible Mouse Icon on Windows 10: Step-by-Step Solution</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/data-driven-personalization-through-smart-analytics-solutions/"><u>Data-Driven Personalization Through Smart Analytics Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/demystifying-rpa-insights-from-the-abbyy-experts-guide/"><u>Demystifying RPA: Insights From the ABBYY Expert's Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/desamorcez-votre-gestion-des-credits-immobiliers-grace-a-levolutif-et-performant-service-de-dematerialisation-la-caisse-depargne-bretagne-pays-de-loire/"><u>Désamorcez Votre Gestion Des Crédits Immobiliers Grâce À L'évolutif Et Performant Service De Dématérialisation La Caisse D’Epargne Bretagne Pays De Loire</u></a></li>
-<li><a href="https://games-able.techidaily.com/1719160543511-early-access-wins-get-marvels-spider-man-2-on-ps5-now/"><u>Early Access Wins - Get Marvel’s Spider-Man 2 on PS5 Now!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-your-site-performance-using-cookiebot-technology/"><u>Elevate Your Site Performance Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/empowering-website-insights-with-cookiebot-advanced-tracking-solutions-for-improved-seo/"><u>Empowering Website Insights with Cookiebot: Advanced Tracking Solutions for Improved SEO</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-highlighting-heroics-at-the-x-olympics-2022/"><u>In 2024, Highlighting Heroics at the X-Olympics 2022</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Honor Magic 5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-realme-v30t-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Realme V30T? Fixed | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-byb-e430-illumination-unit-scrutiny-a-leading-swing-arm-led-reviewed/"><u>In-Depth BYB E430 Illumination Unit Scrutiny: A Leading Swing Arm LED Reviewed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-gameplay-latency-discover-how-the-asus-rog-rapture-gt-ax11000-dominates-speed-and-gaming-features/"><u>Mastering Gameplay Latency? Discover How the Asus ROG Rapture GT-AX11000 Dominates Speed and Gaming Features</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-microsoft-sharepoint-workflows-with-cutting-edge-ocr-capabilities-from-abbyy-experts/"><u>Optimizing Microsoft SharePoint Workflows with Cutting-Edge OCR Capabilities From ABBYY Experts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-web-experiences-with-advanced-cookiebot-technology/"><u>Optimizing Web Experiences with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/peak-matrix-2019-abbyy-stands-out-in-everest-groups-rankings-of-leading-idp-tools-and-applications/"><u>Peak Matrix™ 2019: ABBYY Stands Out in Everest Group's Rankings of Leading IDP Tools and Applications</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/protect-your-data-understanding-the-abbyy-cloud-agreement-for-gdpr-adherence/"><u>Protect Your Data: Understanding the ABBYY Cloud Agreement for GDPR Adherence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/the-future-of-digital-transformation-insights-from-the-2018-abbyy-technology-summit-on-content-intelligence/"><u>The Future of Digital Transformation: Insights From the 2018 ABBYY Technology Summit on Content Intelligence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-6-must-read-digital-intelligence-insights-of-2020-featured-on-the-abbyy-blog/"><u>Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/universitat-zurich-optimiert-prufungen-mit-abbyy-flexicapture-korrektursystem/"><u>Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/sh-creativity-with-youtube-list-mix-ups-for-2024/"><u>Unleash Creativity with YouTube List Mix-Ups for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unlock-deeper-understanding-with-abbyys-guide-on-elevated-bi-and-process-mining-tactics-ebook/"><u>Unlock Deeper Understanding with ABBYY's Guide on Elevated BI & Process Mining Tactics [eBook]</u></a></li>
-<li><a href="https://extra-information.techidaily.com/vivid-visuals-on-the-move-a-lut-users-guide/"><u>Vivid Visuals on the Move  A LUT User's Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-boosting-engagement-a-guide-to-more-youtube-shorts-success/"><u>[New] 2024 Approved Boosting Engagement A Guide to More YouTube Shorts Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-digital-domination-rise-from-thousands-to-a-million-on-youtube/"><u>[New] In 2024, Digital Domination Rise From Thousands to a Million on YouTube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-essential-info-on-valheim-sowing-top-seeds-ranked/"><u>2024 Approved Essential Info on Valheim Sowing Top Seeds Ranked</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-picture-perfection-the-ultimate-iosandroid-covers-app/"><u>2024 Approved Picture Perfection The Ultimate iOS/Android Covers App</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-xiaomi-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Xiaomi</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/the-role-of-artificial-intelligence-and-ml-in-streamlining-kyc-processes-for-financial-services/"><u>The Role of Artificial Intelligence & ML in Streamlining KYC Processes for Financial Services.</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/top-strategies-fur-fandr-verantwortliche-erkenntnisse-aus-dem-abbyy-gipfel-der-fuhrenden-deutschen-cfos-201/"><u>Top Strategies Für F&R-Verantwortliche: Erkenntnisse Aus Dem ABBYY Gipfel Der Führenden Deutschen CFOs 201</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/understanding-the-complexities-in-organizational-process-management-lessons-from-the-abbyy-blog/"><u>Understanding The Complexities in Organizational Process Management – Lessons From the ABBYY Blog</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gkreman-koinwnia-eygnwmwn-glwssa/"><u>Γκρεμάν Κοινωνία Ευγνώμων Γλώσσα</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

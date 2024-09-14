@@ -1,18 +1,12 @@
 ---
 title: 高度な文書処理技術と組み合わせた、SAP Intelligent RPA にABBYYを統合する方法 | ABBYYの技術解説
-date: 2024-09-08T23:36:37.672Z
-updated: 2024-09-09T23:36:37.672Z
+date: 2024-09-08T16:10:37.451Z
+updated: 2024-09-14T22:16:44.619Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9d3857853f9f78dd8e108c028d0a318d22b529786459d21ef8b234658302fc85.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 高度な文書処理技術と組み合わせた、SAP Intelligent RPA にABBYYを統合する方法 | ABBYYの技術解説
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -23,30 +17,12 @@ thumbnail: https://thmb.techidaily.com/9d3857853f9f78dd8e108c028d0a318d22b529786
 
 ![SAP Intelligent RPA and ABBYY | ABBYY Blog Post](https://static3.abbyy.com/abbyycommedia/25741/sap-intelligence-rpa-and-abbyy-featured-image.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 今日の企業はデジタル変革の過程で急速に進んでいますが、請求書、注文、その他の非構造化コンテンツなどのビジネスドキュメント内の重要な情報を抽出するという大きな課題があります。これらのさまざまなビジネスドキュメントのコンテンツの多くは、SAPや他のエンタープライズシステムなどのシステムに送られます。
 
 事実として: “Forbes Global 2000企業の92％がSAPを採用しています” [SAP Corporate Fact Sheet](https://www.sap.com/documents/2017/04/4666ecdd-b67c-0010-82c7-eda71af511fa.html)
 
 デジタルトランスフォーメーション(DX)を率先して行おうとすると、全ての中心的な部分には、人間が繰り返すあらゆる定型のタスクを自動化するロボットプロセス自動化（RPA）が含まれます。これには、SAPなどのシステムと対話してデータを入力し、情報を検証することも含まれます。[SAP Intelligent Robotic Process Automation（英語版）](https://www.sap.com/products/robotic-process-automation.html) は、財務、販売、配送、製造、調達、調達、およびプロフェッショナルサービスにおけるこれらのタイプの手動タスクの自動化を支援し、従業員の反復的なタスクを自動化することで、会社の運用効率を改善し、コンプライアンスを向上させ、リスクを低減します。
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **文書、電子メール、および非構造化データを処理するためのSAPロボットのスキルアップ**
 
 企業がここ1,2年で学んだことは、RPAがドキュメントや電子メール、およびその他の非構造化データを含むプロセスの自動化に支援を必要としていることです。SAPロボットにインテリジェンスを追加するとお考えください。ロボットはビジョン、理解、ロボットプロセスへの洞察を適用する必要なデジタルスキルをあらかじめ備えており、それ故に、請求書、注文書、BOL (Bill of Lading)などのドキュメントを処理することが可能となります。そのデジタルスキル（コグニティブスキル）は、SAPロボットによって呼び出すことができるトレーニング済みソフトウェアです。そして、ドキュメントを請求書として識別し、ヘッダー、フッター、およびラインアイテムの詳細を特定して抽出し、SAPロボットにデータを返す前にデータを構造化および検証します。
@@ -55,12 +31,6 @@ thumbnail: https://thmb.techidaily.com/9d3857853f9f78dd8e108c028d0a318d22b529786
 
 ![SAP ABBYY Process flow](https://static1.abbyy.com/abbyycommedia/25745/sap-abbyy-process-flow-1024x576.png)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 よくある誤解は、単なるOCRと思われることです。これでは、実際に何が起こっているかについてのマークを完全に逃してしまいます。別の先入観は、さまざまなベンダーの請求書のように、ドキュメントのバリエーションごとにテンプレートが必要であるというものです。 我々はそれが偽りであり、より良いソリューションを提供するために、無残にプロジェクトを失敗させないためにここにいます。
 
 文書が処理されるときに何が起こっているかを考える、より良い方法は、ビジョン、理解、洞察という言葉を浮かべ、幅広く、どんな自動化が可能かを検討することです。
@@ -81,12 +51,6 @@ ABBYYのインテリジェント文書処理プラットフォームは、最近
 
 ABBYYのインテリジェント文書処理プラットフォームとSAP Intelligent RPAを組み合わせると、ABBYYのコンテンツインテリジェンステクノロジーとソリューションは、コンテンツ中心のプロセスの自動化を支援するために必要なコグニティブスキルを提供します。 コンテンツインテリジェンスは、高度なビジネス上の意思決定に必要なスキルと理解を新しいデジタルワーカーに提供することで、企業の働き方を変え始めており、今後の主流になっていくでしょう。
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **次のステップとして**
 
 もし、既にSAPのお客様であり、SAP Intelligence RPAソリューションを使用している、または評価に興味がある場合は、SAPインテリジェントRPAとABBYY FlexiCaptureを組み合わせた製品の詳細を学ぶことができます。
@@ -100,11 +64,12 @@ ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせ�
 [OCR（文字認識）](https://tools.techidaily.com/abbyy/products/) [コンテンツの理解](https://tools.techidaily.com/abbyy/products/) [AI OCR](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -159,8 +124,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -170,48 +133,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-the-ultimate-screen-recorder-a-2023-evaluation-of-camstudio/"><u>[Updated] 2024 Approved  The Ultimate Screen Recorder  A 2023 Evaluation of CamStudio</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-unveiling-the-best-practices-for-skype-in-obs/"><u>[Updated] 2024 Approved  Unveiling the Best Practices for Skype in OBS</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-downloading-the-latest-tiktok-features-on-your-macbook-for-2024/"><u>[Updated] Downloading the Latest TikTok Features on Your MacBook for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-downloading-your-youtube-watch-lists-step-by-step/"><u>[Updated] Downloading Your YouTube Watch Lists  Step by Step</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-proven-methods-for-sensational-instagram-puzzle-creation/"><u>[Updated] In 2024, Proven Methods for Sensational Instagram Puzzle Creation</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-from-zip-to-sub-transforming-compressed-texts-to-srt-format/"><u>2024 Approved  From Zip to Sub  Transforming Compressed Texts to SRT Format</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-mastering-game-recordings-on-fortnite/"><u>2024 Approved  Mastering Game Recordings on Fortnite</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-unlock-professional-subtitle-transformation-at-zero-price/"><u>2024 Approved  Unlock Professional Subtitle Transformation at Zero Price</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Xiaomi 13 Ultra | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-ocr-rpa49/"><u>伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-advanced-language-translator-powered-by-ntt-docomo-features-ocr-for-multilingual-support/"><u>ABBYY's Advanced Language Translator - Powered by NTT DOCOMO, Features OCR for Multilingual Support</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-sdgs/"><u>ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み</u></a></li>
-<li><a href="https://tools.techidaily.com/aiseesoft/video-editor/"><u>Aiseesoft Video Editor</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatisierte-rechnungsbearbeitung-fur-energielieferanten-mit-branchenrelevanz-empfehlungen-von-abbyy/"><u>Automatisierte Rechnungsbearbeitung Für Energielieferanten Mit Branchenrelevanz – Empfehlungen Von ABBYY</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/become-a-youtube-star-top-fb-songs-and-vids-unlocked-for-2024/"><u>Become a YouTube Star - Top FB Songs & Vids Unlocked for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-site-traffic-with-cookiebot-integration-strategies/"><u>Boost Site Traffic with Cookiebot Integration Strategies</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-web-visibility-instantly-using-the-powerful-cookiebot-seo-tech/"><u>Boost Web Visibility Instantly Using the Powerful Cookiebot SEO Tech</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/carlsberg-accelere-son-debut-en-mer-avec-la-technologie-abbyy-un-nouveau-partenariat-industriel/"><u>Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Website's User Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-enhanced-personalization-and-engagement/"><u>Cookiebot-Enabled Sites: Enhanced Personalization & Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-optimizing-your-site-with-advanced-analytics/"><u>Cookiebot-Enhanced: Optimizing Your Site with Advanced Analytics</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-the-premier-8-free-roku-channels-of-2024/"><u>Discover the Premier 8 Free Roku Channels of 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-enhancing-online-personalization/"><u>Driven by Cookiebot: Enhancing Online Personalization</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-with-innovative-cookiebot-technology/"><u>Driven with Innovative Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-online-experience-with-cookiebot-power-solutions-for-superior-user-targeting-and-retention/"><u>Elevate Online Experience with Cookiebot Power Solutions for Superior User Targeting and Retention</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/embracing-innovative-mobility-learn-with-us-on-the-abbyy-blog/"><u>Embracing Innovative Mobility - Learn with Us on the ABBYY Blog</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-online-performance-using-the-powerful-features-of-cookiebot-technology/"><u>Enhance Online Performance Using the Powerful Features of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-with-advanced-automation-powered-by-the-cutting-edge-cookiebot-technology/"><u>Enhanced with Advanced Automation: Powered by the Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/expanded-pdf-handling-in-latest-abbyys-finereader-version-14-for-improved-document-processing/"><u>Expanded PDF Handling in Latest ABBYY's FineReader Version 14 for Improved Document Processing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-personalized-content-with-our-cookiebot-integration/"><u>Experience Personalized Content with Our Cookiebot Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/forbes-insight-transitioning-from-traditional-documents-to-advanced-digital-process-analytics/"><u>Forbes Insight: Transitioning From Traditional Documents to Advanced Digital Process Analytics</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-vivo-y100i-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Vivo Y100i to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harness-the-power-of-cookiebot-for-optimized-web-traffic-growth/"><u>Harness the Power of Cookiebot for Optimized Web Traffic Growth</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-resolve-the-issue-of-discord-not-launching-properly/"><u>How to Resolve the Issue of Discord Not Launching Properly</u></a></li>
-<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-nokia-c110frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Nokia C110FRP Lock</u></a></li>
-<li><a href="https://program-issues.techidaily.com/master-rocket-league-stability-proven-fixes-to-keep-it-running-smoothly-in-2s24/"><u>Master Rocket League Stability: Proven Fixes to Keep It Running Smoothly in 2S24</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcoming-startup-obstacles-a-2022-guide-for-playing-outriders-on-windows/"><u>Overcoming Startup Obstacles: A 2022 Guide for Playing Outriders on Windows</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-hashtag-combo-for-6-figure-youtube-traffic-surge-for-2024/"><u>Prime Hashtag Combo for 6-Figure Youtube Traffic Surge for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722975421411-seamlessly-update-your-ryzen-graphics-find-and-download-the-right-drivers-for-model-2600/"><u>Seamlessly Update Your Ryzen Graphics: Find & Download the Right Drivers for Model #2600.</u></a></li>
-<li><a href="https://win-able.techidaily.com/solving-the-issue-why-does-my-computer-keep-getting-content-warning-errors-and-how-to-stop-them/"><u>Solving the Issue: Why Does My Computer Keep Getting 'Content Warning' Errors and How to Stop Them</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-ultimate-guide-to-gestural-recognition-technologies/"><u>The Ultimate Guide to Gestural Recognition Technologies</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/vimeo-and-youtube-analyzing-their-unique-features/"><u>Vimeo and YouTube  Analyzing Their Unique Features</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-smart-strategies-for-profitable-snapchat-partnerships/"><u>[New] Smart Strategies for Profitable Snapchat Partnerships</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-expert-advice-for-aspiring-youtube-stars-the-art-of-reaction-videos-3-essential-steps/"><u>[Updated] Expert Advice for Aspiring YouTube Stars - The Art of Reaction Videos (3 Essential Steps)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebooks-edge-mastering-the-art-of-360-videos/"><u>2024 Approved Facebook's Edge Mastering the Art of 360 Videos</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-global-idp/"><u>ABBYY Global IDPトレンドの最新発表:成果報告書解説</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-job-title-facebooks-next-phase/"><u>Beyond the Job Title: Facebook's Next Phase</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oneplus-open-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from OnePlus Open to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-popularity-on-youtube-jake-pauls-story-unfolded-for-2024/"><u>Insta-Popularity on Youtube Jake Paul’s Story Unfolded for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-improved-online-traffic-and-user-interaction/"><u>Leverage Cookiebot Technology for Improved Online Traffic & User Interaction</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/screenorientationfix-guide/"><u>ScreenOrientationFix Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-role-of-b-roll-in-professional-editing-for-2024/"><u>The Role of B Roll in Professional Editing for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/top-apple-airtag-add-ons-and-gadgets-the-ultimate-list-for-2n4/"><u>Top Apple AirTag Add-Ons and Gadgets: The Ultimate List for 2N4</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
 </ul></div>
+

@@ -1,46 +1,22 @@
 ---
 title: ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event
-date: 2024-09-08T23:36:35.034Z
-updated: 2024-09-09T23:36:35.034Z
+date: 2024-09-08T18:12:32.481Z
+updated: 2024-09-14T17:24:28.327Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ae69a61ee431cd865eb63071b7e7dab33df662eeb4d068d44c620780bca6c82.jpeg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Shares Expertise on Artificial Intelligence during 2018 AIIM Conference
 
 April 03, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Provides practical integration strategies for AI and Accounts Payable Automation_
 
 ABBYY®, a global provider of content intelligence services, will share its expertise during two sessions at the AIIM Conference 2018\. The sessions focus on navigating artificial intelligence (AI)-enabling technologies within their information management strategies and business processes. The annual conference is taking place April 10-16 in San Antonio, Texas where ABBYY executives will also demonstrate solutions that optimize the use of intelligent capture, robotic process automation (RPA) and content within business processes at its booth #41R.
@@ -77,8 +53,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -88,51 +62,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-streammasters-obs-edition/"><u>[New] In 2024, StreamMasters  OBS Edition</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-resonant-revelry-auditory-additions-to-whatsapp-statues/"><u>[Updated] Resonant Revelry  Auditory Additions to WhatsApp Statues</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-elevates-mariko-maeda-to-leadership-role-president-and-representative-director-for-strengthening-the-japanese-market-presence/"><u>ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-facilitates-consistent-document-management-in-rochlings-sap-system-for-improved-efficiency-latest-industry-news/"><u>ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-insights-sync-your-wireless-headset-with-ease-and-keep-passwords-protected/"><u>ABBYY Insights: Sync Your Wireless Headset with Ease and Keep Passwords Protected</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-ocr-software-development-kit-advanced-automatic-document-scanning-and-interpretation/"><u>Abbyy OCR Software Development Kit: Advanced Automatic Document Scanning & Interpretation</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-web-application-for-scanning-and-organizing-business-cards-in-the-cloud/"><u>ABBYY Unveils New Web Application for Scanning and Organizing Business Cards in the Cloud</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-anthony-macciola-as-their-latest-appointment-chief-innovation-officer/"><u>ABBYY Welcomes Anthony Macciola as Their Latest Appointment: Chief Innovation Officer</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-automatisierte-intelligenz-innovative-losungen-auf-der-expo-fur-dienstleistungsverlagerung-und-konsolidierung/"><u>ABBYY-Automatisierte Intelligenz: Innovative Lösungen Auf Der Expo Für Dienstleistungsverlagerung Und Konsolidierung</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724313274377-abbyy/"><u>ABBYYチェッカリスト - 金融市場で勝ち抜くための強化戦略</u></a></li>
-<li><a href="https://driver-error.techidaily.com/addressing-windows-non-responsive-enter-issue/"><u>Addressing Windows Non-Responsive Enter Issue</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automated-marketing-mastery-with-cookiebot-technology/"><u>Automated Marketing Mastery with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-ihre-firmenproduktivitat-mit-der-digitalisierung-vernichtet-den-papier-aktenkeller/"><u>Boost Ihre Firmenproduktivität Mit Der Digitalisierung - Vernichtet Den Papier-Aktenkeller!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-your-site-with-cookiebots-powerful-analytics/"><u>Boost Your Site with Cookiebot's Powerful Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-your-traffic-with-cookiebots-powerful-tracking-technology/"><u>Boost Your Traffic with Cookiebot's Powerful Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/breaking-down-abbyy-omzets-successful-year-of-2abbreviation-benelux-metrics-reflect-a-23-upsurge-in-2019/"><u>Breaking Down ABBYY OMZET's Successful Year of 2Abbreviation; Benelux Metrics Reflect a 23%% Upsurge in 2019</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-unlocking-advanced-audience-targeting-features/"><u>Cookiebot-Driven Insights: Unlocking Advanced Audience Targeting Features</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience-with-tailored-content/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience with Tailored Content</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-site-enhance-your-digital-marketing-efforts/"><u>Cookiebot-Enabled Site: Enhance Your Digital Marketing Efforts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-boost-your-online-traffic-and-engagement/"><u>Cookiebot-Enabled Sites: Boost Your Online Traffic and Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-site-performance/"><u>Cookiebot-Enhanced Site Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhance-your-site-with-powerful-tracker-technology/"><u>Cookiebot: Enhance Your Site with Powerful Tracker Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhancing-your-website-with-smart-tracking-technology/"><u>Cookiebot: Enhancing Your Website with Smart Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/customized-advertising-with-the-advanced-capabilities-of-cookiebot/"><u>Customized Advertising with the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/die-neuesten-mining-fahigkeiten-von-abbyy-timeline-cu-verbesserte-integration-von-menschlichen-ressourcen-prozessen-und-inhalten/"><u>Die Neuesten Mining-Fähigkeiten Von ABBYY Timeline Cu: Verbesserte Integration Von Menschlichen Ressourcen, Prozessen Und Inhalten</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/differences-between-robotic-process-automation-rpa-and-intelligent-process-automation-ipa/"><u>Differences Between Robotic Process Automation (RPA) and Intelligent Process Automation (IPA)</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digitale-revolution-mit-5-leitsatzen-expertenchecklisten-von-abbyy-jetzt-verfugbar-machen/"><u>Digitale Revolution Mit 5 Leitsätzen: Expertenchecklisten Von ABBYY Jetzt Verfügbar Machen!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effiziente-automationstechnologien-im-versicherungssektor/"><u>Effiziente Automa­tionstechnologien Im Versicherungssektor</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/fixes-and-solutions-for-world-of-tanks-blitz-game-crashes/"><u>Fixes and Solutions for 'World of Tanks Blitz' Game Crashes</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-reset-apple-id-and-apple-password-from-iphone-xs-max-by-drfone-ios/"><u>How to Reset Apple ID and Apple Password From iPhone XS Max</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-xiaomi-redmi-note-12t-pro-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Xiaomi Redmi Note 12T Pro to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/instagram-enhancement-the-top-tactics-for-better-storytelling-for-2024/"><u>Instagram Enhancement  The Top Tactics for Better Storytelling for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-and-conversion-use-ocr-technology-with-finereader-pdf/"><u>IPhone Document Scanning & Conversion: Use OCR Technology with FineReader PDF</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-smarter-web-presence-and-seo-success/"><u>Leverage Cookiebot Technology for Smarter Web Presence and SEO Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-tracking-discover-the-power-of-cookiebot-technology/"><u>Optimized with Automated Tracking: Discover the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-next-level-analytics-and-conversion-boost/"><u>Optimized With Cookiebot: Next-Level Analytics & Conversion Boost</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/premiere-e-lecture-label-lever-for-2024/"><u>Premiere E-Lecture Label Lever for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/redefining-accounts-payable-the-synergy-of-automation-and-content-knowledge/"><u>Redefining Accounts Payable: The Synergy of Automation and Content Knowledge</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/robert-youngjohns-steering-vision-as-abbyys-esteemed-board-chair/"><u>Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/ultimate-guide-how-to-transfer-music-from-apple-iphone-13-pro-max-to-iphone-drfone-by-drfone-transfer-from-ios/"><u>Ultimate Guide, How to Transfer Music From Apple iPhone 13 Pro Max to iPhone | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
-<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-infinix-hot-40-pro-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Infinix Hot 40 Pro? Here is How | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-gastronomes-guidebook-culinary-videos/"><u>[New] The Gastronome's Guidebook Culinary Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-pioneering-vlogging-tech-our-ranking-of-top-12-video-cameras/"><u>[Updated] In 2024, Pioneering Vlogging Tech Our Ranking of Top 12 Video Cameras</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-obs-vs-streamlabs/"><u>2024 Approved OBS vs Streamlabs</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-dolby-digital-decoder-errors-and-launch-audio-drivers-successfully-on-windows-11/"><u>How to Fix Dolby Digital Decoder Errors and Launch Audio Drivers Successfully on Windows 11</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Samsung Galaxy S23 Tactical Edition? | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-initial-paperwork-through-vantage-solutions/"><u>Mastering the Art of Initial Paperwork Through Vantage Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/navigating-privacy-laws-with-abbyys-gdpr-ready-data-processing-addendum/"><u>Navigating Privacy Laws with ABBYY's GDPR-Ready Data Processing Addendum</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-bots-boosting-your-sites-performance/"><u>Optimized with Automated Bots: Boosting Your Site's Performance</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/revolutionizing-supply-chain-management-with-cutting-edge-tech-insights-from-an-abbyy-authority/"><u>Revolutionizing Supply Chain Management with Cutting-Edge Tech: Insights From an ABBYY Authority</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/slow-response-analyzing-chatgpt-4-against-gpt-35s-agility/"><u>Slow Response: Analyzing ChatGPT-4 Against GPT-3.5's Agility</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-guide-to-correcting-avcodecdll-absence-and-detection-failures/"><u>The Ultimate Guide to Correcting Avcodec.dll Absence & Detection Failures</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/ultimate-guide-to-unlocking-encrypted-dvds-discover-the-best-strategies-and-access-5-free-solutions/"><u>Ultimate Guide to Unlocking Encrypted DVDs: Discover the Best Strategies and Access 5 Free Solutions</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-the-ultimate-guide-to-creating-a-ken-burns-effect-in-software/"><u>Updated In 2024, The Ultimate Guide to Creating a Ken Burns Effect in Software</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

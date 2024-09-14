@@ -1,28 +1,16 @@
 ---
 title: "Abbyy OCR Software Development Kit: Advanced Automatic Document Scanning & Interpretation"
-date: 2024-09-08T23:36:34.256Z
-updated: 2024-09-09T23:36:34.256Z
+date: 2024-09-10T17:01:55.654Z
+updated: 2024-09-14T22:15:06.608Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1477ca2012895e861bfdb26b444c7a0eb6d638cc1df6527be4105c5f43b0af39.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Abbyy OCR Software Development Kit: Advanced Automatic Document Scanning & Interpretation
 
 ABBYY FineReader Engine
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The most comprehensive OCR SDK for software developers
 
 Integrate AI-powered OCR features into your applications
@@ -31,18 +19,6 @@ Integrate AI-powered OCR features into your applications
 
 ![FRE_Visual](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/finereader-engine/fre_visual.jpg?h=500&iar=0&w=2560)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Automated document analysis
 
 The automated document analysis step is a key part of the overall document recognition process. To conduct this step with a high precision, ABBYY FineReader Engine uses many advanced algorithms of artificial intelligence based methods.
@@ -55,12 +31,6 @@ As a result, the ABBYY FineReader Engine is able to specify text areas and field
 
 The results of this analysis are used for document structure and layout retrieval if documents are processed for further reuse – which means that the documents need be exactly reconstructed. All pictures and diagrams will be preserved in their original form - without recognizing the text inside pictures or logos.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Manual blocks specification for field-level recognition
 
 The text recognition areas can be set up manually. In this case, the relevant recognition field is directly defined and the automated document analysis is not necessary. During the later recognition step, the recognizer receives information about the coordinates and properties of the requested fields and applies OCR only to the specified zone.
@@ -129,8 +99,6 @@ Page URL
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -140,65 +108,26 @@ Page URL
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-proven-3-step-framework-for-creating-persuasive-facebook-ad-content/"><u>[New] 2024 Approved  Proven 3-Step Framework for Creating Persuasive Facebook Ad Content</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-roguelikes-traditional-tactics-vs-modern-mechanics/"><u>[New] 2024 Approved  Roguelike's Traditional Tactics Vs. Modern Mechanics</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-advanced-title-design-strategies-in-after-effects/"><u>[New] Advanced Title Design Strategies in After Effects</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-boosting-zoom-outputs-with-top-three-conversion-tactics/"><u>[New] Boosting Zoom Outputs with Top Three Conversion Tactics</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-digital-decoder-masterful-online-tv-recording-methods-for-2024/"><u>[New] Digital Decoder  Masterful Online TV Recording Methods for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-rapid-snapshot-sound-infused-display/"><u>[New] In 2024, Rapid Snapshot  Sound-Infused Display</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-step-up-your-gaming-with-advanced-ps4-capture-techniques/"><u>[New] Step Up Your Gaming with Advanced PS4 Capture Techniques</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-streamlined-steps-to-document-chat-calls-on-whatsapp/"><u>[New] Streamlined Steps to Document Chat Calls on WhatsApp</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-go-pro-karma-drone-review/"><u>[Updated] Go Pro Karma Drone Review</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-mastering-multi-platform-content-delivery-youtube-and-beyond/"><u>[Updated] In 2024, Mastering Multi-Platform Content Delivery  YouTube & Beyond</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-macs-most-reliable-snipers-reviewed/"><u>[Updated] Mac's Most Reliable Snipers Reviewed</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-pinnacle-5-image-alteration-apps-iphone-x78-edition/"><u>2024 Approved  Pinnacle 5 Image Alteration Apps  IPhone X/7/8 Edition</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-transform-your-live-feed-select-from-the-ultimate-9-filter-list/"><u>2024 Approved  Transform Your Live Feed  Select From the Ultimate 9 Filter List</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-and-blue-prism/"><u>ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-facilitates-consistent-document-management-in-rochlings-sap-system-for-improved-efficiency-latest-industry-news/"><u>ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-showcases-artificial-intelligence-insights-at-the-2018-aiim-event/"><u>ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-auditing-initiatives-boosted-by-ab-inbevs-backing-of-forhumanity/"><u>AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/apple-iphone-6s-plus-mirror-to-pc-top-apps-you-must-know-drfone-by-drfone-ios/"><u>Apple iPhone 6s Plus Mirror to PC? Top Apps You Must Know | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-traffic-with-cookiebot-technology-smart-analytics-tools/"><u>Boosting Web Traffic with Cookiebot Technology - Smart Analytics Tools!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-battre-en-regle-les-plateformes-financieres-numeriques-natives-decouvrez-notre-verification-complete-par-abbyy/"><u>Comment Battre en Règle Les Plateformes Financières Numériques Natives : Découvrez Notre Vérification Complète Par ABBYY</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/complete-guide-safely-backing-up-device-drivers-in-windows-11-and-10/"><u>Complete Guide: Safely Backing Up Device Drivers in Windows 11 and 10</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-for-seamless-customer-experience-tracking/"><u>Cookiebot-Driven Insights for Seamless Customer Experience Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-leading-ai-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Leading AI Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effortless-business-automation-harnessing-the-power-of-zero-coding-ai-tools/"><u>Effortless Business Automation: Harnessing the Power of Zero-Coding AI Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-digital-marketing-with-the-cookiebot-advantage/"><u>Enhance Your Digital Marketing with the Cookiebot Advantage</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-site-performance-with-the-help-of-cookiebot-technology/"><u>Enhanced Site Performance with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-business-results-three-key-strategies-with-ai-and-smart-automation/"><u>Enhancing Business Results: Three Key Strategies with AI & Smart Automation</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-advanced-audience-engagement-using-smart-tracking-cookiebot-technology/"><u>Experience Advanced Audience Engagement Using Smart Tracking - Cookiebot Technology</u></a></li>
-<li><a href="https://driver-error.techidaily.com/fix-usb-code-43-error-easily-with-pictures/"><u>Fix USB Code 43 Error Easily [with Pictures]</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/geschwindige-zollabwicklung-warentransport-von-uk-nach-eu-beschleunigt-auf-unter-5-minuten/"><u>Geschwindige Zollabwicklung: Warentransport Von UK Nach EU Beschleunigt Auf Unter 5 Minuten</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/get-abbyy-textgrabber-free-new-on-the-fly-translating-capabilities-for-android-devices/"><u>Get ABBYY TextGrabber Free: New On-the-Fly Translating Capabilities for Android Devices</u></a></li>
-<li><a href="https://techidaily.com/guide-on-how-to-erase-apple-iphone-6-data-completely-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Erase Apple iPhone 6 Data Completely | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/harmonizing-workplay-by-incorporating-podcast-listening/"><u>Harmonizing Work/Play by Incorporating Podcast Listening</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-poco-m6-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Poco M6 5G Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/how-to-record-screencast-from-youtube-for-free-for-2024/"><u>How To Record Screencast From YouTube For Free for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-honor-play-7t-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Honor Play 7T phone? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-se-2022-to-other-iphone-14-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone SE (2022) to other iPhone 14 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-comprehensive-idevice-screenplay-techniques/"><u>In 2024, Comprehensive iDevice Screenplay Techniques</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-xiaomi-redmi-13c-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Xiaomi Redmi 13C Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-enhanced-user-experience-websites-boosted-using-the-powerful-cookiebot-platform/"><u>Leverage Enhanced User Experience: Websites Boosted Using the Powerful Cookiebot Platform</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-cookiebot-technology-for-improved-website-engagement/"><u>Leveraging Cookiebot Technology for Improved Website Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/master-your-connections-using-ios-12-features-for-business-cards-tips-from-abbyb-log/"><u>Master Your Connections Using iOS 12 Features for Business Cards - Tips From ABBYB Log</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximize-engagement-with-advanced-analytics-the-cookiebot-integration-advantage/"><u>Maximize Engagement with Advanced Analytics: The Cookiebot Integration Advantage</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximizing-page-visibility-a-guide-to-advanced-seo-techniques/"><u>Maximizing Page Visibility: A Guide to Advanced SEO Techniques</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimize-with-cookiebot-advanced-tools-for-superior-web-engagement-and-personalization/"><u>Optimize With Cookiebot: Advanced Tools for Superior Web Engagement and Personalization</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-enhancing-your-sites-visibility/"><u>Optimized with Cookiebot Technology: Enhancing Your Site's Visibility</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-the-latest-from-cookiebot-enhance-your-websites-analytics-today/"><u>Optimized with the Latest From Cookiebot: Enhance Your Website's Analytics Today!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-microsoft-sharepoint-workflows-with-cutting-edge-ocr-capabilities-from-abbyy-experts/"><u>Optimizing Microsoft SharePoint Workflows with Cutting-Edge OCR Capabilities From ABBYY Experts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-web-experiences-with-advanced-cookiebot-technology/"><u>Optimizing Web Experiences with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/peak-matrix-2019-abbyy-stands-out-in-everest-groups-rankings-of-leading-idp-tools-and-applications/"><u>Peak Matrix™ 2019: ABBYY Stands Out in Everest Group's Rankings of Leading IDP Tools and Applications</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/protect-your-data-understanding-the-abbyy-cloud-agreement-for-gdpr-adherence/"><u>Protect Your Data: Understanding the ABBYY Cloud Agreement for GDPR Adherence</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/side-hustles-in-the-era-of-gpt-like-tools-can-you-really-profit-from-them/"><u>Side Hustles in the Era of GPT-Like Tools: Can You Really Profit From Them?</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/the-future-of-digital-transformation-insights-from-the-2018-abbyy-technology-summit-on-content-intelligence/"><u>The Future of Digital Transformation: Insights From the 2018 ABBYY Technology Summit on Content Intelligence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-6-must-read-digital-intelligence-insights-of-2020-featured-on-the-abbyy-blog/"><u>Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-itel-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Itel Phone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1722989800475-trouble-with-hitman-n-game-heres-how-to-resolve-the-notorious-pc-black-screen-problem/"><u>Trouble with Hitman N Game? Here's How to Resolve the Notorious PC Black Screen Problem!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/universitat-zurich-optimiert-prufungen-mit-abbyy-flexicapture-korrektursystem/"><u>Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unlock-deeper-understanding-with-abbyys-guide-on-elevated-bi-and-process-mining-tactics-ebook/"><u>Unlock Deeper Understanding with ABBYY's Guide on Elevated BI & Process Mining Tactics [eBook]</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/updated-top-6-mickey-mouse-voice-generators/"><u>Updated Top 6 Mickey Mouse Voice Generators</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Huawei Nova Y71? | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iuocreodoplusodgplusoctplusodpeodleodreodvoacgombqewmluaipuevptog44ki44ow44ot44o86kqn5a6a44ob44kn44od44kv44oq44k544oi44gn6kal44gk44gr44kl5paw44gx44ge5lql5qw25/"><u>キャッシュフロー最適化戦略: アブビー認定チェックリストで見つける新しい事業機会</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unveiling-the-secrets-to-successful-social-media-film-making/"><u>[New] In 2024, Unveiling the Secrets to Successful Social Media Film Making</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-inauguration-setting-up-a-twitter-profile/"><u>2024 Approved Inauguration Setting Up a Twitter Profile</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-mastering-time-lapse-android-tips-and-tricks/"><u>2024 Approved Mastering Time-Lapse Android Tips & Tricks</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-vivo-t2-pro-5g-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Vivo T2 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Itel P55T | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-smarter-web-presence-and-seo-success/"><u>Leverage Cookiebot Technology for Smarter Web Presence and SEO Success</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/maximale-komprimierung-von-hochauflosenden-videos-tipps-zur-verringerung-ihrer-dateigrossen-um-90/"><u>Maximale Komprimierung Von Hochauflösenden Videos: Tipps Zur Verringerung Ihrer Dateigrößen Um 90%</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/oggwav/"><u>OGG音声変換で最高のWAVへ！人気無料ソフトとオンラインサイトレビュー</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-tracking-discover-the-power-of-cookiebot-technology/"><u>Optimized with Automated Tracking: Discover the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-next-level-analytics-and-conversion-boost/"><u>Optimized With Cookiebot: Next-Level Analytics & Conversion Boost</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
+<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-realme-12-5g-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of Realme 12 5G on Mac</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-guide-to-mastering-netflix-dvd-services-crucial-advice-for-enhanced-viewing-experience/"><u>Ultimate Guide to Mastering Netflix DVD Services: Crucial Advice for Enhanced Viewing Experience</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

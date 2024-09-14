@@ -1,7 +1,7 @@
 ---
 title: "Revolutionize Your Paperwork: Unveiling the Power of ABBYY Vantage Version 2.1"
-date: 2024-08-30T10:59:29.356Z
-updated: 2024-08-31T10:59:29.356Z
+date: 2024-09-08T18:48:15.218Z
+updated: 2024-09-14T16:17:04.977Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0637330b995d15dd54d33a9215c8a5f8a705636812bbbbc0bf18d5302643fdc0.jpg
@@ -45,18 +45,6 @@ Training a skill and then reviewing the results got a lot easier with a redesign
 
 To get started, users of Vantage can access the FREE [online training and certifications](https://tools.techidaily.com/abbyy/products/) courses.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## New supply chain document skills
 
 No release of Vantage is complete without introducing a new set of pre-trained machine learning (ML) models delivered as document skills. In Vantage v2.1 we’ve added new out-of-the-box, production-ready skills for several documents that are common in supply chain.
@@ -72,13 +60,6 @@ A new set of framework skills for processing tax documents including 1098 and 10
 
 What’s important to point out about the trained skills is that these document skill models can be further trained by users based on their own customer documents. The power of continuously collecting documents and data and retraining the model is built into the Vantage human-in-the-loop capabilities. Once you publish a skill(s) into production and enable online learning, every time a human operator validates exceptions or makes corrections, that information is stored and used to update the learning model. Eventually, your document processes achieve a higher degree of accuracy and straight through processing.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ## ABBYY Marketplace growing momentum
 
 We first launched the marketplace in August 2021, and since then, 30 more assets have been added by ABBYY and our partners. New assets include pre-trained skills, connectors, and solutions that are simple-to-use and accelerate the deployment of IDP projects. Expect this marketplace to lead the way into the future on how enterprises will want to start every document automation project.
@@ -90,8 +71,12 @@ Technology alliance partners like [Pipefy](https://tools.techidaily.com/abbyy/pr
 [Calling ISVs and Partners: Upskill Your Business Solutions to Intelligently Process Documents](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Advancing document skills training for the developer
 
 In this release, we have something for every type of user, including the skilled expert who understands the fine art of machine learning, natural language processing (NLP), and named entity recognition (NER). We are pleased to introduce the new Vantage Advanced Skill Designer (available in controlled release), a point-and-click design studio that opens the door to building out the processing pipeline of a trained document skill model.
@@ -99,15 +84,23 @@ In this release, we have something for every type of user, including the skilled
 ![Advanced Designer ABBYY Vantage interface](https://static1.abbyy.com/abbyycommedia/34963/14194-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 The Advanced Skill Designer includes a set of activities for parsing address fields, training NLP for segmentation, or leveraging trained NER to extract entities like names, address, business, dates, and currency. An activity for defining data extraction for edge case document variations that machine learning is unable to pick up at a high degree of accuracy is also possible for a skilled user to create rules.
 
 All this means that no document is too challenging for Vantage to solve. If you have the human skill set, the new advanced designer will give you the tools to show off your expert skills and further developed trained document skills for your business groups.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Building out the delivery of a Cloud native platform with flexibility
 
 Native Cloud and all the buzzwords associated with the next wave of automation platforms can be mind-numbing for a business user, but have special meaning to the IT architect. To the IT architect team, the platform design is key to any purchase decision. The IT team wants to know they are not locking into any delivery model or working with a platform that is closed off and difficult to integrate with all their other cloud native apps.
@@ -130,9 +123,6 @@ If you have a trial of Vantage in the Cloud today, you already have access to al
 
 Bill Galusha
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -187,8 +177,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -198,39 +186,15 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-reels-expertise-from-a-ninja-perspective/"><u>[New] 2024 Approved  Instagram Reels  Expertise From a Ninja Perspective</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-twitters-mandated-video-dimensions-aspect-ratio-noted/"><u>[New] 2024 Approved  Twitter's Mandated Video Dimensions (Aspect Ratio Noted)</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-direct-to-the-bottom-of-the-feed-no-watermark-on-iphone/"><u>[New] Direct to the Bottom of the Feed, No Watermark on iPhone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-the-essential-guide-to-creating-stunning-boomerangs/"><u>[New] The Essential Guide to Creating Stunning Boomerangs</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-master-the-art-of-instagram-live-chats-a-comprehensive-guide/"><u>[Updated] 2024 Approved  Master the Art of Instagram Live Chats  A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-viewer-growth-strategy-dynamic-description-templates-for-youtube-success/"><u>[Updated] 2024 Approved  Viewer Growth Strategy  Dynamic Description Templates for YouTube Success</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-skyrocket-to-1000-subscribers-in-days/"><u>[Updated] Skyrocket to 1,000 Subscribers in Days</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-effortlessly-enhance-your-images-on-w11/"><u>2024 Approved  Effortlessly Enhance Your Images on W11</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-showcases-artificial-intelligence-insights-at-the-2018-aiim-event/"><u>ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-auditing-initiatives-boosted-by-ab-inbevs-backing-of-forhumanity/"><u>AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-traffic-with-cookiebot-technology-smart-analytics-tools/"><u>Boosting Web Traffic with Cookiebot Technology - Smart Analytics Tools!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-battre-en-regle-les-plateformes-financieres-numeriques-natives-decouvrez-notre-verification-complete-par-abbyy/"><u>Comment Battre en Règle Les Plateformes Financières Numériques Natives : Découvrez Notre Vérification Complète Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-for-seamless-customer-experience-tracking/"><u>Cookiebot-Driven Insights for Seamless Customer Experience Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-leading-ai-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Leading AI Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-unleash-the-power-of-automated-conversions/"><u>Cookiebot-Enhanced: Unleash the Power of Automated Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-unleashing-advanced-tracking-solutions-for-your-websites-success/"><u>Cookiebot: Unleashing Advanced Tracking Solutions for Your Website's Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/data-driven-personalization-through-smart-analytics-solutions/"><u>Data-Driven Personalization Through Smart Analytics Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/demystifying-rpa-insights-from-the-abbyy-experts-guide/"><u>Demystifying RPA: Insights From the ABBYY Expert's Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/desamorcez-votre-gestion-des-credits-immobiliers-grace-a-levolutif-et-performant-service-de-dematerialisation-la-caisse-depargne-bretagne-pays-de-loire/"><u>Désamorcez Votre Gestion Des Crédits Immobiliers Grâce À L'évolutif Et Performant Service De Dématérialisation La Caisse D’Epargne Bretagne Pays De Loire</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-your-site-performance-using-cookiebot-technology/"><u>Elevate Your Site Performance Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/empowering-website-insights-with-cookiebot-advanced-tracking-solutions-for-improved-seo/"><u>Empowering Website Insights with Cookiebot: Advanced Tracking Solutions for Improved SEO</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-site-performance-with-our-cookiebot-integrated-tools/"><u>Enhance Site Performance with Our Cookiebot Integrated Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-website-traffic-analysis-with-our-advanced-cookiebot-technology-solutions/"><u>Enhance Website Traffic Analysis with Our Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-by-cookiebot-solutions/"><u>Enhanced by Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-multifunctional-toshiba-printer-with-built-in-abbyy-ocr-technology/"><u>Enhanced Multifunctional Toshiba Printer with Built-In ABBYY OCR Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-accounting-efficiency-with-advanced-automated-solutions/"><u>Enhancing Accounting Efficiency with Advanced Automated Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-financial-stability-with-ai-driven-bank-compliance-measures-and-resilience-tactics/"><u>Enhancing Financial Stability with AI-Driven Bank Compliance Measures and Resilience Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-robotic-process-automation-efficiency-with-advanced-process-analytics-insights-from-the-abbyy-experience/"><u>Enhancing Robotic Process Automation Efficiency with Advanced Process Analytics: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-tools/"><u>Enhancing User Experience Through Smart Data Collection Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-a-look-into-the-efficiency-of-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Data Collection: A Look Into the Efficiency of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-with-advanced-cookiebot-technology/"><u>Enhancing User Experience with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/excellence-recognized-and-best-practices-established/"><u>Excellence Recognized and Best Practices Established!</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-xiaomi-redmi-k70e-by-drfone-android/"><u>How to Bypass FRP from Xiaomi Redmi K70E?</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-digital-film-composer/"><u>In 2024, Digital Film Composer</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/the-best-of-the-web-vertical-video-editors-for-2024/"><u>The Best of the Web Vertical Video Editors for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-sharex-unmasked-critical-insights-and-substitutes/"><u>[New] 2024 Approved ShareX Unmasked Critical Insights & Substitutes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-harnessing-technology-the-art-of-capturing-ios-devices-in-media/"><u>[Updated] Harnessing Technology The Art of Capturing iOS Devices in Media</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-storage-solution-for-sony-a7s-ii/"><u>[Updated] Ultimate Storage Solution for Sony A7S II</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/expanded-pdf-handling-in-latest-abbyys-finereader-version-14-for-improved-document-processing/"><u>Expanded PDF Handling in Latest ABBYY's FineReader Version 14 for Improved Document Processing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/experience-personalized-content-with-our-cookiebot-integration/"><u>Experience Personalized Content with Our Cookiebot Integration</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/forbes-insight-transitioning-from-traditional-documents-to-advanced-digital-process-analytics/"><u>Forbes Insight: Transitioning From Traditional Documents to Advanced Digital Process Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/harness-the-power-of-cookiebot-for-optimized-web-traffic-growth/"><u>Harness the Power of Cookiebot for Optimized Web Traffic Growth</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-oppo-reno-11-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Oppo Reno 11 5G? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/qualitatsbewahrend-dvd-zu-mkv-konvertierung-auf-einem-mac-schritt-fur-schritt-anleitung/"><u>Qualitätsbewahrend DVD-Zu-MKV Konvertierung Auf Einem Mac - Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-common-lag-issues-in-the-popular-game-outrider/"><u>Troubleshooting Common Lag Issues in the Popular Game Outrider</u></a></li>
 </ul></div>
+
