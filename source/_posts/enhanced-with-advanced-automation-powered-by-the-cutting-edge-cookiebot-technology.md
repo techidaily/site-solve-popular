@@ -1,7 +1,7 @@
 ---
 title: "Enhanced with Advanced Automation: Powered by the Cutting-Edge Cookiebot Technology"
-date: 2024-09-08T21:57:34.769Z
-updated: 2024-09-14T22:38:55.656Z
+date: 2024-09-16T20:47:43.978Z
+updated: 2024-09-18T20:08:57.615Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b19b440ee033b062893436bff7c73d55af4b510d997596576ac31f3af838cbea.jpg
@@ -63,10 +63,16 @@ In the latest [Vantage release](https://tools.techidaily.com/abbyy/products/), w
 Together, these enhancements make it easier to deploy IDP solutions taking a no-code / low-code approach. Take, for example, processing data from invoices. This not only starts with identifying the vendor invoice and extracting data but often requires detecting the start and end of many invoices in one PDF file. Available in the Vantage release is a new document splitting skill, where Vantage will auto-detect the start and end of a multi-page document like an invoice, eliminating any manual work that would otherwise be required.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Turn your documents into actionable data
@@ -79,13 +85,6 @@ The ability to extract table data can be challenging with documents like invoice
 
 It is also worth highlighting the latest ABBYY announcement on [ABBYY Proof of Identity](https://tools.techidaily.com/abbyy/products/), delivering instant identity proofing and affirmation as part of customer onboarding, new account opening, claims, and enrollment processes. It is the point where the customer provides proof of their identity via ID cards, photos, and supporting documents, so the business can determine that they are who they say they are.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Get started today!
 
 We’re very excited about the latest [Vantage](https://tools.techidaily.com/abbyy/products/) 2.3 release as we continue to advance the core AI document understanding technology, build pre-trained skills (models), and align with businesses to simplify document automation. You can learn more about all this exciting release by registering for the upcoming [Vantage 2.3 webinar](https://tools.techidaily.com/abbyy/products/) and try out the new capabilities in your Vantage tenant or [request a demo](https://tools.techidaily.com/abbyy/products/).
@@ -95,6 +94,13 @@ We’re very excited about the latest [Vantage](https://tools.techidaily.com/abb
 ![Bill Galusha ABBYY](https://static5.abbyy.com/abbyycommedia/25718/billgalusha-99x99.png)
 
 Bill Galusha
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -159,12 +165,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-dynamic-audio-excellence-best-cameras-microphones/"><u>[New] 2024 Approved Dynamic Audio Excellence Best Cameras' Microphones</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-stepwise-approach-to-srt-file-creation-brilliance/"><u>[Updated] Stepwise Approach to SRT File Creation Brilliance</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Will iSpoofer update On Apple iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/neoml-discover-the-power-of-abbyys-enrichit-and-open-source-software-capabilities/"><u>NeoML: Discover the Power of ABBYY's Enrichit and Open-Source Software Capabilities</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-advanced-traffic-analysis-from-cookiebot/"><u>Optimized with Advanced Traffic Analysis From Cookiebot</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-beloved-budget-device-insights-on-the-tp-link-archer-c9/"><u>Reviewing the Beloved Budget Device: Insights on the TP-Link Archer C9</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/streamline-e-commerce-success-the-power-of-advanced-cookiebot-solutions/"><u>Streamline E-Commerce Success: The Power of Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-choose-your-view-facebook-video-aspect-ratio/"><u>[New] Choose Your View Facebook Video Aspect Ratio</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-beyond-flat-canvas-elevating-text-to-new-heights/"><u>[Updated] Beyond Flat Canvas Elevating Text to New Heights</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-snap-it-all-complimentary-android-recordings-for-2024/"><u>[Updated] Snap It All Complimentary Android Recordings for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-6-excellent-apps-to-capture-and-save-linkedin-videos-successfully/"><u>2024 Approved 6 Excellent Apps to Capture and Save LinkedIn Videos Successfully</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-your-site-with-cookiebots-powerful-analytics/"><u>Boost Your Site with Cookiebot's Powerful Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-your-traffic-with-cookiebots-powerful-tracking-technology/"><u>Boost Your Traffic with Cookiebot's Powerful Tracking Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/breaking-down-abbyy-omzets-successful-year-of-2abbreviation-benelux-metrics-reflect-a-23-upsurge-in-2019/"><u>Breaking Down ABBYY OMZET's Successful Year of 2Abbreviation; Benelux Metrics Reflect a 23% Upsurge in 2019</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-unlocking-advanced-audience-targeting-features/"><u>Cookiebot-Driven Insights: Unlocking Advanced Audience Targeting Features</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience-with-tailored-content/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience with Tailored Content</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-site-enhance-your-digital-marketing-efforts/"><u>Cookiebot-Enabled Site: Enhance Your Digital Marketing Efforts</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-boost-your-online-traffic-and-engagement/"><u>Cookiebot-Enabled Sites: Boost Your Online Traffic and Engagement</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/iastorasys-related-bsod-errors-a-comprehensive-fixing-approach/"><u>Iastora.sys-Related BSOD Errors: A Comprehensive Fixing Approach</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/quick-guide-to-starting-an-instagram-live-show/"><u>Quick Guide to Starting an Instagram Live Show</u></a></li>
+<li><a href="https://win-able.techidaily.com/solved-resolving-the-black-screen-error-when-playing-call-of-duty-wwii-on-windows/"><u>Solved: Resolving the Black Screen Error When Playing Call of Duty WWII on Windows</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/utilizing-microsofts-codex-copilot-feature-within-your-teams-workflow/"><u>Utilizing Microsoft's Codex Copilot Feature Within Your Teams Workflow</u></a></li>
 </ul></div>
 

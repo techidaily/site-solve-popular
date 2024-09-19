@@ -1,7 +1,7 @@
 ---
 title: "Discovering ABBYY Teams of Athletes: More than Just Their Profession"
-date: 2024-09-13T21:37:39.518Z
-updated: 2024-09-14T17:36:49.158Z
+date: 2024-09-12T19:23:18.404Z
+updated: 2024-09-18T20:06:32.547Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b88f149e018190d8db992f5fa62ce84a76816eeb035902ad86368ed1da64a17e.jpg
@@ -59,16 +59,16 @@ Kickboxing provides Greta with a great way to stay active and unwind, ensuring s
 Several skills and lessons from kickboxing are highly transferable to Greta's work at ABBYY. She highlights patience and stamina as invaluable when managing various marketing situations. "Kickboxing has taught me the importance of perseverance," she notes, explaining how this mindset helps her navigate setbacks. Additionally, kickboxing has shown her not to be intimidated by others, allowing her to approach interactions with courage and determination. “Everyone has their weak spots, and this understanding helps me approach interactions with confidence and assertiveness, ensuring that my voice and ideas are heard within the team”, she told us.
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Aniko Biro, Hungary-based Customer Excellence Business Operations Specialist, Hungary
@@ -76,10 +76,10 @@ Several skills and lessons from kickboxing are highly transferable to Greta's wo
 ![aniko-abbyy-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-sports-enthusiasts-of-abbyy/aniko-abbyy-848.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Aniko’ commitment to the gym has not only improved her physical health but also provided her with valuable skills that enhance her performance at ABBYY. We sat down with her to find out more about how passion for fitness contributes positively to her day job at ABBYY.
@@ -185,17 +185,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-guide-to-inshot-on-pcs-and-laptops/"><u>[New] The Ultimate Guide to Inshot on PCs and Laptops</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-boost-your-channels-traffic-and-value-with-innovative-hashtags/"><u>[Updated] 2024 Approved Boost Your Channels' Traffic & Value with Innovative Hashtags</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-simplified-blur-methods-for-perfect-iphone-pics-a-quick-guide/"><u>2024 Approved Simplified Blur Methods for Perfect iPhone Pics - A Quick Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-artificial-intelligence-frontiers-at-abbyy-event-shaping-tomorrows-tech-landscape/"><u>Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-customization-and-seo-success/"><u>Harnessing the Power of Cookiebot for Advanced Site Customization and SEO Success</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-filming-flicks-guide-for-pc-mac-smartphone-recording/"><u>In 2024, Filming Flicks Guide for PC, Mac, Smartphone Recording</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-prime-video-capture-leaders-revealed/"><u>In 2024, Prime Video Capture Leaders Revealed</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-herangehensweisen-an-die-prozessanalytik-ein-detaillierter-vergleich-zwischen-den-fuhrenden-methoden-pdf-abbyy/"><u>Innovative Herangehensweisen an Die Prozessanalytik: Ein Detaillierter Vergleich Zwischen Den Führenden Methoden (PDF) - ABBYY</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/pinnacle-tools-for-audio-infused-photography/"><u>Pinnacle Tools for Audio Infused Photography</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-social-media-gurus-handbook-accelerating-your-path-to-viral-success-on-instagram-for-2024/"><u>The Social Media Guru's Handbook Accelerating Your Path to Viral Success on Instagram for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unveiling-strategies-to-detect-bingchatgpt-fraudulent-cryptocurrency-operations/"><u>Unveiling Strategies to Detect BingChatGPT Fraudulent Cryptocurrency Operations</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-building-a-strong-introduction-examples-and-methods/"><u>[Updated] Building a Strong Introduction Examples & Methods</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-vr-innovations-unwrapped-top-peripherals-spotlight-for-2024/"><u>[Updated] VR Innovations Unwrapped - Top Peripherals Spotlight for 2024</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/5-effective-methods-for-converting-wma-files-to-mp3-a-comprehensive-guide-updated/"><u>5 Effective Methods for Converting WMA Files to MP3: A Comprehensive Guide (Updated)</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automated-customer-engagement-with-cookiebot-technology/"><u>Automated Customer Engagement with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-traffic-with-cookiebot-powerful-site-engagement-tools/"><u>Boost Traffic with Cookiebot - Powerful Site Engagement Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-engagement-with-cookiebot-technology-for-tailored-content-delivery/"><u>Boosting Engagement with Cookiebot Technology for Tailored Content Delivery</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/combining-power-of-abbyy-with-alteryx-for-enhanced-data-management-and-process-automation-solutions/"><u>Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-videos-from-your-nokia-c210-by-fonelab-android-recover-video/"><u>How to recover old videos from your Nokia C210</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-a-found-apple-iphone-15-pro-max-by-drfone-ios/"><u>How To Unlock A Found Apple iPhone 15 Pro Max?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-10-must-have-keyword-gurus-for-video-success/"><u>In 2024, 10 Must-Have Keyword Gurus for Video Success</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/meme-crafting-undead-androids-for-2024/"><u>Meme Crafting Undead Androids for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-unlock-new-possibilities-filmora-x-adds-arm-support-for-2024/"><u>New Unlock New Possibilities Filmora X Adds ARM Support for 2024</u></a></li>
 </ul></div>
 

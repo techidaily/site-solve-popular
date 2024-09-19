@@ -1,7 +1,7 @@
 ---
 title: Strengthen Business Continuity with Effective Process Enhancement
-date: 2024-09-09T16:25:18.758Z
-updated: 2024-09-14T21:03:55.964Z
+date: 2024-09-11T23:17:33.049Z
+updated: 2024-09-18T23:13:31.000Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/db339cfb71ad17e704275f446976657b74bdf593b2c3464a856c74dd3bbe549b.jpg
@@ -33,44 +33,44 @@ Digital Intelligence Consultant, **ABBYY**
 
 VP Center of Digitization, **Deutsche Post DHL**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Overview
 
 In this session from the 20th European Shared Services & Outsourcing Week 2020, with guest speaker Stefan Wenzel of Deutsche Post DHL, we showed how several large organizations adopted best practices for achieving operational resilience and higher customer service through intelligent process discovery and content-centered automation.
 
 Through these practical examples, we demonstrate the value of achieving operational resilience by gaining an informed understanding of your operations – especially how their content (documents such as invoices, bills of lading, contracts) can be intelligently automated for efficiency, compliance and meeting service levels.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch now to learn how:
 
 * A global logistics company (DHL) reduced transaction costs through standardized global processes with the aid of intelligent automation technology.
 * A leading telecommunications company identified process bottlenecks in customer service and HR and achieved operational improvements through data-driven insights.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Watch now
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Thank you, enjoy your webinar!
 
@@ -143,18 +143,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-high-def-camera-the-top-audio-mics-guide-for-2024/"><u>[New] High-Def Camera The Top Audio Mics Guide for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-unravel-the-mystery-of-tempo-control-in-instagram-stories/"><u>[New] Unravel the Mystery of Tempo Control in Instagram Stories</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-direct-transfer-of-tweets-video-features-onto-snapchat/"><u>[Updated] 2024 Approved Direct Transfer of Tweets' Video Features Onto Snapchat</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-transforming-facebook-videos-steps-to-high-definition-for-2024/"><u>[Updated] Transforming Facebook Videos Steps to High Definition for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/2024-approved-the-ultimate-wax-tutorial-learn-to-edit-videos-like-a-pro/"><u>2024 Approved The Ultimate Wax Tutorial Learn to Edit Videos Like a Pro</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/a-deep-dive-into-video-workflow-enhancement-through-hdri-adoption-for-2024/"><u>A Deep Dive Into Video Workflow Enhancement Through HDRI Adoption for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatisierte-rechnungsbearbeitung-fur-energielieferanten-mit-branchenrelevanz-empfehlungen-von-abbyy/"><u>Automatisierte Rechnungsbearbeitung Für Energielieferanten Mit Branchenrelevanz – Empfehlungen Von ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-site-traffic-with-cookiebot-integration-strategies/"><u>Boost Site Traffic with Cookiebot Integration Strategies</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-web-visibility-instantly-using-the-powerful-cookiebot-seo-tech/"><u>Boost Web Visibility Instantly Using the Powerful Cookiebot SEO Tech</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
-<li><a href="https://fox-http.techidaily.com/detailed-slomo-application-review-2024-update/"><u>Detailed SloMo Application Review - 2024 Update</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Poco F5 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transform-your-broadcasts-with-manycam-the-leading-tool-for-live-video-software-and-online-webcams/"><u>Transform Your Broadcasts with ManyCam: The Leading Tool for Live Video Software and Online Webcams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-viewers-to-earners-journey-calculating-necessary-counts/"><u>[New] Viewers to Earner's Journey Calculating Necessary Counts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-w10-ultimate-screen-replay-suite/"><u>[New] W10 Ultimate Screen Replay Suite</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-apple-m1-explained-the-future-in-your-hands/"><u>2024 Approved Apple M1 Explained The Future in Your Hands</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unveiling-the-secrets-of-premiere-pros-full-screen-magic/"><u>2024 Approved Unveiling the Secrets of Premiere Pro's Full Screen Magic</u></a></li>
+<li><a href="https://driver-download.techidaily.com/brother-hl2280dw-driver-downloads-for-windows-111087-install-now/"><u>Brother HL2280DW Driver Downloads for Windows 11/10/8/7 – Install Now!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/1716464804911-download-free-sound-effects-for-youtubers/"><u>Download Free Sound Effects for YouTubers!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-personalization-and-analytics/"><u>Harnessing the Power of Cookiebot for Advanced Site Personalization and Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/how-abbyys-smart-data-extraction-is-reshaping-the-future-of-service-businesses/"><u>How ABBYY's Smart Data Extraction Is Reshaping the Future of Service Businesses</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-fix-dsounddll-not-found-or-missing-errors/"><u>How to Fix Dsound.dll Not Found or Missing Errors</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovatives-tool-von-abbyy-finereader-perfekt-fur-die-universitat-innsbruck-und-mehr/"><u>Innovatives Tool Von ABBYY FineReader - Perfekt Für Die Universität Innsbruck Und Mehr!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/is-aurora-hdr-a-step-forward-in-quality-viewing/"><u>Is Aurora HDR a Step Forward in Quality Viewing?</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/metro-ag-auf-dem-weg-in-die-digitale-ara-eine-reise-durch-innovation-und-technologie/"><u>METRO AG Auf Dem Weg in Die Digitale Ära: Eine Reise Durch Innovation Und Technologie</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/navigating-the-future-of-arb-in-finance-unveiling-strategies-from-abbyy-white-paper-on-digital-transformation/"><u>Navigating the Future of ARB in Finance – Unveiling Strategies From ABBYY White Paper on Digital Transformation</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimize-your-websites-performance-using-advanced-cookiebot-solutions/"><u>Optimize Your Website's Performance Using Advanced Cookiebot Solutions</u></a></li>
 </ul></div>
 

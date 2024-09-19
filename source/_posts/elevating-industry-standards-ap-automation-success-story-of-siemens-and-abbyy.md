@@ -1,7 +1,7 @@
 ---
 title: "Elevating Industry Standards: AP Automation Success Story of Siemens and ABBYY"
-date: 2024-09-13T17:05:03.346Z
-updated: 2024-09-14T21:56:23.285Z
+date: 2024-09-17T23:08:21.220Z
+updated: 2024-09-18T16:28:30.715Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9878ff62b08356ff78ffb4d4ce5fd0c27ab1ffdc4dd530f388b0fa3845feed6f.jpg
@@ -30,16 +30,16 @@ Head of Artificial Intelligence and Digital Service Management, **Siemens**
 ![18 Reggietwigg 198X198](https://static4.abbyy.com/abbyycommedia/25486/18-reggietwigg-198x198.png)
 
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Reggie Twigg
@@ -59,10 +59,10 @@ A modern approach to transforming this shared service puts user experience, citi
 * How COVID has changed the game for digital transformation with remote work, technology burnout, and accelerated digitization
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch now
@@ -72,22 +72,16 @@ A modern approach to transforming this shared service puts user experience, citi
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Thank you, enjoy your webinar!
 
 [![Putting UX Back Into AP Automation EN 750x422](https://static1.abbyy.com/abbyycommedia/32926/putting-ux-back-into-ap-automation.jpg)](https://www.youtube.com/watch?v=IvvggH0iC%5FY) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
@@ -156,21 +150,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-digital-pixels-at-your-command-curve-artfully-for-2024/"><u>[New] Digital Pixels at Your Command Curve Artfully for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-how-to-take-advantage-of-itunes-for-video-capture-for-2024/"><u>[Updated] How to Take Advantage of iTunes for Video Capture for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-excelling-without-vimeo-best-editing-software-rankings/"><u>[Updated] In 2024, Excelling Without Vimeo Best Editing Software Rankings</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-winning-at-freefire-top-strategies-and-hashtags-shared/"><u>[Updated] Winning at FreeFire Top Strategies and Hashtags Shared</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/comprehensive-solutions-to-deal-with-missing-msstfmtdll-files/"><u>Comprehensive Solutions to Deal with Missing msstfmt.dll Files</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Website's User Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-enhanced-personalization-and-engagement/"><u>Cookiebot-Enabled Sites: Enhanced Personalization & Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-optimizing-your-site-with-advanced-analytics/"><u>Cookiebot-Enhanced: Optimizing Your Site with Advanced Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-enhancing-online-personalization/"><u>Driven by Cookiebot: Enhancing Online Personalization</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-with-innovative-cookiebot-technology/"><u>Driven with Innovative Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-online-experience-with-cookiebot-power-solutions-for-superior-user-targeting-and-retention/"><u>Elevate Online Experience with Cookiebot Power Solutions for Superior User Targeting and Retention</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/highlights-from-the-lg-bp350-monitor-user-experience-review/"><u>Highlights From the LG BP350 Monitor User Experience Review</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-flashlight-from-iphone-12-pro-max-lock-screen-drfone-by-drfone-ios/"><u>In 2024, How To Remove Flashlight From iPhone 12 Pro Max Lock Screen | Dr.fone</u></a></li>
-<li><a href="https://os-tips.techidaily.com/itunes-backup-essentials-step-by-step-instructions-for-protecting-your-devices-information/"><u>ITunes Backup Essentials: Step-by-Step Instructions for Protecting Your Device's Information</u></a></li>
-<li><a href="https://win-answers.techidaily.com/origin-software-offline-heres-how-to-fix-it/"><u>Origin Software Offline? Here's How to Fix It!</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-optimize-your-social-presence-with-efficient-fb-covers-for-2024/"><u>[New] Optimize Your Social Presence with Efficient FB Covers for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-share-wisdom-top-strategies-for-video-sharing-on-instagram/"><u>[Updated] Share Wisdom Top Strategies for Video Sharing on Instagram</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-top-6-screen-recorder-no-ads-for-android/"><u>2024 Approved Top 6 Screen Recorder No Ads for Android</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/crafting-your-perfect-minecraft-shelter/"><u>Crafting Your Perfect Minecraft Shelter</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-11-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 11 To Other iPhone 14 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-analyzing-online-video-discussions/"><u>In 2024, Analyzing Online Video Discussions</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-on-apple-iphone-8-plusipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock on Apple iPhone 8 Plus/iPad/iPod</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-tecno-spark-10-pro-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Tecno Spark 10 Pro Devices</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/navigating-the-future-of-arb-in-finance-unveiling-strategies-from-abbyy-white-paper-on-digital-transformation/"><u>Navigating the Future of ARB in Finance – Unveiling Strategies From ABBYY White Paper on Digital Transformation</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimize-your-websites-performance-using-advanced-cookiebot-solutions/"><u>Optimize Your Website's Performance Using Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/revolutionize-your-paperwork-unveiling-the-power-of-abbyy-vantage-version-21/"><u>Revolutionize Your Paperwork: Unveiling the Power of ABBYY Vantage Version 2.1</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/revolutionizing-school-portraits-with-streamlined-automatic-document-upload-technology-for-better-results/"><u>Revolutionizing School Portraits with Streamlined, Automatic Document Upload Technology for Better Results</u></a></li>
 </ul></div>
 

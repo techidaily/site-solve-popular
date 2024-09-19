@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced: Optimizing Your Site with Advanced Analytics"
-date: 2024-09-09T16:30:04.400Z
-updated: 2024-09-14T20:14:32.911Z
+date: 2024-09-13T19:27:56.047Z
+updated: 2024-09-18T19:57:21.672Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bf6ce710c3b83bd0300511eb0a114987cd6a644274eb54a39fdf9870b6c3de78.jpg
@@ -41,19 +41,6 @@ Given the current state of affairs, government organizations on all levels—fed
 
 The approach made the research firm’s list of [Top 10 Government Technology Trends for 2022](https://www.gartner.com/en/newsroom/press-releases/2022-02-21-govt-tech-trends-2022-press-release), on the grounds of its ability to drive progress towards the high-priority goals of retaining top talent and improving the delivery of citizen services. [Principal Research Analyst Apeksha Kaushik recently commented](https://www.gartner.com/en/newsroom/press-releases/2021-12-15-government-predicts-2022), “Governments must move from a siloed approach to a cohesive strategy encompassing employee experience and citizen experiences across multiple platforms, channels, and technologies in the most intuitive user experience.”
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### The role of AI in improving TX
 
 As government organizations explore strategies for achieving their TX goals, many are looking to the private sector for inspiration, and many of those inspiring stories center around the use of artificial intelligence. In businesses across industries, technologies such as machine learning, natural language processing (NLP), and natural language understanding (NLU) are enabling transformative experiences that benefit customers and employees alike. Here are just a few examples of AI-driven technologies that are helping businesses build a better TX.
@@ -61,19 +48,6 @@ As government organizations explore strategies for achieving their TX goals, man
 ### Customer-facing chatbots
 
 Chatbot technology has come a long way in recent years, and customer service teams in industries as diverse as banking, travel, and telecom are reaping the benefits. Chatbots enable customers to self-serve in fulfilling simple requests like resetting passwords or scheduling appointments. Because the bots are available 24/7, users can access services at their own convenience and avoid waiting on hold. On the employee side, agents are freed from rote tasks and can focus their attention on more complex cases that call upon their expertise as well as their people skills.
-
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Intelligent process automation
 
@@ -89,6 +63,19 @@ Intelligent process automation enables employees to benefit from faster, smoothe
 
 When customers contact a business, machine learning and NLP tools can “listen in” to determine the caller’s intent, evaluate their emotional state, and even detect possible fraudulent behavior. For example, [Deloitte’s Behavioral and Emotion Analytics Tool (BEAT)](https://www.deloitte.com/global/en/Industries/financial-services/perspectives/gx-ai-and-risk-management.html), developed for the financial services industry, monitors voice interactions to devise a “risk score” based on word choice, rate of speech, and other factors. The higher the score, the more the agent can be on alert for a potential complaint or possible fraudulent activity.
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Identity proofing and affirmation
 
 For industries at high risk for fraud, such as banking and insurance, offering mobile services such as customer onboarding and claim filing presents the dilemma of how to ensure that users are who they claim to be. With [identity proofing and identity affirmation](https://tools.techidaily.com/abbyy/products/), users provide proof of their identity via identification (ID) cards, photos, and supporting documents, and AI-based tools step in to read, verify, and authenticate the submissions, including facial matching against a real-time “selfie.” Employees are freed from the tedious task of reviewing and verifying customer documents, and customers can enjoy historically in-person-only services with a few taps on their smartphones.
@@ -102,16 +89,10 @@ A secure mobile application can eliminate the need to go to the DMV office and w
 The California DMV has adopted this approach for its services, and the results have been impressive. “We’ve gone from 28 minutes per Real ID transaction to about 10 minutes,” [Ajay Gupta, chief digital transformation officer at the California DMV recently told GCN](https://gcn.com/state-local/2021/01/how-ai-helped-californias-dmv-adapt-to-covid-closures/315928/). “AI-driven pre-screening is one of the reasons why we are able to do that. It also reduced customer visits because there are reduced returning customers due to incomplete documentation.”
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Proving Identity in an Increasingly Remote World
@@ -152,6 +133,13 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them**](https://tools.techidaily.com/abbyy/products/)
@@ -163,16 +151,10 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
@@ -185,6 +167,19 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Document AI Creating a Safer World**](https://tools.techidaily.com/abbyy/products/)
@@ -194,19 +189,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
-
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -301,19 +283,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-gamers-paradise-our-candidate-7-best-fps-titles/"><u>[New] 2024 Approved Gamer's Paradise Our Candidate 7 Best FPS Titles</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-digital-repository-open-source-game-tunes-for-2024/"><u>[New] Digital Repository Open Source Game Tunes for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-improve-your-zoom-meet-by-sharpening-views/"><u>[New] Improve Your Zoom Meet by Sharpening Views</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-site-performance/"><u>Cookiebot-Enhanced Site Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhance-your-site-with-powerful-tracker-technology/"><u>Cookiebot: Enhance Your Site with Powerful Tracker Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhancing-your-website-with-smart-tracking-technology/"><u>Cookiebot: Enhancing Your Website with Smart Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/customized-advertising-with-the-advanced-capabilities-of-cookiebot/"><u>Customized Advertising with the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/die-neuesten-mining-fahigkeiten-von-abbyy-timeline-cu-verbesserte-integration-von-menschlichen-ressourcen-prozessen-und-inhalten/"><u>Die Neuesten Mining-Fähigkeiten Von ABBYY Timeline Cu: Verbesserte Integration Von Menschlichen Ressourcen, Prozessen Und Inhalten</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/dvdpcplus/"><u>DVDレンタルコピーPCの方法＋最新保存版：必用機材・手順詳細+万が一失敗時の対処法！</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Lava Yuva 3 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-infinix-smart-7-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Infinix Smart 7 Data? | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-tailoring-your-youtube-videography-with-powerful-wm-maker-skills/"><u>In 2024, Tailoring Your YouTube Videography with Powerful WM Maker Skills</u></a></li>
-<li><a href="https://windows11.techidaily.com/integrating-image-browsing-into-file-explorer/"><u>Integrating Image Browsing Into File Explorer</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/still-using-pattern-locks-with-nokia-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Nokia? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-unleashing-creativity-with-aiseesofts-screencast-innovations-for-2024/"><u>[New] Unleashing Creativity with Aiseesoft's Screencast Innovations for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-cut-screen-claims-is-splitcam-supreme/"><u>[Updated] 2024 Approved Cut Screen Claims Is SplitCam Supreme?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-scoping-out-spots-where-to-meet-youtube-brand-deals/"><u>2024 Approved Scoping Out Spots Where to Meet YouTube Brand Deals</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-with-advanced-cookiebot-technology/"><u>Enhancing User Experience with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/excellence-recognized-and-best-practices-established/"><u>Excellence Recognized and Best Practices Established!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/from-alpine-adventures-to-digital-signatures-the-abbyy-guide-on-smartwatch-innovations-and-skiing-apps/"><u>From Alpine Adventures to Digital Signatures: The ABBYY Guide on Smartwatch Innovations and Skiing Apps</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-iphone-night-photography-tips-take-night-photos-with-iphone/"><u>In 2024, IPhone Night Photography Tips Take Night Photos with iPhone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-sound-mastery-pro-tips-for-effective-audiovisual-blending-audacity/"><u>In 2024, Sound Mastery Pro Tips for Effective Audiovisual Blending (Audacity)</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovazione-in-cattolica-assicurazioni-con-elaborazione-documentale-intelligente-per-un-miglioramento-dei-servizi/"><u>Innovazione in Cattolica Assicurazioni Con Elaborazione Documentale Intelligente per Un Miglioramento Dei Servizi</u></a></li>
+<li><a href="https://techtrends.techidaily.com/instant-mp4aac-audio-to-video-convert-get-your-m4v-file-without-spending-a-penny/"><u>Instant MP4/AAC Audio-to-Video Convert: Get Your M4V File Without Spending a Penny</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-and-conversion-use-ocr-technology-with-finereader-pdf/"><u>IPhone Document Scanning & Conversion: Use OCR Technology with FineReader PDF</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-smarter-web-presence-and-seo-success/"><u>Leverage Cookiebot Technology for Smarter Web Presence and SEO Success</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resolving-coredll-file-absence-a-step-by-step-guide/"><u>Resolving 'Core.dll' File Absence: A Step-by-Step Guide</u></a></li>
 </ul></div>
 

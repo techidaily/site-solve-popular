@@ -1,7 +1,7 @@
 ---
 title: ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018
-date: 2024-09-12T23:10:15.149Z
-updated: 2024-09-14T20:02:35.312Z
+date: 2024-09-11T18:50:27.210Z
+updated: 2024-09-18T22:39:22.158Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0f61a09c67b9e7dbbff5f451.jpg
@@ -68,20 +68,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-enhance-viewing-experience-by-adjusting-snapchats-frame-rate/"><u>[New] 2024 Approved Enhance Viewing Experience by Adjusting Snapchat's Frame Rate</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-finding-the-middle-ground-working-and-youtube/"><u>[New] 2024 Approved Finding the Middle Ground Working & YouTube</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-steps-to-eliminate-the-obs-blank-screens-in-gaming-setup/"><u>[New] Steps to Eliminate the OBS Blank Screens in Gaming Setup</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-battre-en-regle-les-plateformes-financieres-numeriques-natives-decouvrez-notre-verification-complete-par-abbyy/"><u>Comment Battre en Règle Les Plateformes Financières Numériques Natives : Découvrez Notre Vérification Complète Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-for-seamless-customer-experience-tracking/"><u>Cookiebot-Driven Insights for Seamless Customer Experience Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-leading-ai-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Leading AI Technology</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-nokia-xr21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Nokia XR21? | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-put-an-end-to-recurring-ark-application-crashes/"><u>Troubleshooting Guide: Put an End to Recurring ARK Application Crashes</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-maximizing-video-playback-speed-on-facebook/"><u>2024 Approved Maximizing Video Playback Speed on Facebook</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-unlock-iphone-15-pro-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>3 Ways to Unlock iPhone 15 Pro without Passcode or Face ID | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-invoice-processing-software-boosts-operational-efficiency-in-the-energy-sector/"><u>ABBYY's Invoice Processing Software Boosts Operational Efficiency in the Energy Sector</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-europe-201/"><u>AI Europe 201</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ameliorer-les-resultats-de-la-robotique-de-processus-assistee-par-ordinateur-rpa-analyse-et-techniques-avancees-chez-abbyy/"><u>Améliorer Les Résultats De La Robotique De Processus Assistée Par Ordinateur (RPA) - Analyse Et Techniques Avancées Chez ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/at-leading-annual-summit-abbyy-showcases-advanced-ml-and-ai-technologies-for-future-success/"><u>At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-website-performance-with-cookiebot-integration-the-key-to-successful-seo-strategies/"><u>Boost Website Performance with Cookiebot Integration - The Key to Successful SEO Strategies</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-automation-enhancing-your-digital-marketing-efforts/"><u>Cookiebot-Driven Automation: Enhancing Your Digital Marketing Efforts</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-get-the-newest-lenovo-software-and-hardware-drivers-for-your-windows-10-device/"><u>How to Get the Newest Lenovo Software and Hardware Drivers for Your Windows 10 Device</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-fast-revenues-forecasting-toolkit-for-vids/"><u>In 2024, Fast Revenues Forecasting Toolkit for Vids</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-from-rookie-to-veteran-10-must-have-cinema-cameras/"><u>In 2024, From Rookie to Veteran 10 Must-Have Cinema Cameras</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-realme-12-pro-5g-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Realme 12 Pro 5G and Browser | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-snap-edit-and-share-with-ease-your-4-step-blueprint-for-instagram-gifs/"><u>In 2024, Snap, Edit, and Share with Ease Your 4-Step Blueprint for Instagram GIFs</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-through-the-steps-of-modifying-win-11s-menu/"><u>Navigating Through the Steps of Modifying Win 11'S Menu</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-realme-12plus-5g-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Realme 12+ 5G</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

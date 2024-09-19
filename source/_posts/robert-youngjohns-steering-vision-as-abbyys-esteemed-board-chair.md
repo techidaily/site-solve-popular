@@ -1,7 +1,7 @@
 ---
 title: "Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair"
-date: 2024-09-07T16:42:45.120Z
-updated: 2024-09-14T19:32:55.757Z
+date: 2024-09-14T20:04:09.217Z
+updated: 2024-09-18T21:41:55.870Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/157145562d322ac42b18debf7cc17b6e328143a79a361dfc0ab65e3b0afbaf26.jpg
@@ -40,19 +40,22 @@ Robert holds a Master’s degree with honors in Physics and Philosophy from Oxfo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-finding-those-who-fled-my-insta-friends/"><u>[New] Finding Those Who Fled My Insta Friends</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/2024-approved-how-to-cut-audio-from-video-on-iphonemac/"><u>2024 Approved How to Cut Audio From Video on iPhone/Mac</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-leadership-in-customer-excellence-meet-larysa-lototska/"><u>ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-vivo-y78-5g-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Vivo Y78 5G</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-strategy-shifts-global-economys-influence-explored-in-comprehensive-intelligence-automation-overview/"><u>AI Strategy Shifts: Global Economy's Influence Explored in Comprehensive Intelligence Automation Overview</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversions-using-the-latest-cookiebot-technology-features/"><u>Boost Conversions Using the Latest Cookiebot Technology Features</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-tunefab-vs-competitors-screen-recorder-showdown/"><u>In 2024, Tunefab vs Competitors Screen Recorder Showdown</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-top-budget-friendly-android-video-callers/"><u>[New] 2024 Approved Top Budget-Friendly Android Video Callers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-virtual-reality-filming-tips-and-tricks-for-gamers/"><u>[New] In 2024, Virtual Reality Filming Tips and Tricks for Gamers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-maximizing-impact-with-reddit-essential-tips-revealed/"><u>[Updated] Maximizing Impact with Reddit - Essential Tips Revealed</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-streamline-recorder-quality-test-for-2024/"><u>[Updated] StreamLine Recorder Quality Test for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-solutions-optimized-user-experience-with-advanced-tracking/"><u>Cookiebot-Enabled Solutions: Optimized User Experience with Advanced Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-secret-ingredient-behind-tailored-user-experiences/"><u>Cookiebot: The Secret Ingredient Behind Tailored User Experiences</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-xiaomi-redmi-a2plus-using-video-repair-utility-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix Corrupt video files of Xiaomi Redmi A2+ using Video Repair Utility?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-masterclass-in-creating-the-ideal-home-4k-editing-pc/"><u>In 2024, Masterclass in Creating the Ideal Home 4K Editing PC</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-steps-to-crafting-powerful-end-of-episode-notes/"><u>In 2024, Steps to Crafting Powerful End-of-Episode Notes</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

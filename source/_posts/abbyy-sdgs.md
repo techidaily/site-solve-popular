@@ -1,7 +1,7 @@
 ---
 title: "ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み"
-date: 2024-09-07T17:45:06.470Z
-updated: 2024-09-14T16:32:23.021Z
+date: 2024-09-12T01:32:57.437Z
+updated: 2024-09-18T22:14:12.869Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7d954d5ef5beb31b578dcda4509d16e23f0ef0d1b79a76b01e4834ddb01328ea.jpg
@@ -70,10 +70,10 @@ ABBYYは、社内の包摂的な文化をサポートすることに重点を置
 ![Sustainable Development Goals 気候変動に具体的な対策を](https://static1.abbyy.com/abbyycommedia/34586/13907-icon-13.png) ![Sustainable Development Goals 陸の豊かさも守ろう](https://static1.abbyy.com/abbyycommedia/34587/13907-icon-15.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 私たちはデジタルインテリジェンス企業として、ペーパーレスのビジネスプロセスにつながるデジタルトランスフォーメーション（DX）の推進に取り組んでいます。ABBYYのデジタルテクノロジーは、デジタル（ハードコピーではなく）ドキュメントに焦点を当てることにより、お客様がより環境に優しいものになるように支援します。
@@ -91,10 +91,10 @@ ABBYYは、サステナビリティの重要性を従業員に思い出させる
 [カスタマエクスペリエンス](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -160,17 +160,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-enhance-your-media-experience-by-learning-vlcs-rotation-feature-for-2024/"><u>[New] Enhance Your Media Experience by Learning VLC's Rotation Feature for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-efficiently-add-your-own-look-to-youtube-shorts-via-simple-steps/"><u>[Updated] In 2024, Efficiently Add Your Own Look to YouTube Shorts via Simple Steps</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-how-to-download-and-share-tiktok-videos-on-iphone-no-watermark-present/"><u>2024 Approved How to Download and Share TikTok Videos on iPhone, No Watermark Present</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-vivo-y100-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-photos-from-tecno-spark-go-2024-by-fonelab-android-recover-photos/"><u>Best Android Data Recovery - Retrieve Lost Photos from Tecno Spark Go (2024).</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-unleash-the-power-of-automated-conversions/"><u>Cookiebot-Enhanced: Unleash the Power of Automated Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-unleashing-advanced-tracking-solutions-for-your-websites-success/"><u>Cookiebot: Unleashing Advanced Tracking Solutions for Your Website's Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/data-driven-personalization-through-smart-analytics-solutions/"><u>Data-Driven Personalization Through Smart Analytics Solutions</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/holistic-digital-marketing-leveraging-facebook-linkedin-and-youtube-for-growth/"><u>Holistic Digital Marketing: Leveraging Facebook, LinkedIn and YouTube for Growth</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Tecno Pova 5? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Google Pixel 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/steps-to-manage-video-watcher-restrictions-on-youtube-for-2024/"><u>Steps to Manage Video Watcher Restrictions on Youtube for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-facebook-flashback-finder/"><u>[New] 2024 Approved Facebook Flashback Finder</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unraveling-the-merits-of-stabilized-photo-editing-with-adobe/"><u>[Updated] 2024 Approved Unraveling the Merits of Stabilized Photo Editing with Adobe</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024s-top-free-dvd-player-programs-our-expert-picks-for-you/"><u>2024'S Top Free DVD Player Programs: Our Expert Picks for You</u></a></li>
+<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-poco-x5-pro-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Poco X5 Pro FRP</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-solutions-enhanced-site-traffic-and-conversion/"><u>Cookiebot-Driven Solutions | Enhanced Site Traffic & Conversion</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-websites-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's Analytics & Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-boosting-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Boosting Your Site with Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-backbone-of-personalized-web-interactions/"><u>Cookiebot: The Backbone of Personalized Web Interactions</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-xiaomi-redmi-note-12-4g-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Xiaomi Redmi Note 12 4G</u></a></li>
 </ul></div>
 

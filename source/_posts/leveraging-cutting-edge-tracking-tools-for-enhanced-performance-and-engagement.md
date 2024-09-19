@@ -1,7 +1,7 @@
 ---
 title: Leveraging Cutting-Edge Tracking Tools for Enhanced Performance and Engagement
-date: 2024-09-07T18:42:29.309Z
-updated: 2024-09-14T19:08:39.445Z
+date: 2024-09-12T01:27:10.127Z
+updated: 2024-09-18T22:13:39.389Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8224c2eaffde473b7b29c4172387e354997fe7d2a767ebc186d1a15d8b28408a.jpg
@@ -49,6 +49,13 @@ Technically e-invoices are not a new concept. Alongside technology standards suc
 * Svefaktura in Sweden,
 * and many more have evolved\*, driven mainly by the need for efficient AP processes of private business in high-volume industries.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What are the benefits of e-invoicing?
 
 E-invoicing offers enterprises benefits such as efficiency, data accuracy, visibility, security, and cost reduction.
@@ -56,6 +63,13 @@ E-invoicing offers enterprises benefits such as efficiency, data accuracy, visib
 However, its primary driver is closing the [“VAT Gap”](https://www.allenovery.com/en-gb/global/news-and-insights/publications/closing-the-gap-the-2023-eu-vat-gap-report-and-beyond) and ensuring public sector funding, rather than solely improving AP automation and enterprise efficiency. The [EU Commission's 2023 “VAT Gap report 2023”](https://taxation-customs.ec.europa.eu/news/vat-gap-progress-made-vat-compliance-2021-though-losses-remain-considerable-2023-10-24%5Fen) revealed a €61 billion gap due to fraud, evasion, and miscalculations. Countries like Italy and Poland, mandating e-invoicing, have reduced their VAT gaps significantly.
 
 ![guide-to-e-invoicing-accounts-payable-a-848x44](https://content.abbyy.com/-/jssmedia/Project/Abbyy/Abbyy/Insights/Blog/A%20Guide%20to%20E-invoicing%20in%20Accounts%20Payable/guide-to-e-invoicing-accounts-payable-a-848x44.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The [2022 VAT in the Digital Age (ViDA)](https://www.ey.com/en%5Fgr/tax/tax-alerts/eu-proposals-for-vat-in-the-digital-age-vida) proposal aims to implement cross-border digital reporting using e-invoicing for B2B transactions, while [PEPPOL](https://peppol.org/about/for-end-users/) invoices are becoming mandatory for B2G transactions. Many EU states plan to enforce e-invoicing in B2B transactions within four years, reflecting a growing trend towards regulatory adoption of e-invoicing standards.
 
@@ -76,23 +90,10 @@ At least in theory, the concept promises to solve many efficiency hurdles. But p
 ![guide-to-e-invoicing-accounts-payable-a-848x44](https://content.abbyy.com/-/jssmedia/Project/Abbyy/Abbyy/Insights/Blog/A%20Guide%20to%20E-invoicing%20in%20Accounts%20Payable/guide-to-e-invoicing-accounts-payable-b-848x44.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is e-invoicing the answer to all AP automation dreams?
@@ -135,19 +136,6 @@ Learn more about how ABBYY addresses hybrid accounts payable automation [here](h
 ---
 
 ![Slavena Hristova ABBYY](https://static4.abbyy.com/abbyycommedia/25713/slavenahristova-99x99.png)
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Slavena Hristova
 
@@ -216,20 +204,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-views-with-optimal-youtube-thumbnails-and-ratios/"><u>[New] 2024 Approved Elevate Views with Optimal YouTube Thumbnails & Ratios</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-next-gen-editing-excellence-perfect-for-vimeo-content/"><u>[New] 2024 Approved Next-Gen Editing Excellence Perfect for Vimeo Content</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-leading-editing-pros-in-dev-device-content-for-2024/"><u>[Updated] Leading Editing Pros in Dev Device Content for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-solutions-enhanced-site-traffic-and-conversion/"><u>Cookiebot-Driven Solutions | Enhanced Site Traffic & Conversion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-websites-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's Analytics & Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-boosting-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Boosting Your Site with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-the-backbone-of-personalized-web-interactions/"><u>Cookiebot: The Backbone of Personalized Web Interactions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-the-efficient-and-smart-powering-behind-your-web-analytics/"><u>Cookiebot: The Efficient and Smart Powering Behind Your Web Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cut-invoice-processing-time-in-half-using-norco-technology/"><u>Cut Invoice Processing Time in Half Using Norco Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/detailed-privacy-and-protection-overview-your-guide-to-enhanced-security-measures/"><u>Detailed Privacy and Protection Overview: Your Guide to Enhanced Security Measures</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-top-6-nft-makers-for-artists-to-unleash-imagination/"><u>In 2024, Top 6 NFT Makers for Artists to Unleash Imagination</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/nintendo-switch-tips-easy-methods-for-snapping-and-posting-screen-caps/"><u>Nintendo Switch Tips: Easy Methods for Snapping & Posting Screen Caps</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/simplified-strategies-for-engaging-with-facebook-insights/"><u>Simplified Strategies for Engaging with Facebook Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-television-sets-a-buyers-guide/"><u>Top-Rated Television Sets : A Buyer's Guide</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unlocking-potential-8-strategic-ways-to-leverage-ai-for-teaching/"><u>Unlocking Potential: 8 Strategic Ways to Leverage AI for Teaching</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-top-rated-5-web-videography-editing-suites/"><u>[New] Top-Rated 5 Web Videography Editing Suites</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-speaking-words-into-sound-your-pathway-to-excellence/"><u>[Updated] Speaking Words Into Sound Your Pathway to Excellence</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-nokia-c12-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-collaborative-venture-with-apponfly-elevating-document-processing-solutions/"><u>ABBYY Unveils New Collaborative Venture with AppOnFly: Elevating Document Processing Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automate-your-leads-with-cookiebot-enabled-solutions/"><u>Automate Your Leads with Cookiebot-Enabled Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automated-customer-engagement-with-cookiebot-technology/"><u>Automated Customer Engagement with Cookiebot Technology</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/resolving-netflix-stutter-after-upgraded-windows/"><u>Resolving Netflix Stutter After Upgraded Windows</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-10-online-stores-for-personalized-box-designs/"><u>Top 10 Online Stores for Personalized Box Designs</u></a></li>
 </ul></div>
 

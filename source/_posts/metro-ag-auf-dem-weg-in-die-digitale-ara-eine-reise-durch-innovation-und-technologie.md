@@ -1,7 +1,7 @@
 ---
 title: "METRO AG Auf Dem Weg in Die Digitale Ära: Eine Reise Durch Innovation Und Technologie"
-date: 2024-09-08T22:29:04.163Z
-updated: 2024-09-14T20:23:51.426Z
+date: 2024-09-13T16:31:19.796Z
+updated: 2024-09-18T16:19:55.598Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b274fcba0e007ea79b7a5404662f5559df1dd58ab76cf5b14bd4d500d1b0b1b0.jpg
@@ -29,22 +29,16 @@ Head of Enterprise Sales DACH, **ABBYY**
 
 ![Stefan Roedder 110X110](https://static4.abbyy.com/abbyycommedia/37144/stefan-roedder-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Stefan Rödder
 
 Product Owner, **METRO Digital**
-
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Mit intelligenter Dokumentenverarbeitung zum Erfolg
 
@@ -61,14 +55,14 @@ Unsere Themen:
 * Welche Geschäftsergebnisse hat die METRO AG dank der IDP-Lösung erreicht?
 * Welche Vorteile hat die ABBYY-Lösung für die METRO AG?
 
-### Jetzt anschauen
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+### Jetzt anschauen
 
 ### Get in touch with us
 
@@ -80,16 +74,10 @@ All personal information collected via this method is under full scope of all pr
 [![Cvr Metro 643](https://static2.abbyy.com/abbyycommedia/37135/cvr-metro-643.jpg)](https://www.youtube.com/watch?v=f03DIELmxcQ) 
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
@@ -159,17 +147,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-unleash-the-power-of-subtitling-an-online-tool-compendium/"><u>[New] 2024 Approved Unleash the Power of Subtitling An Online Tool Compendium</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-cross-platform-movie-recording-pc-mac-and-mobile/"><u>[New] Cross-Platform Movie Recording PC, Mac & Mobile</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagrams-backstage-pass-top-covert-strategies-revealed/"><u>[Updated] In 2024, Instagram’s Backstage Pass Top Covert Strategies Revealed</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-iphoneipad-masterclass-crafting-engaging-interview-and-exploration-podcasts-for-2024/"><u>[Updated] IPhone/iPad Masterclass Crafting Engaging Interview and Exploration Podcasts for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-digital-archivists-toolkit-downloading-videos-from-messenger-for-2024/"><u>[Updated] The Digital Archivist's Toolkit Downloading Videos From Messenger for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-minimalists-mythical-quest-for-ufo-clarity-by-aminy/"><u>A Minimalist's Mythical Quest for UFO Clarity by Aminy</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-site-traffic-with-cookiebot-integration-strategies/"><u>Boost Site Traffic with Cookiebot Integration Strategies</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-web-visibility-instantly-using-the-powerful-cookiebot-seo-tech/"><u>Boost Web Visibility Instantly Using the Powerful Cookiebot SEO Tech</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/enhanced-user-experience-through-smart-analytics-featuring-cookiebot-technology/"><u>Enhanced User Experience Through Smart Analytics - Featuring Cookiebot Technology</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-10-secrets-to-simplifying-your-sms-spaces/"><u>Unlock 10 Secrets to Simplifying Your SMS Spaces</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-iphone-android-which-has-the-better-youtube-experience/"><u>[New] In 2024, IPhone, Android Which Has the Better YouTube Experience?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-streamline-your-tiktok-creation-process-with-zoom/"><u>[New] Streamline Your TikTok Creation Process with Zoom</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-concept-to-creation-youtube-trailer-production-via-filmora/"><u>[Updated] From Concept to Creation YouTube Trailer Production via Filmora</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-from-silence-to-symphony-transforming-facebook-videos-with-melodies-for-2024/"><u>[Updated] From Silence to Symphony Transforming Facebook Videos with Melodies for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312901263-abbyy-finereader-14/"><u>ABBYY FineReader 14 - 職場向けの文書ワークフローを一新する先進技術</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-asteriaflexicapture-cloud/"><u>ABBYYブログで紹介! ASTERIAとFlexiCapture Cloudに対応した高度な画面分析テンプレート - 最新技術の解説</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312889342-cookiebot-enabled-optimize-your-site-with-advanced-analytics/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Analytics!</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722970441493-get-the-newest-amd-radeon-hd-graphics-driver-for-your-windows-7-system-here/"><u>Get the Newest AMD Radeon HD Graphics Driver for Your Windows 7 System Here!</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-honor-x9b-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/manuale-passo-passo-mastering-windows-media-center-guida-utile-per-gli-uffici-domestici/"><u>Manuale Passo-Passo: Mastering Windows Media Center | Guida Utile per Gli Uffici Domestici</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/powerful-persuasion-client-filmed-support/"><u>Powerful Persuasion: Client-Filmed Support</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-web-analytics-and-performance/"><u>Utilizing Cookiebot Technology for Optimized Web Analytics & Performance</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/vereinheitlichte-buchhalterlosungen-mit-iguana-und-abbyy-fur-verbesserte-kreditorenverwaltung-and-geschaftsprozesse/"><u>Vereinheitlichte Buchhalterlösungen Mit IGuana Und ABBYY Für Verbesserte Kreditorenverwaltung & Geschäftsprozesse</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/windows-11-and-10-optimal-hevc-h265-encoder-for-quality-4k-video-conversion/"><u>Windows 11 & 10 Optimal HEVC H.265 Encoder for Quality 4K Video Conversion</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Boost Ihre Firmenproduktivität Mit Der Digitalisierung - Vernichtet Den Papier-Aktenkeller!
-date: 2024-09-08T18:01:10.252Z
-updated: 2024-09-14T20:40:16.952Z
+date: 2024-09-14T02:50:21.898Z
+updated: 2024-09-18T23:13:13.418Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3e3d11024602b266406d40d71c2e14542454419c94adae0ee9c1f0200c006c8b.jpg
@@ -36,16 +36,10 @@ Mining, Oil & Gas
 Das Papieraufkommen in den Archivabteilungen des Unternehmens an den Standorten Houston und Calgary nahm überhand. „Die Akten in unseren Archiven stapelten sich bis an die Decke. In Anbetracht der Quadratmeterpreise für diese Lager bestand akuter Bedarf, von Papier auf elektronische Daten umzustellen“, sagt Jim Fields, Datenqualitäts - manager in Apaches Firmenarchiv in Houston, Texas. „Außerdem mussten wir unsere Daten besser sichern, durch elektronische Sicherungskopien.” Im Calgary-Büro von Apache wurde bereits seit 2005 elektronisch archiviert. Dies betraf Hunderte von Dokumententypen, von umfangreichen Betriebsakten bis hin zu technischen Zeichnungen. Die Akten waren eine Mischung aus gescannten Dateien sowie Dokumenten, die die Absender-Unternehmen bereits mittels OCR-Technologie digitalisiert hatten. Die elektronische Aktenablage war das eine Thema. Das andere war die Herausforderung, in diesen Akten Daten suchen und finden zu können. Einfache OCR-Desktop-Produkte kamen gelegentlich im Houston Office zum Einsatz. Nun ging es um das Aufsetzen eines in sich geschlossenen und abgestimmten Systems, um die Archivierung routinemäßig und effizient abzuwickeln. Die Anschaffung eines Servers war der erste Schritt in diese Richtung.
 
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Lösung
@@ -60,6 +54,13 @@ Der Einsatz von Recognition Server bei Apache macht einen kompletten Archivraum 
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -67,13 +68,6 @@ Der Einsatz von Recognition Server bei Apache macht einen kompletten Archivraum 
 [Kontakt ›](https://tools.techidaily.com/abbyy/products/)
 
 Teilen 
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
@@ -96,12 +90,14 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-investigating-the-power-of-4-second-youtube-subscriptions/"><u>[Updated] 2024 Approved Investigating the Power of 4-Second YouTube Subscriptions</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-how-to-make-picture-in-picture-video-on-macos-sierra/"><u>[Updated] How to Make Picture in Picture Video on macOS Sierra</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automated-marketing-mastery-with-cookiebot-technology/"><u>Automated Marketing Mastery with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-your-site-with-cookiebots-powerful-analytics/"><u>Boost Your Site with Cookiebot's Powerful Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-your-traffic-with-cookiebots-powerful-tracking-technology/"><u>Boost Your Traffic with Cookiebot's Powerful Tracking Technology</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/free-dvd-player-for-windows-10-our-top-10-picks-for-2024/"><u>Free DVD Player for Windows 10 Our Top 10 Picks for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-z-fold-5-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy Z Fold 5 to Outlook | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-budget-friendly-strategies-to-infuse-text-and-video/"><u>[New] 2024 Approved Budget-Friendly Strategies to Infuse Text & Video</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-tiny-snippets-deciphered-important-facts/"><u>[Updated] Tiny Snippets Deciphered Important Facts</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-elevates-mariko-maeda-to-leadership-role-president-and-representative-director-for-strengthening-the-japanese-market-presence/"><u>ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-insights-sync-your-wireless-headset-with-ease-and-keep-passwords-protected/"><u>ABBYY Insights: Sync Your Wireless Headset with Ease and Keep Passwords Protected</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-ocr-software-development-kit-advanced-automatic-document-scanning-and-interpretation/"><u>Abbyy OCR Software Development Kit: Advanced Automatic Document Scanning & Interpretation</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-web-application-for-scanning-and-organizing-business-cards-in-the-cloud/"><u>ABBYY Unveils New Web Application for Scanning and Organizing Business Cards in the Cloud</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/deletion-disasters-no-more-a-thorough-assessment-of-recuvas-data-recovery-success/"><u>Deletion Disasters No More: A Thorough Assessment of Recuva's Data Recovery Success</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/hue-harmony-simplified-steps-for-professional-color-adjustment-for-2024/"><u>Hue Harmony Simplified Steps for Professional Color Adjustment for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-elevate-your-igtv-presence-secrets-to-skyrocketing-subscribers/"><u>In 2024, Elevate Your IGTV Presence Secrets to Skyrocketing Subscribers</u></a></li>
 </ul></div>
 

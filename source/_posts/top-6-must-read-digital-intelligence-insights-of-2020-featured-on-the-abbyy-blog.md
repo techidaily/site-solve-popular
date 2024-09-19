@@ -1,7 +1,7 @@
 ---
 title: Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog
-date: 2024-09-11T16:23:54.869Z
-updated: 2024-09-14T20:20:34.471Z
+date: 2024-09-16T17:08:58.411Z
+updated: 2024-09-18T16:48:19.654Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a9de22e1aa59a5e7f9127b24.jpg
@@ -39,6 +39,13 @@ With social distancing measures in place and businesses across diverse industrie
 
 [Read the article.](https://www.cmswire.com/digital-experience/social-distancing-has-raised-the-bar-for-the-digital-experience/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Data Insight Plays a Key Role in How ABBYY Supplies Vital Pieces of the RPA Puzzle
 
 Digital Intelligence tools are becoming more essential for enterprise companies as interest in automation continues to grow. One of the hottest fields in the space has been Robotic Process Automation (RPA), which involves the use of software robots to automate repetitive, mundane tasks. Robert Youngjohns, Chairman of the Board at ABBYY, spoke with Dave Vellante, Chief Analyst at market research firm Wikibon and co-host of SiliconANGLE Media’s video studio theCUBE.
@@ -50,13 +57,6 @@ They discussed how ABBYY’s platform identifies process flows, the importance o
 ### 4\. The Need for Digital Intelligence in the Time of Social Distancing
 
 ![social distancing](https://static1.abbyy.com/abbyycommedia/31669/blog-1262271993-848x444.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 COVID-19 is the defining event of 2020, and with it, ”social distancing” entered our vocabulary for modern commerce, recasting interpersonal and business interactions. Now as part of our social consciousness, social distancing is fueling a growing reliance on virtualization and technologically mediated relationships. While the urgency of social distancing is already putting our technology and process readiness to the test, it raises an important question about how people, process, and content interact in this new normal. Social distancing has made the customer experience an imperative, driving digital transformation by replacing human-to-human with app-defined interactions.
 
@@ -71,10 +71,10 @@ The pandemic shifted many IT resources toward business continuity efforts, and m
 [Read the article.](https://www.cmswire.com/leadership/6-steps-to-revive-your-digital-transformation-projects/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Five Crucial Insurance Questions for the Post-COVID 'New Normal'
@@ -90,10 +90,10 @@ We shared five questions to help leaders at insurance companies evaluate if ther
 [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -159,18 +159,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-toolwiz-scrutiny-expert-analysis-on-mobile-photo-tools/"><u>[New] Toolwiz Scrutiny Expert Analysis on Mobile Photo Tools</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-mobile-cinematography-gear-for-adventurers/"><u>2024 Approved Mobile Cinematography Gear for Adventurers</u></a></li>
-<li><a href="https://video-capture.techidaily.com/best-free-anime-streaming-sites-similar-to-9anime-explore-our-list-of-the-top-20-websites/"><u>Best Free Anime Streaming Sites Similar to 9Anime: Explore Our List of the Top 20 Websites</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-blaze-curve-5g-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Blaze Curve 5G</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-tomorrows-job-landscape-with-rpa-insights-from-abbyys-timeline-infobook/"><u>Exploring Tomorrow's Job Landscape with RPA: Insights From ABBYY's Timeline Infobook</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-realme-narzo-60x-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Realme Narzo 60x 5G | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-infinix-note-30-vip-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Infinix Note 30 VIP to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-use-life360-on-windows-pc-for-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Oppo Reno 8T 5G? | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-ai-driven-document-handling-for-modern-banking-systems/"><u>Innovative AI-Driven Document Handling for Modern Banking Systems</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-the-efficiency-of-cookiebot-technology-for-seamless-web-tracking/"><u>Leveraging the Efficiency of Cookiebot Technology for Seamless Web Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/online-marketplace-exceeds-growth-targets-and-boosts-operational-productivity-with-cutting-edge-invoice-management-technology/"><u>Online Marketplace Exceeds Growth Targets and Boosts Operational Productivity with Cutting-Edge Invoice Management Technology</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/photo-wordsmithing-ios-and-androids-leading-caption-tools-for-2024/"><u>Photo Wordsmithing IOS and Android's Leading Caption Tools for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/universal-unlock-pattern-for-nokia-c300-by-drfone-android/"><u>Universal Unlock Pattern for Nokia C300</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rom-zero-to-hero-youtube-tech-required-for-2024/"><u>[New] From Zero to Hero YouTube Tech Required for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-how-to-create-engaging-screencasts-a-practical-guide-for-2024/"><u>[New] How to Create Engaging Screencasts A Practical Guide for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-strategies-for-perfecting-igtv-video-titles/"><u>[New] Strategies for Perfecting IGTV Video Titles</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-from-recording-to-broadcasting-the-steam-gamers-path-for-2024/"><u>[Updated] From Recording to Broadcasting The Steam Gamers' Path for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-8-online-locations-for-3d-text-psd-downloads/"><u>Best 8 Online Locations for 3D Text PSD Downloads</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-smarter-web-presence-and-seo-success/"><u>Leverage Cookiebot Technology for Smarter Web Presence and SEO Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-tracking-discover-the-power-of-cookiebot-technology/"><u>Optimized with Automated Tracking: Discover the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-next-level-analytics-and-conversion-boost/"><u>Optimized With Cookiebot: Next-Level Analytics & Conversion Boost</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/transforming-youtube-content-using-the-power-of-imovie-for-2024/"><u>Transforming YouTube Content Using the Power of iMovie for 2024</u></a></li>
 </ul></div>
 

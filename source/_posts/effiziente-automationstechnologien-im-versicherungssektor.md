@@ -1,7 +1,7 @@
 ---
 title: Effiziente Automa­tionstechnologien Im Versicherungssektor
-date: 2024-09-09T20:26:29.230Z
-updated: 2024-09-14T20:39:09.526Z
+date: 2024-09-15T18:14:51.240Z
+updated: 2024-09-19T01:05:53.179Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0e76410444c7c01d9e8ad4e31c08df5ce8b625bff84337aa8bb982a08609d9e6.jpg
@@ -29,6 +29,13 @@ Leiter Marketing & Vertrieb, **AGILA Haustierversicherung**
 
 ![46 Christianmichel 198X198](https://static5.abbyy.com/abbyycommedia/29481/46-christianmichel-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Christian Michel
 
 Gründer und CEO, **insinno**
@@ -36,13 +43,6 @@ Gründer und CEO, **insinno**
 ![Falkhoessler 198X198](https://static3.abbyy.com/abbyycommedia/29492/insinno-logo-forspeakers.png) 
 
 ![Falkhoessler 198X198](https://static1.abbyy.com/abbyycommedia/35556/falkhoessler-198x198.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Falk Hößler
 
@@ -52,34 +52,27 @@ Project Manager, **insinno**
 
 ![02 Alexandrejanicki 198X198](https://static2.abbyy.com/abbyycommedia/25101/02-alexandrejanicki-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Alexandre Janicki
 
 Senior Enterprise Sales Manager, **ABBYY**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Übersicht
 
 In diesem praxisorientierten Webinar mit Marco Brandt, Leiter Marketing & Vertrieb bei der AGILA Haustierversicherung sowie Christian Michel und Falk Hößler von insinno, präsentieren wir Ihnen, wie der Einsatz von Robotern, künstlicher Intelligenz, Low Code und Cloud-Lösungen die internen Prozesse des etablierten Versicherungsunternehmens revolutioniert hat. Innerhalb von drei Monaten konnte 25% Dunkelverarbeitung von Rechnungen und Faxen erreicht werden!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Folgende Themen erwarten Sie:
 
@@ -90,6 +83,13 @@ In diesem praxisorientierten Webinar mit Marco Brandt, Leiter Marketing & Vertri
 Weitere Informationen zu dieser Lösung erhalten Sie auch im Whitepaper ["Dunkelverarbeitung für Versicherungen – Robotics effektiv umsetzen" von insinno](http://eepurl.com/hfmis5 "Zum insinno-Whitepaper").
 
 ### Webinar-Aufzeichnung hier anfordern
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Get in touch with us
 
@@ -103,16 +103,10 @@ All personal information collected via this method is under full scope of all pr
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie weiterführende Fragen oder möchten Sie mit uns über ein konkretes Projekt sprechen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -180,18 +174,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-seamless-classic-play-on-ios-with-select-ps2-emulators/"><u>[New] Seamless Classic Play on iOS with Select PS2 Emulators</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-top-10-engaging-screen-free-mobile-games-for-android-users-for-2024/"><u>[New] Top 10 Engaging Screen-Free Mobile Games for Android Users for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/1716068664759-updated-in-2024-premier-12-video-capture-goes-on-forever/"><u>[Updated] In 2024, Premier 12 Video Capture - Goes On Forever!</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-unveiling-the-methodology-for-quality-ps3-game-screenings/"><u>[Updated] Unveiling the Methodology for Quality PS3 Game Screenings</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-dominates-2022-spark-matrix-rankings-by-quadrant-knowledge-solutions-for-advanced-document-analysis/"><u>ABBYY Dominates 2022 SPARK Matrix Rankings by Quadrant Knowledge Solutions for Advanced Document Analysis</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-leadership-in-customer-excellence-meet-larysa-lototska/"><u>ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyyocr/"><u>ABBYY組み込みOCR採用：東芝テックの新シリーズ印刷機</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-asteriaflexicapture-cloud/"><u>ABBYYブログで紹介! ASTERIAとFlexiCapture Cloudに対応した高度な画面分析テンプレート - 最新技術の解説</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/experience-next-level-pc-customization-with-hytes-latest-offerings-superior-cooler-technology-rgb-illumination-and-motherboard-header-integration/"><u>Experience Next-Level PC Customization with Hyte's Latest Offerings: Superior Cooler Technology, RGB Illumination, and Motherboard Header Integration</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixing-the-frame-rate-top-2024-solutions-to-stop-minecraft-lagging-on-your-computer/"><u>Fixing the Frame Rate: Top 2024 Solutions to Stop Minecraft Lagging on Your Computer</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/free-online-webinar-conduct-with-youtube/"><u>Free Online Webinar Conduct with YouTube</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-oppo-f23-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Oppo F23 5G Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-voyage-to-greatness-youtubes-best-travel-vids/"><u>In 2024, Voyage to Greatness YouTube's Best Travel Vids</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-5-superior-recording-gear-options-for-ipad-and-mac-owners/"><u>[New] 5 Superior Recording Gear Options for iPad & Mac Owners</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-exclusive-roundup-30-leading-free-vectr-and-illustration-sites-online/"><u>[Updated] Exclusive Roundup 30 Leading Free Vectr and Illustration Sites Online</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-expert-strategies-for-choosing-valheim-crops/"><u>[Updated] In 2024, Expert Strategies for Choosing Valheim Crops</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-realme-narzo-60-pro-5g-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-recover-apple-iphone-13-pro-max-data-from-ios-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover Apple iPhone 13 Pro Max Data From iOS iCloud? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-best-samsung-galaxy-s23-ultra-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Samsung Galaxy S23 Ultra Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-xiaomi-14-pro-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Xiaomi 14 Pro Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/professional-video-converter-factory-pro-best-mp4-encoder-for-high-quality-video-format-changeover/"><u>Professional Video Converter Factory Pro: Best MP4 Encoder For High-Quality Video Format Changeover</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/senior-recruitment-expert-paula-dam-at-abbyy-leading-the-way-in-talent-acquisition-strategies/"><u>Senior Recruitment Expert Paula Dam at ABBYY: Leading the Way in Talent Acquisition Strategies</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/skyrocketing-popularity-on-igtv-with-powerful-targeted-hash-tags/"><u>Skyrocketing Popularity on IGTV with Powerful, Targeted Hash Tags</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/the-role-of-artificial-intelligence-and-ml-in-streamlining-kyc-processes-for-financial-services/"><u>The Role of Artificial Intelligence & ML in Streamlining KYC Processes for Financial Services.</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/top-strategies-fur-fandr-verantwortliche-erkenntnisse-aus-dem-abbyy-gipfel-der-fuhrenden-deutschen-cfos-201/"><u>Top Strategies Für F&R-Verantwortliche: Erkenntnisse Aus Dem ABBYY Gipfel Der Führenden Deutschen CFOs 201</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/understanding-the-complexities-in-organizational-process-management-lessons-from-the-abbyy-blog/"><u>Understanding The Complexities in Organizational Process Management – Lessons From the ABBYY Blog</u></a></li>
 </ul></div>
 

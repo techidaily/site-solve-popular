@@ -1,7 +1,7 @@
 ---
 title: Leveraging the Efficiency of Cookiebot Technology for Seamless Web Tracking
-date: 2024-09-09T17:00:38.049Z
-updated: 2024-09-14T17:17:38.749Z
+date: 2024-09-15T16:36:05.321Z
+updated: 2024-09-19T01:21:35.065Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8edbdeedec707f11bb72a9ed7f55e988ffc8071bad7a0eaa9fbee4357c112fe7.jpg
@@ -96,6 +96,13 @@ One other thing that sticks in my mind and that I have practiced with my team si
 
 [Here](https://youtu.be/jAUcbFM0nXE) you can watch the full presentation.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Testing Web Accessibility by Adrián Bolonio**
 
 Adrián spoke about web accessibility. At ABBYY Hungary we are working on a web application for ABBYY [Timeline](https://tools.techidaily.com/abbyy/products/)—a cloud-based process intelligence platform that helps companies improve their processes. The target audience does not include every day users rather, per se, superusers such as business analysts. We don't have to think about web accessibility (which is usually referred to as a11y), the target audience just does not require this, right? WRONG. And Adrián explains very well why my statement is so wrong.
@@ -108,6 +115,13 @@ This talk was influential—I could even say eye-opening!—to many of us attend
 
 \*_All presentations in the program were insightful, and we enjoyed each one of them. The upper excerpts reflect our team's best memories about the conference._
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Conclusion**
 
 For me, personally, this was the first JSConf I was able to attend here in Budapest. I felt the focus was more on the less technical aspects of web development rather than straight technical JavaScript, which was an advantage. This way topics like web accessibility and psychology could gain some love and attention. Huge thanks to the JSConf Budapest team for organizing the conference.
@@ -116,25 +130,11 @@ For me, personally, this was the first JSConf I was able to attend here in Budap
 
 ![](https://static4.abbyy.com/abbyycommedia/36306/attila-kling-88x88.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Attila Kling
 
 Software Development Group Team Lead
 
 Attila leads a software development group of ABBYY Timeline. His day-to-day job includes managing web development projects, and he has a keen interest in web-security, user-management, authentication, and authorization.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -199,21 +199,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-how-to-optimize-facebook-seo-with-10-surefire-ways/"><u>[New] How to Optimize Facebook SEO with 10 Surefire Ways</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-innovating-with-obs-studio-on-android-systems/"><u>[Updated] 2024 Approved Innovating with OBS Studio on Android Systems</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/sap-intelligent-rpa-abbyy-abbyy/"><u>高度な文書処理技術と組み合わせた、SAP Intelligent RPA にABBYYを統合する方法 | ABBYYの技術解説</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/comprehensive-guide-to-fixing-an-unresponsive-windows-built-in-webcam/"><u>Comprehensive Guide to Fixing an Unresponsive Windows Built-In Webcam</u></a></li>
-<li><a href="https://win-dash.techidaily.com/ensure-full-compatibility-essential-oculus-drivers-for-multiple-windows-os-windows-11-through-7/"><u>Ensure Full Compatibility: Essential Oculus Drivers for Multiple Windows OS (Windows 11 Through 7)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-amazon-halo-a-cutting-edge-fitness-monitor-with-a-daring-twist/"><u>Exploring the Amazon Halo: A Cutting-Edge Fitness Monitor with a Daring Twist</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/1723262393780-how-a-revolutionary-pc-uses-centrifugal-force-for-efficient-air-cooldowns-no-massive-fans-needed/"><u>How a Revolutionary PC Uses Centrifugal Force for Efficient Air Cooldowns, No Massive Fans Needed!</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/how-to-make-every-instagram-story-count-your-complete-guide-for-2024/"><u>How to Make Every Instagram Story Count – Your Complete Guide for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-oppo-a1-5g-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Oppo A1 5G Data? | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-seamless-mobile-onboarding-with-strategies-from-the-abbyy-handbook/"><u>Mastering Seamless Mobile Onboarding with Strategies From the ABBYY Handbook</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-crafting-an-effective-online-page-for-search-engines/"><u>Mastering the Art of Crafting an Effective Online Page for Search Engines</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-universal-copy-paste-seamless-sharing-across-devices-and-enhancing-your-fitness-routine-with-indoor-cycling-insights-from-the-abbyy-expertise/"><u>Mastering Universal Copy-Paste: Seamless Sharing Across Devices & Enhancing Your Fitness Routine with Indoor Cycling - Insights From the ABBYY Expertise</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mpegmpeg-2mpeg-4mpgyoutube/"><u>MPEG/MPEG-2/MPEG-4/MPGへのYouTubeビデオ変換手順解説</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/promising-future-with-us-policy-changes-expert-analysis-on-abbyys-platform/"><u>Promising Future with US Policy Changes | Expert Analysis on ABBYY's Platform</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/strategies-doptimisation-de-la-chaine-logistique-comment-les-donnees-facilitent-le-reinventer-grace-a-abbyy/"><u>Stratégies D'Optimisation De La Chaîne Logistique: Comment Les Données Facilitent Le Réinventer Grâce À ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/strengthen-business-continuity-with-effective-process-enhancement/"><u>Strengthen Business Continuity with Effective Process Enhancement</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-canvas-hidden-gems-for-crafting-visual-magic/"><u>[New] In 2024, Canva's Hidden Gems for Crafting Visual Magic</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-individualist-to-institutional-influence-in-the-youtube-universe/"><u>[Updated] From Individualist to Institutional Influence in the YouTube Universe</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-the-essentials-of-sims-4-gameplay-recording-for-2024/"><u>[Updated] The Essentials of Sims 4 Gameplay Recording for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-with-innovative-cookiebot-technology/"><u>Driven with Innovative Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-online-experience-with-cookiebot-power-solutions-for-superior-user-targeting-and-retention/"><u>Elevate Online Experience with Cookiebot Power Solutions for Superior User Targeting and Retention</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/embracing-innovative-mobility-learn-with-us-on-the-abbyy-blog/"><u>Embracing Innovative Mobility - Learn with Us on the ABBYY Blog</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-oppo-f25-pro-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Oppo F25 Pro 5G?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-samsung-galaxy-a15-5g-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Samsung Galaxy A15 5G Lock Screen Password?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-itel-p40-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Itel P40 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-fix-for-when-your-samsung-galaxy-cant-find-a-network-expert-advice-inside/"><u>Step-by-Step Fix for When Your Samsung Galaxy Can't Find a Network: Expert Advice Inside!</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/top-solutions-for-eliminating-latency-problems-in-forza-horizon-5-gameplay/"><u>Top Solutions for Eliminating Latency Problems in Forza Horizon 5 Gameplay</u></a></li>
 </ul></div>
 

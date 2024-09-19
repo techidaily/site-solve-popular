@@ -1,7 +1,7 @@
 ---
 title: Innovazione in Cattolica Assicurazioni Con Elaborazione Documentale Intelligente per Un Miglioramento Dei Servizi
-date: 2024-09-09T21:14:00.009Z
-updated: 2024-09-14T21:20:58.752Z
+date: 2024-09-16T16:40:46.258Z
+updated: 2024-09-19T02:03:24.235Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9cbb22dcf88bcb4ceb0ab602c498731d7fd924c3e7f5e5667c887c44d8fe1da7.jpg
@@ -27,16 +27,16 @@ Head of Automation, **Cattolica Assicurazioni**
 
 ![Alessandro Petriola](https://static5.abbyy.com/abbyycommedia/35573/alessandropetriola-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Alessandro Petriola
 
 Rüobotic Process Automation Senior Consultant, **Sprint Reply**
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Panoramica
 
@@ -52,10 +52,10 @@ Questa soluzione è applicabile in tutte le industry, ed è rivolta principalmen
 **Registrati** e **scopri** come Cattolica Assicurazioni abbia automatizzato i propri processi cartacei grazie all’aiuto di Sprint Reply.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Guarda ora!
@@ -65,22 +65,16 @@ Questa soluzione è applicabile in tutte le industry, ed è rivolta principalmen
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Grazie, buona visione!
 
 [![Come Cattolica Assicurazioni](https://static1.abbyy.com/abbyycommedia/34330/come-cattolica-assicurazioni.jpg)](https://www.youtube.com/watch?v=SUlJCCJcGHg) 
-
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
@@ -149,21 +143,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-ideal-tools-for-secure-vimeo-downloads-for-2024/"><u>[New] Ideal Tools for Secure Vimeo Downloads for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-capture-every-detail-on-mac-free/"><u>[New] In 2024, Capture Every Detail on Mac - Free</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-creating-stunning-3d-text-with-ps/"><u>[Updated] 2024 Approved Creating Stunning 3D Text with PS</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-facebooks-viral-content-wave-leading-videos-of-2023/"><u>[Updated] 2024 Approved Facebook's Viral Content Wave - Leading Videos of 2023</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-is-it-allowable-to-distribute-videos-via-social-networks/"><u>[Updated] 2024 Approved Is It Allowable to Distribute Videos via Social Networks?</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-gabrielle-lukianchuk-as-new-cmo-driving-company-expansion/"><u>ABBYY Welcomes Gabrielle Lukianchuk as New CMO, Driving Company Expansion</u></a></li>
-<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-oppo-a79-5g-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Oppo A79 5G</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-productivity-key-strategies-for-your-center-of-excellence-with-abbyy-plus-blue-prism-live-session/"><u>Boosting Productivity - Key Strategies for Your Center of Excellence with ABBYY + Blue Prism Live Session</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-twins-and-process-simulation-exploring-business-opportunity-expansion/"><u>Digital Twins and Process Simulation - Exploring Business Opportunity Expansion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/emotional-intelligence/"><u>Emotional Intelligence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-data-capture-efficiency-transitioning-to-the-advanced-abbyy-flexicapture-cloud-solution/"><u>Enhance Your Data Capture Efficiency: Transitioning to the Advanced ABBYY FlexiCapture Cloud Solution</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-to-triumph-in-mobile-user-onboarding-your-essential-e-book-resource/"><u>How to Triumph in Mobile User Onboarding - Your Essential E-Book Resource</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-samsung-galaxy-s23-fe-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Samsung Galaxy S23 FE Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/neoml-discover-the-power-of-abbyys-enrichit-and-open-source-software-capabilities/"><u>NeoML: Discover the Power of ABBYY's Enrichit and Open-Source Software Capabilities</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-video-editing-on-the-go-top-powerdirector-alternatives-for-android-and-ios/"><u>Updated In 2024, Video Editing on the Go Top PowerDirector Alternatives for Android and iOS</u></a></li>
-<li><a href="https://driver-error.techidaily.com/wudfrd-init-failed-event-device-id-219/"><u>WudfRd Init Failed, Event Device ID 219</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-social-media-battlefield-tiktoks-top-10-twitters/"><u>[New] 2024 Approved The Social Media Battlefield TikTok's Top 10 Twitters</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-enhance-your-online-presence-with-these-50-complimentary-banners/"><u>[Updated] 2024 Approved Enhance Your Online Presence with These 50 Complimentary Banners</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-video-ventures-youtube-shorts-or-tiktok/"><u>[Updated] 2024 Approved Video Ventures YouTube Shorts or TikTok?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/appreciating-w15as-features-critiquing-its-quirks/"><u>Appreciating W15A's Features; Critiquing Its Quirks</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience-with-tailored-content/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience with Tailored Content</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-site-enhance-your-digital-marketing-efforts/"><u>Cookiebot-Enabled Site: Enhance Your Digital Marketing Efforts</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-boost-your-online-traffic-and-engagement/"><u>Cookiebot-Enabled Sites: Boost Your Online Traffic and Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-site-performance/"><u>Cookiebot-Enhanced Site Performance</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhance-your-site-with-powerful-tracker-technology/"><u>Cookiebot: Enhance Your Site with Powerful Tracker Technology</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/te-engagement-posting-youtube-video-on-fb/"><u>Elevate Engagement Posting YouTube Video on FB</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-versatility-of-virtual-worlds/"><u>In 2024, The Versatility of Virtual Worlds</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-mobile-maintenance-ultimate-strategies-for-debugging-your-android-device/"><u>Mastering Mobile Maintenance: Ultimate Strategies for Debugging Your Android Device</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/premier-20-github-chatgpt-interaction-cases/"><u>Premier 20 GitHub ChatGPT Interaction Cases</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success"
-date: 2024-09-11T17:51:38.296Z
-updated: 2024-09-14T17:21:05.668Z
+date: 2024-09-15T02:22:22.614Z
+updated: 2024-09-18T16:20:49.321Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/069b298bfedee9c280f30a09eb725e41e8884f90fc111239be7bdf14c7e0c06b.jpg
@@ -29,19 +29,6 @@ Director, Enterprise Solutions, **ABBYY**
 
 ![George Lawrie](https://static4.abbyy.com/abbyycommedia/29847/51-georgelawrie-198x198.png)
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### George Lawrie
 
 Vice President, Principal Analyst, **Forrester**
@@ -51,13 +38,6 @@ Vice President, Principal Analyst, **Forrester**
 COVID-19 forced us to change the ways we work, interact, and conduct business. Most importantly, supply chains had to adapt overnight to make it all work. Over the past year, supply chains upended their operations to remove people and touches from their processes without risking disruption to the delivery of vital goods and services to customers, who were more dependent on them than ever before. Contactless delivery, zero-touch fulfillment, clearances, and supply shortages all have become normalized in the past year, often with quick-fixes, workarounds, and many learning experiences.
 
 This exclusive discussion explores proven techniques and best practices to transform your supply chain into the adaptable, streamlined system your company requires. 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What you’ll learn:
 
@@ -70,24 +50,32 @@ Supply chains run on information, often in the form of unstructured content. Mis
 Do you have true visibility into bottlenecks that are causing delays, and why? View this compelling discussion with Forrester's Analyst George Lawrie and ABBYY's Reggie Twigg, and gain key intel to help you take control.
 
 <!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch now
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Thank you, enjoy your webinar!
 
@@ -160,17 +148,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-from-ground-up-a-complete-evaluation-of-dji-phantom-4/"><u>[Updated] From Ground Up A Complete Evaluation of DJI Phantom 4</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-conversion-rates-using-leading-analytics-software/"><u>Enhanced Conversion Rates Using Leading Analytics Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-data-collection-with-the-help-of-cookiebot-technology/"><u>Enhanced Data Collection with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-with-cookiebot-technology/"><u>Enhancing Website Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-the-distinctions-a-comprehensive-guide-to-gpt-4-vs-gpt-ex/"><u>Exploring the Distinctions: A Comprehensive Guide to GPT-4 Vs. GPT-eX</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-robotic-process-automation-for-efficient-logistics-exploring-the-power-of-abbyy-solutions/"><u>Harnessing Robotic Process Automation for Efficient Logistics: Exploring the Power of ABBYY Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-personalization-and-analytics/"><u>Harnessing the Power of Cookiebot for Advanced Site Personalization and Analytics</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-tecno-pova-5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Tecno Pova 5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-blaze-2-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Blaze 2</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-unraveling-the-mystery-of-phantoms-velocity-inversion/"><u>In 2024, Unraveling the Mystery of Phantom's Velocity Inversion</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/inside-stardust-a-complete-exploration-of-stardew-and-its-hidden-gem-ginger-isle/"><u>Inside Stardust A Complete Exploration of Stardew and Its Hidden Gem, Ginger Isle</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/strategies-for-successful-health-objective-creation-using-chatgpt/"><u>Strategies for Successful Health Objective Creation Using ChatGPT</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-choosing-the-right-format-boosting-your-youtube-videos-performance/"><u>[Updated] Choosing the Right Format – Boosting Your YouTube Videos’ Performance</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-perfecting-package-adventure-7-steps-for-2024/"><u>[Updated] Perfecting Package Adventure 7 Steps for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-real-time-engagement-strategies-for-online-streamers/"><u>[Updated] Real-Time Engagement Strategies for Online Streamers</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-gabrielle-lukianchuk-as-new-cmo-driving-company-expansion/"><u>ABBYY Welcomes Gabrielle Lukianchuk as New CMO, Driving Company Expansion</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-productivity-key-strategies-for-your-center-of-excellence-with-abbyy-plus-blue-prism-live-session/"><u>Boosting Productivity - Key Strategies for Your Center of Excellence with ABBYY + Blue Prism Live Session</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/digital-twins-and-process-simulation-exploring-business-opportunity-expansion/"><u>Digital Twins and Process Simulation - Exploring Business Opportunity Expansion</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/emotional-intelligence/"><u>Emotional Intelligence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-data-capture-efficiency-transitioning-to-the-advanced-abbyy-flexicapture-cloud-solution/"><u>Enhance Your Data Capture Efficiency: Transitioning to the Advanced ABBYY FlexiCapture Cloud Solution</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/how-to-triumph-in-mobile-user-onboarding-your-essential-e-book-resource/"><u>How to Triumph in Mobile User Onboarding - Your Essential E-Book Resource</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-oppo-reno-10-pro-5g-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Oppo Reno 10 Pro 5G to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-accelerated-video-maker-time-lapse-edition/"><u>In 2024, Accelerated Video Maker Time-Lapse Edition</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Xiaomi Redmi Note 12R? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-youtube-shorts-demystified-in-30-minutes/"><u>In 2024, YouTube Shorts Demystified in 30 Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-turkish-learning-an-essential-phonetics-guidebook/"><u>Jumpstart Your Turkish Learning: An Essential Phonetics Guidebook</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/munchen-nutzt-abbyy-fur-die-modernisierung-und-digitale-speicherung-von-baurechnungen/"><u>München Nutzt ABBYY Für Die Modernisierung Und Digitale Speicherung Von Baurechnungen</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unboxing-essentials-selecting-audio-that-complements-videos-for-2024/"><u>Unboxing Essentials Selecting Audio that Complements Videos for 2024</u></a></li>
 </ul></div>
 

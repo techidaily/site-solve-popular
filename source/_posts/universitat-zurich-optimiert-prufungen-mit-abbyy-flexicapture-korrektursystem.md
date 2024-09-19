@@ -1,7 +1,7 @@
 ---
 title: Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem
-date: 2024-09-13T23:05:50.122Z
-updated: 2024-09-14T16:28:21.528Z
+date: 2024-09-14T22:20:59.393Z
+updated: 2024-09-18T20:37:10.089Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/99ddeff4dd981a34b1bf66d98e84fae1038add51e63fa5e698f7136621990952.jpg
@@ -55,13 +55,6 @@ Kommt dann noch - wie im Falle der Universität Zürich - ein stetiger Anstieg d
 
 Aus diesen Gründen hat die Leitung der Universität Zürich bereits vor einigen jahren beschlossen, ein gesamtuniversitäres Projekt zur elektronischen Unterstützung schriftlicher Prüfungen zu lancieren. Im rahmen dieses Projekts sollen die organisatorischen und technischen Voraussetzungen geschaffen werden, um das Management schriftlicher Prüfungen bestmöglich mit elektronischen Mitteln zu unterstützen. Vordringliches Ziel dieses Ansatzes ist es, eine nachhaltige und spürbare entlastung der Dozierenden bei Vorbereitung, Durchführung und korrektur schriftlicher Prüfungen zu schaffen.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Lösung
 
 In der Theorie werden die optimalen Effizienzgewinne mit der elektronischen Prüfungsdurchführung erzielt. Diese Variante hat jedoch - neben der damit verbundenen technischen Komplexität - den Nachteil, dass die hierzu benötigte IT-Infrastruktur einen erheblichen Kostenfaktor darstellt. Dies gilt insbesondere im Hinblick auf hochvolumige Prüfungen. An der Universität Zürich sind jedoch Prüfungen mit 1.000 und mehr Teilnehmenden keine Seltenheit. Daher wurde der elektronischen Prüfungsdurchführung die automatisierte Auswertung papierbasierter Prüfungen zur Seite gestellt.
@@ -89,6 +82,13 @@ Der hohe Funktionsumfang von ABBYY FlexiCapture wurde bereits in der Pilotphase 
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -98,10 +98,10 @@ Der hohe Funktionsumfang von ABBYY FlexiCapture wurde bereits in der Pilotphase 
 Teilen 
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
@@ -125,17 +125,17 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-revamp-your-google-group-chats-with-4-tips/"><u>[New] Revamp Your Google Group Chats with 4 Tips</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-in-depth-analysis-cutzone-pro-review-unveiled/"><u>[Updated] In-Depth Analysis CutZone Pro Review Unveiled</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-realme-narzo-n55-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Realme Narzo N55</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Samsung Galaxy S24 | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-convert-several-jpeg-pictures-into-a-unified-pdf-document/"><u>How to Convert Several JPEG Pictures Into a Unified PDF Document</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-realme-c51-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Realme C51 without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-in-2024-the-ultimate-tutorial-on-morphvox-for-enhancing-gaming-experience-through-vocal-alteration/"><u>New In 2024, The Ultimate Tutorial on Morphvox for Enhancing Gaming Experience Through Vocal Alteration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/securing-your-digital-footprint-counteracting-textgrabber-threats-and-improving-user-mobility-insights-for-abbyy-readers/"><u>Securing Your Digital Footprint: Counteracting TextGrabber Threats & Improving User Mobility | Insights for ABBYY Readers</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/sustained-profitable-expansion-abbyy-announces-back-to-back-double-digit-revenue-upswing-for-third-year-in-a-row/"><u>Sustained Profitable Expansion: ABBYY Announces Back-to-Back Double-Digit Revenue Upswing for Third Year in a Row</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-the-legal-framework-abbyys-cloud-product-terms-end-to-end-privacy-standards-and-gdpr-provisions-explained/"><u>Understanding the Legal Framework: ABBYY's Cloud Product Terms, End-to-End Privacy Standards & GDPR Provisions Explained</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unleash-dynamic-user-experiences-with-cookiebot-technology/"><u>Unleash Dynamic User Experiences with Cookiebot Technology</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/1723175695456-unveiling-the-future-of-personal-computing-deepcools-fresh-arsenal-of-coolers-psus-and-pc-parts-infused-with-eye-catching-pixel-silicone-customization/"><u>Unveiling the Future of Personal Computing: DeepCool's Fresh Arsenal of Coolers, PSUs, & PC Parts – Infused with Eye-Catching Pixel Silicone Customization!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-ultimate-download-hub-for-social-media-videos-fb/"><u>[New] Ultimate Download Hub for Social Media Videos (FB)</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/10-cool-features-that-make-you-love-filmora-video-editor-for-2024/"><u>10 Cool Features That Make You Love Filmora Video Editor for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-snicker-snapshots-jokeframe/"><u>2024 Approved Snicker Snapshots JokeFrame</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effortless-mp4-to-aac-file-transformation-tutorial-for-desktop-and-online-methods/"><u>Effortless MP4 to AAC File Transformation – Tutorial for Desktop & Online Methods</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/elevate-your-gaming-experience-nintendo-switch-and-steam-synergy/"><u>Elevate Your Gaming Experience Nintendo Switch and Steam Synergy</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-y78-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Vivo Y78 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/ignite-your-creative-spark-scriptwriting-tips-for-youtube-mastery/"><u>Ignite Your Creative Spark Scriptwriting Tips for YouTube Mastery</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/redefining-accounts-payable-the-synergy-of-automation-and-content-knowledge/"><u>Redefining Accounts Payable: The Synergy of Automation and Content Knowledge</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/robert-youngjohns-steering-vision-as-abbyys-esteemed-board-chair/"><u>Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair</u></a></li>
+<li><a href="https://win-answers.techidaily.com/the-definitive-collection-of-the-mafia-series-gets-official-release-date-announcement/"><u>The Definitive Collection Of The Mafia Series Gets Official Release Date Announcement</u></a></li>
 </ul></div>
 

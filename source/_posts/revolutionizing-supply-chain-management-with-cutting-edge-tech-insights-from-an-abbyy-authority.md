@@ -1,7 +1,7 @@
 ---
 title: "Revolutionizing Supply Chain Management with Cutting-Edge Tech: Insights From an ABBYY Authority"
-date: 2024-09-09T20:24:11.004Z
-updated: 2024-09-14T17:34:03.760Z
+date: 2024-09-13T19:42:27.153Z
+updated: 2024-09-19T03:06:10.585Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cc08879bb2c831a3bb04207b3ec86439cd9e17fc1be601b33ce1edbe031a09d0.jpg
@@ -27,18 +27,18 @@ Directrice Commerciale, **ABBYY France**
 
 ![92 Benjamindebuttet 198X198 (1)](https://static2.abbyy.com/abbyycommedia/34018/92-benjamindebuttet-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Benjamin de Buttet
 
 COO, **DCbrain**
 
 ![90 Patrickremords 198X198 (1)](https://static4.abbyy.com/abbyycommedia/34022/90-patrickremords-198x198.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Patrick Remords
 
@@ -46,41 +46,22 @@ Head of Supply Chain Consulting, **JLL France**
 
 ![89 Cedrichervet 198X198](https://static4.abbyy.com/abbyycommedia/34025/89-cedrichervet-198x198.png)
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Cédric Hervet
 
 Directeur Scientifique et co-fondateur, **Kardinal**
 
 ![91 Jeanphilippeguillaume 198X198 (1)](https://static3.abbyy.com/abbyycommedia/34020/91-jeanphilippeguillaume-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Jean-Philippe Guillaume
 
 Directeur de la rédaction, **Supply Chain Village**
-
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Description
 
@@ -88,19 +69,26 @@ Depuis ces dernières années, de nouvelles technologies mais aussi de nouvelles
 
 Comment les professionnels de la Supply doivent s’y préparer ? Comment s’inscrire dans cette dynamique sans risque d’être dépassé par la technologie ? Pourquoi la data est-elle si importante ? Que peut apporter l’IA (aujourd’hui et demain) dans l’optimisation des réseaux ? Quelle sera la place des robots dans l’entrepôt du futur ? Telles sont (entre autres) les questions qui seront abordées lors de cette table ronde.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Regardez maintenant
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Merci et bon webinaire !
 
@@ -109,16 +97,10 @@ All personal information collected via this method is under full scope of all pr
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
@@ -186,14 +168,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/iscal-horizons-exploring-mr-beasts-income-for-2024/"><u>[New] Fiscal Horizons Exploring Mr. Beast's Income for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mastering-subscription-the-art-of-positive-engagement/"><u>[Updated] 2024 Approved Mastering Subscription The Art of Positive Engagement</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-and-set-up-the-latest-hp-printer-software-on-your-pc/"><u>Download & Set Up the Latest HP Printer Software on Your PC</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-tips-for-troubleshooting-and-resolving-windows-error-code-0xc0000098/"><u>Expert Tips for Troubleshooting and Resolving Windows Error Code 0xC0000098</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximize-engagement-with-advanced-analytics-the-cookiebot-integration-advantage/"><u>Maximize Engagement with Advanced Analytics: The Cookiebot Integration Advantage</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximizing-page-visibility-a-guide-to-advanced-seo-techniques/"><u>Maximizing Page Visibility: A Guide to Advanced SEO Techniques</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimize-with-cookiebot-advanced-tools-for-superior-web-engagement-and-personalization/"><u>Optimize With Cookiebot: Advanced Tools for Superior Web Engagement and Personalization</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-enhancing-your-sites-visibility/"><u>Optimized with Cookiebot Technology: Enhancing Your Site's Visibility</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/quick-guide-to-downloading-your-zebra-gk420d-driver-effortless-setup/"><u>Quick Guide to Downloading Your ZEBRA GK420d Driver – Effortless Setup!</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-speedy-methods-for-shuffling-youtube-lists-on-devices/"><u>[New] Speedy Methods for Shuffling YouTube Lists on Devices</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-free-subtitle-services-the-ultimate-convertors-guide-for-2024/"><u>[Updated] Free Subtitle Services The Ultimate Convertors Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-expert-tips-for-avoiding-instagram-video-troubles/"><u>[Updated] In 2024, Expert Tips for Avoiding Instagram Video Troubles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-efficiently-shifting-videos-youtube-to-dailymotion-strategy/"><u>2024 Approved Efficiently Shifting Videos YouTube to Dailymotion Strategy</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-exploring-video-edits-is-inshot-top-choice/"><u>2024 Approved Exploring Video Edits Is InShot Top Choice?</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-marketing-analytics-using-cookiebot-technology/"><u>Enhance Your Marketing Analytics Using Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-engagement-with-cookiebot-technology-integration/"><u>Enhancing Engagement with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/evolving-towards-process-intelligence-insightful-strategies-from-abbyys-leading-expert/"><u>Evolving Towards Process Intelligence: Insightful Strategies From ABBYY's Leading Expert</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/exploring-artificial-intelligence-frontiers-at-abbyy-event-shaping-tomorrows-tech-landscape/"><u>Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-tecno-spark-10-4g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Tecno Spark 10 4G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-vivo-y28-5g-easily-by-drfone-android/"><u>How To Unlock a Vivo Y28 5G Easily?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/thrifty-computer-solutions-through-perfect-obs-arrangement-for-2024/"><u>Thrifty Computer Solutions Through Perfect OBS Arrangement for 2024</u></a></li>
 </ul></div>
 

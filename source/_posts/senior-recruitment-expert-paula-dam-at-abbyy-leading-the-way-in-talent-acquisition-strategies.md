@@ -1,7 +1,7 @@
 ---
 title: "Senior Recruitment Expert Paula Dam at ABBYY: Leading the Way in Talent Acquisition Strategies"
-date: 2024-09-09T19:00:05.863Z
-updated: 2024-09-14T21:24:20.463Z
+date: 2024-09-15T17:58:00.300Z
+updated: 2024-09-18T23:21:22.851Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8d42a5be41c7b4a2ee5933ca8170ed38361404ba710cadb2872cd630ac7e122c.jpg
@@ -45,6 +45,13 @@ I have more than 10 years of experience in recruitment, working on the agency si
 
 Prior to joining ABBYY, I worked for Everbridge, a Software-as-a-Service (SaaS) based company specializing in critical event management and mass warning alerts. There, I was the recruiter for all hiring across the APJ region.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What attracted you to ABBYY, what made you join?
 
 The reason I accepted the offer from ABBYY was due to the company’s stance on flexible working. Thanks to my manager, Steve Bettini and ABBYY, I have a remote working agreement which allows me to manage my work-life balance. Another factor for joining the company was being the first TA partner in Asia. I could see my potential career growth in the future with ABBYY!
@@ -52,10 +59,10 @@ The reason I accepted the offer from ABBYY was due to the company’s stance on 
 ![](https://static1.abbyy.com/abbyycommedia/37165/meet-paula-dam-2.png?width=750&height=570)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What keeps you going, and what are some highlights of your journey with ABBYY so far?
@@ -71,17 +78,10 @@ I am blessed to be part of ABBYY and surrounded by great leaders in the region, 
 ![](https://static1.abbyy.com/abbyycommedia/37166/meet-paula-dam-3.png?width=750&height=570)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Your top advice to someone joining ABBYY, and for someone joining ABBYY in a similar role?
@@ -89,6 +89,13 @@ I am blessed to be part of ABBYY and surrounded by great leaders in the region, 
 If you are someone who likes challenges, wants to make a change, and create something new, ABBYY will give you that opportunity. It’s a place where you will enjoy taking the initiative and figuring out new ways to work as if this is your own business. You are part of ABBYY and ABBYY is part of you.
 
 ABBYY has more than 30 years in the business yet, in many ways, it maintains a startup mentality. Your experience and ideas will be somehow utilized, and you’ll be a great contribution to our organization. It’s an adult working environment. You just need some principal guidelines, and then you can ride the boat as a ‘captain’ in your field.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### We know that you are living an active lifestyle. Tell us more about it, how do you spend your free time?
 
@@ -100,18 +107,18 @@ Besides my environmental and sustainability activities, I am also a regular volu
 
 For my mental health, I practice Vipassana mediation every morning. Travelling is also a big part of my life. I travel to learn, connect, and experience new things.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### If you could have one wish come true, what would it be and why?
 
 I don’t really believe in wishes coming true or hypotheses. If you want something, work and find a way to achieve it instead of wishing. If we face challenges and tough times in our lives, we may be able to handle them with our own great courage and attitude.
 
 ![](https://static1.abbyy.com/abbyycommedia/37167/meet-paula-dam-4.png?width=750&height=570)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What is your definition of work-life balance?
 
@@ -143,13 +150,6 @@ Share
 ### Related posts
 
 ![](https://static2.abbyy.com/abbyycommedia/37760/nina-walker.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [ABBYY Spotlight: Nina Walker, Head of Customer Experience](https://tools.techidaily.com/abbyy/products/) 
 
@@ -216,20 +216,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-best-8-convertors-sub-to-srt-on-all-os-platforms/"><u>[New] In 2024, Best 8 Convertors Sub to Srt on All OS Platforms</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-audio-archiving-strategies-on-apple-devices/"><u>2024 Approved Audio Archiving Strategies on Apple Devices</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-comprehensiveness-in-film-capture-vs-dimensionality-in-visuals/"><u>2024 Approved Comprehensiveness in Film Capture vs Dimensionality in Visuals</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/sap-intelligent-rpa-abbyy-abbyy/"><u>高度な文書処理技術と組み合わせた、SAP Intelligent RPA にABBYYを統合する方法 | ABBYYの技術解説</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/boosting-content-appeal-by-including-youtube-music-in-recordings/"><u>Boosting Content Appeal by Including YouTube Music in Recordings</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/comprehensive-evaluation-of-klevv-cras-c93/"><u>Comprehensive Evaluation of KLEVV CRAS C93</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-6-methods-to-share-apple-iphone-12-mini-screen-with-pc-drfone-by-drfone-ios/"><u>In 2024, 6 Methods to Share Apple iPhone 12 mini Screen with PC | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-crafting-an-effective-online-page-for-search-engines/"><u>Mastering the Art of Crafting an Effective Online Page for Search Engines</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-universal-copy-paste-seamless-sharing-across-devices-and-enhancing-your-fitness-routine-with-indoor-cycling-insights-from-the-abbyy-expertise/"><u>Mastering Universal Copy-Paste: Seamless Sharing Across Devices & Enhancing Your Fitness Routine with Indoor Cycling - Insights From the ABBYY Expertise</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-razer-synapse-start-up-errors-easily/"><u>Overcoming Razer Synapse Start-Up Errors Easily!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/promising-future-with-us-policy-changes-expert-analysis-on-abbyys-platform/"><u>Promising Future with US Policy Changes | Expert Analysis on ABBYY's Platform</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/strategies-doptimisation-de-la-chaine-logistique-comment-les-donnees-facilitent-le-reinventer-grace-a-abbyy/"><u>Stratégies D'Optimisation De La Chaîne Logistique: Comment Les Données Facilitent Le Réinventer Grâce À ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/strengthen-business-continuity-with-effective-process-enhancement/"><u>Strengthen Business Continuity with Effective Process Enhancement</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/top-picks-unbeatable-computer-and-notebook-offers/"><u>Top Picks: Unbeatable Computer & Notebook Offers</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-subcontracting-options-for-enhanced-abbyy-software-solutions/"><u>Top Subcontracting Options for Enhanced ABBYY Software Solutions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-enthralling-type-mobility-setups/"><u>[New] Enthralling Type Mobility Setups</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-digital-symphony-recording-on-a-mac/"><u>[Updated] Digital Symphony Recording on a Mac</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-blank-page-to-airwaves-writing-engaging-podcast-episodes/"><u>[Updated] From Blank Page to Airwaves Writing Engaging Podcast Episodes</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-global-idp/"><u>ABBYY Global IDPトレンドの最新発表:成果報告書解説</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/decoding-omegle-a-deep-dive-into-online-gaming-platforms-with-safety-focus-for-2024/"><u>Decoding Omegle A Deep Dive Into Online Gaming Platforms with Safety Focus for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-framelight-free-elevate-mobile-photography-today/"><u>In 2024, Framelight Free Elevate Mobile Photography Today</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/iphones-darkest-hours-decoded-for-photographers/"><u>IPhone's Darkest Hours Decoded for Photographers</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ply-your-channels-subscribers-quickly/"><u>Multiply Your Channel's Subscribers Quickly</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/solved-move-from-samsung-galaxy-a05-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Samsung Galaxy A05 to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
 </ul></div>
 

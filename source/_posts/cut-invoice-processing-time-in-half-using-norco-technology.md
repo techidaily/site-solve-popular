@@ -1,7 +1,7 @@
 ---
 title: Cut Invoice Processing Time in Half Using Norco Technology
-date: 2024-09-11T22:15:48.070Z
-updated: 2024-09-14T20:31:41.277Z
+date: 2024-09-15T20:49:20.852Z
+updated: 2024-09-18T23:27:01.043Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80de444cb408ef81f4728e2850b723591d8016d7f4cd61445fe263111407c51f.jpg
@@ -57,16 +57,10 @@ The flexibility of ABBYY IDP makes it easy to use to streamline additional back-
 ![FC_1](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/flexicapture/fc_1.jpg?h=392&iar=0&w=696)
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### ABBYY Solutions for Accounts Payable Automation
@@ -82,10 +76,10 @@ The flexibility of ABBYY IDP makes it easy to use to streamline additional back-
 ![laptop mug](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/laptop-mug.jpg?h=836&iar=0&w=1486)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -107,15 +101,20 @@ The flexibility of ABBYY IDP makes it easy to use to streamline additional back-
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-maximize-collaboration-via-zooms-share-feature/"><u>[New] 2024 Approved Maximize Collaboration via Zoom's Share Feature</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-a-step-by-step-manual-to-freeze-backgrounds-in-affinity-photo/"><u>[New] A Step-by-Step Manual to Freeze Backgrounds in Affinity Photo</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-richest-streamers-ever-caught/"><u>[Updated] 2024 Approved Richest Streamers Ever Caught</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-why-does-instagram-keep-flipping-my-video/"><u>2024 Approved Why Does Instagram Keep Flipping My Video?</u></a></li>
-<li><a href="https://howto.techidaily.com/calls-on-samsung-galaxy-z-fold-5-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Samsung Galaxy Z Fold 5 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-business-excellence-by-mastering-process-mapping-assessment-and-simulation-tactics/"><u>Elevate Business Excellence by Mastering Process Mapping, Assessment & Simulation Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevating-industry-standards-ap-automation-success-story-of-siemens-and-abbyy/"><u>Elevating Industry Standards: AP Automation Success Story of Siemens and ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-collaboration-effortlessly-using-abbyy-timeline-5s-new-task-mining-technology/"><u>Enhance Collaboration Effortlessly Using ABBYY Timeline 5’S New Task Mining Technology</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-go-global-with-music-transform-your-spotify-lists-into-youtube-videos/"><u>In 2024, Go Global with Music Transform Your Spotify Lists Into YouTube Videos</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-the-apple-iphone-12-pro-max-sim-lock-4-easy-methods-by-drfone-ios/"><u>In 2024, How To Unlock The Apple iPhone 12 Pro Max SIM Lock 4 Easy Methods</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-canva-cinematography-perfecting-music-cropping-and-editing/"><u>[New] Canva Cinematography Perfecting Music Cropping and Editing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhance-video-visibility-with-effective-thumbnail-scaling-for-2024/"><u>[New] Enhance Video Visibility with Effective Thumbnail Scaling for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-free-video-editing-software-8-options-explored/"><u>[New] In 2024, Free Video Editing Software 8 Options Explored</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-stability-showcase-premium-phone-compatible-tripods/"><u>[Updated] Stability Showcase Premium Phone-Compatible Tripods</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-how-to-record-screen-with-adobe-captive/"><u>2024 Approved How To Record Screen With Adobe Captive</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/sap-intelligent-rpa-abbyy-abbyy/"><u>高度な文書処理技術と組み合わせた、SAP Intelligent RPA にABBYYを統合する方法 | ABBYYの技術解説</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ensure-compatibility-updated-ch340-chip-drivers-for-smooth-windows-10-operation/"><u>Ensure Compatibility: Updated CH340 Chip Drivers for Smooth Windows 10 Operation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-petcubes-budget-friendly-hd-pet-monitor/"><u>Explore Petcube's Budget-Friendly HD Pet Monitor</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/mastering-seamless-mobile-onboarding-with-strategies-from-the-abbyy-handbook/"><u>Mastering Seamless Mobile Onboarding with Strategies From the ABBYY Handbook</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-crafting-an-effective-online-page-for-search-engines/"><u>Mastering the Art of Crafting an Effective Online Page for Search Engines</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/mastering-universal-copy-paste-seamless-sharing-across-devices-and-enhancing-your-fitness-routine-with-indoor-cycling-insights-from-the-abbyy-expertise/"><u>Mastering Universal Copy-Paste: Seamless Sharing Across Devices & Enhancing Your Fitness Routine with Indoor Cycling - Insights From the ABBYY Expertise</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maxoak-185wh50000mah-battery-pack-review/"><u>MaxOak 185Wh/50000mAh Battery Pack Review</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/promising-future-with-us-policy-changes-expert-analysis-on-abbyys-platform/"><u>Promising Future with US Policy Changes | Expert Analysis on ABBYY's Platform</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/strategies-doptimisation-de-la-chaine-logistique-comment-les-donnees-facilitent-le-reinventer-grace-a-abbyy/"><u>Stratégies D'Optimisation De La Chaîne Logistique: Comment Les Données Facilitent Le Réinventer Grâce À ABBYY</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-processors-for-professional-computing-stations/"><u>Top-Rated Processors for Professional Computing Stations</u></a></li>
 </ul></div>
 

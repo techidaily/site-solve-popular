@@ -1,7 +1,7 @@
 ---
 title: "Driven by Cookiebot: Optimizing Your Site's Visibility"
-date: 2024-09-09T20:41:04.959Z
-updated: 2024-09-14T23:10:36.257Z
+date: 2024-09-13T23:39:48.309Z
+updated: 2024-09-18T16:35:33.174Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3ad4f7e8b48f19c37105255d0826afad52f6608bef33c5c37cef1bfce8aa66b0.jpeg
@@ -37,41 +37,49 @@ Vorstand IT & Schaden/Leistung (CIO), **DFV Deutsche Familienversicherung AG**
 
 ![43 Susannerichter Wills 198X198](https://static2.abbyy.com/abbyycommedia/29475/43-susannerichter-wills-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Susanne Richter-Wills
 
 Head of Sales DACH, **ABBYY**
 
 ![02 Alexandrejanicki 198X198](https://static4.abbyy.com/abbyycommedia/35123/logo-2021-90x27.svg) 
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![02 Alexandrejanicki 198X198](https://static2.abbyy.com/abbyycommedia/25101/02-alexandrejanicki-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Alexandre Janicki
 
 Senior Enterprise Sales Manager, **ABBYY**
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Übersicht
 
 In dieser exklusiven virtuellen Insurance Executive Session dreht sich alles darum, wie Versicherungen ihre Unternehmensprozesse mit künstlicher Intelligenz umsetzen können – gesetzeskonform und automatisiert. Neben Fachbeiträgen zum Thema „Content Intelligence“, gibt Marcus Wollny, CIO der Deutschen Familienversicherung einen Erfahrungsbericht, wie sich das Unternehmen zu einem Vorreiter der digitalen Transformation entwickelt hat.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Das sind die Themen:
 
@@ -85,10 +93,10 @@ Die Zukunft der digitalen Intelligenz
 ### Webinar-Aufzeichnung hier anfordern
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Get in touch with us
@@ -100,21 +108,7 @@ All personal information collected via this method is under full scope of all pr
 
 [![16 Exklusive Insurance Executive Session](https://static1.abbyy.com/abbyycommedia/29849/16-exklusive-insurance-executive-session.jpg)](https://www.youtube.com/watch?v=OmTZKRxBKI0) 
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Haben Sie weiterführende Fragen oder möchten Sie mit uns über ein konkretes Projekt sprechen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 
@@ -181,18 +175,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-the-essentials-of-crafting-crystal-clear-vhs-graphics-online/"><u>[New] The Essentials of Crafting Crystal-Clear VHS Graphics Online</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-youtube-masterclass-advanced-techniques-for-video-commentary-embedding/"><u>[Updated] 2024 Approved YouTube Masterclass Advanced Techniques for Video Commentary Embedding</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-perfectly-preserved-your-ultimate-guide-to-saving-tweet-animations/"><u>[Updated] In 2024, Perfectly Preserved Your Ultimate Guide to Saving Tweet Animations</u></a></li>
-<li><a href="https://windows11.techidaily.com/ensuring-seamless-remote-device-connectivity-on-windows/"><u>Ensuring Seamless Remote Device Connectivity on Windows</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimize-your-websites-performance-using-advanced-cookiebot-solutions/"><u>Optimize Your Website's Performance Using Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/revolutionize-your-paperwork-unveiling-the-power-of-abbyy-vantage-version-21/"><u>Revolutionize Your Paperwork: Unveiling the Power of ABBYY Vantage Version 2.1</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/revolutionizing-school-portraits-with-streamlined-automatic-document-upload-technology-for-better-results/"><u>Revolutionizing School Portraits with Streamlined, Automatic Document Upload Technology for Better Results</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/senior-recruitment-expert-paula-dam-at-abbyy-leading-the-way-in-talent-acquisition-strategies/"><u>Senior Recruitment Expert Paula Dam at ABBYY: Leading the Way in Talent Acquisition Strategies</u></a></li>
-<li><a href="https://fox-that.techidaily.com/step-by-step-solution-what-to-do-when-your-airplay-device-fails/"><u>Step-by-Step Solution: What To Do When Your AirPlay Device Fails</u></a></li>
-<li><a href="https://change-location.techidaily.com/the-best-ispoofer-alternative-to-try-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Vivo S17t | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/the-role-of-artificial-intelligence-and-ml-in-streamlining-kyc-processes-for-financial-services/"><u>The Role of Artificial Intelligence & ML in Streamlining KYC Processes for Financial Services.</u></a></li>
-<li><a href="https://win-blog.techidaily.com/the-ultimate-fix-troubleshooting-and-defeating-the-unable-to-join-a-party-issue-error-code-ebt/"><u>The Ultimate Fix: Troubleshooting and Defeating the 'Unable to Join a Party' Issue (Error Code Ebt)</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/unlock-miracast-streaming-solved-graphics-driver-incompatibility-problems/"><u>Unlock Miracast Streaming - Solved Graphics Driver Incompatibility Problems</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-asmr-insights-harnessing-soundscapes-for-slumber/"><u>[New] ASMR Insights Harnessing Soundscapes for Slumber</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-how-to-record-skype-with-obs-for-2024/"><u>[Updated] How to Record Skype with OBS for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-tailored-guide-for-selective-youtube-content-download/"><u>[Updated] Tailored Guide for Selective YouTube Content Download</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unraveling-the-enigma-how-to-download-messages-from-facebook-for-2024/"><u>[Updated] Unraveling the Enigma How to Download Messages From Facebook for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-gabrielle-lukianchuk-as-new-cmo-driving-company-expansion/"><u>ABBYY Welcomes Gabrielle Lukianchuk as New CMO, Driving Company Expansion</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-productivity-key-strategies-for-your-center-of-excellence-with-abbyy-plus-blue-prism-live-session/"><u>Boosting Productivity - Key Strategies for Your Center of Excellence with ABBYY + Blue Prism Live Session</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/digital-twins-and-process-simulation-exploring-business-opportunity-expansion/"><u>Digital Twins and Process Simulation - Exploring Business Opportunity Expansion</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/emotional-intelligence/"><u>Emotional Intelligence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-data-capture-efficiency-transitioning-to-the-advanced-abbyy-flexicapture-cloud-solution/"><u>Enhance Your Data Capture Efficiency: Transitioning to the Advanced ABBYY FlexiCapture Cloud Solution</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/from-basics-to-expertise-the-quantum-hdr-journey/"><u>From Basics to Expertise The Quantum HDR Journey</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-realme-gt-5-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Realme GT 5 Phone</u></a></li>
 </ul></div>
 

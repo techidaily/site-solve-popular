@@ -1,7 +1,7 @@
 ---
 title: "Optimized With Cookiebot: Next-Level Analytics & Conversion Boost"
-date: 2024-09-12T18:51:17.457Z
-updated: 2024-09-14T23:08:10.633Z
+date: 2024-09-14T18:39:36.967Z
+updated: 2024-09-18T17:37:01.689Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/46220d4e5de752c9f9121bc5fe5314f52ef333630dc70248125ef90566a42a71.jpg
@@ -56,18 +56,24 @@ Les données extraites sont ensuite comparées à un ensemble de modèles et de 
 
 Parmi les exemples habituels d’utilisation de l’OCR, il y a l’usage qu’en font des entreprises pour faciliter leur conformité au droit civil et au droit du travail, en convertissant de grandes quantités de documents papier et numériques en formats accessibles et interrogeables ; les cabinets juridiques qui convertissent des contrats papier en formats numériques, modifiables et interrogeables pour l’eDiscovery (investigations en ligne) ainsi que pour l’analyse de données ; les entreprises de santé qui transfèrent les dossiers des patients dans leurs systèmes informatiques pour être en conformité avec la norme HIPAA ; les bibliothèques et les archives qui conservent des documents historiques en format numérique. Tout cela permet aux employés d’une structure donnée d’effectuer leurs différentes tâches quotidiennes liées à des documents de façon efficace, aux développeurs de logiciels de créer des services de contenu, des archives numériques, des systèmes de gestion des documents (DMS), des solutions ECM (pour la gestion des contenus dans l’entreprise), et bien d’autres.
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Qu’est-ce que l’IDP ?
 
 [Le traitement intelligent des documents](https://tools.techidaily.com/abbyy/products/) **(IDP) permet de traiter directement les documents en capturant, extrayant et traitant automatiquement les données contenues dans les documents de l’entreprise,**  et ce pour quasiment n’importe quel processus, dans n’importe quel secteur d’activité.
 
 ![](https://static1.abbyy.com/abbyycommedia/37779/ds-122-how-idp-works-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Comment cela fonctionne-t-il 
 
@@ -80,16 +86,10 @@ Grâce au recours au traitement du langage naturel (NLP), cette technologie est 
 Cette [plateforme IDP](https://tools.techidaily.com/abbyy/products/) peut être facilement intégrée à toute une série de différents systèmes de gestion comme ERP ou CRM. Grâce aux nouvelles plateformes low-code / no-code, les « citizen developers » peuvent déployer la technologie IDP en quelques jours, sans avoir besoin d’une importante assistance, ni d’une importante maintenance informatique côté client.
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Avantages de l’IDP
@@ -124,19 +124,6 @@ Par exemple, il peut lire une facture, en extraire le contenu pour le comparer a
 | **Comment cela fonctionne-t-il** | Applique des algorithmes d’IA pour transformer des documents papier analogues en texte numérique, y compris la structure et la segmentation du document (texte, images, tableaux, codes-barres, cases à cocher, signatures, lignes, caractères, polices, taille de police, langue, etc.).    | Utilise l’intégralité du texte fourni par l’OCR comme base et y applique l’IA, le NLP, le ML, des expressions habituelles et des règles pour comprendre les informations du document et en extraire les données étiquetées significatives qui peuvent être transmises aux applications de l’entreprise en aval pour une prise de décision éclairée. |
 | **Technologie**                  | Amélioration de l’image, Détection des objets, OCR / ICR                                                                                                                                                                                                                                     | Classification Machine Learning intense Machine Learning rapide Règles d’extraction Segmentation Reconnaissance nominative des entités (NER) Traitement du langage naturel (NLP)                                                                                                                                                                    |
 | **Exemples-types d’utilisation** | Met à disposition un texte lisible par les machines comme base pour : la conversion en PDF et l’archivage numérique / la recherche eDiscovery et la recherche de pointe / les techniques scientifiques numériques et l’analyse de données avec le traitement intelligent des documents (IDP) | Automatisation de tout processus métier centré sur les documents : automatisation de la comptabilité fournisseur, onboarding client / KYC, traitement des prêts, automatisation des documents de transport et de logistique, traitement des sinistres dans l’assurance                                                                              |
-
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Exemples de l’OCR et de l’IDP dans les processus métier
 
@@ -204,6 +191,13 @@ Les technologies OCR (reconnaissance optique de caractères) et IDP (traitement 
 
 ![Slavena Hristova ABBYY](https://static4.abbyy.com/abbyycommedia/25713/slavenahristova-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Slavena Hristova
 
 Directrice du Marketing Produit, groupe Vantage chez ABBYY
@@ -213,16 +207,10 @@ Slavena Hristova est Directrice du Marketing Produit pour Vantage chez ABBYY. El
 Connectez-vous avec Slavena sur [LinkedIn](https://www.linkedin.com/in/slavena-hristova-r%C3%B6%C3%9Fler-044aa05a/).
 
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Aimer, partager ou reposter
@@ -250,20 +238,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-a-compreehed-guide-to-online-identity-youtube-account-setup-for-2024/"><u>[Updated] A Compreehed Guide to Online Identity YouTube Account Setup for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-creating-captivating-loops-for-instagram-posts-for-2024/"><u>[Updated] Creating Captivating Loops for Instagram Posts for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversion-rates-using-innovative-cookiebot-tracking-solutions/"><u>Boost Conversion Rates Using Innovative Cookiebot Tracking Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-success-boost-your-sites-visibility-and-conversions/"><u>Cookiebot-Driven Success: Boost Your Site's Visibility and Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-solutions-optimized-user-experience-with-advanced-tracking/"><u>Cookiebot-Enabled Solutions: Optimized User Experience with Advanced Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-site-with-advanced-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Site with Advanced Analytics and Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-the-secret-ingredient-behind-tailored-user-experiences/"><u>Cookiebot: The Secret Ingredient Behind Tailored User Experiences</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-apple-iphone-12-pro-location-on-viber-drfone-by-drfone-virtual-ios/"><u>How to Change/Fake Your Apple iPhone 12 Pro Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-amplify-your-chat-status-with-melodies/"><u>In 2024, Amplify Your Chat Status with Melodies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-locals-learn-romanian-fast/"><u>Speak Like Locals, Learn Romanian Fast</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/start-your-disneyplus-journey-enter-the-8-digit-activation-key-at-disneypluslinkcom/"><u>Start Your Disney+ Journey: Enter the 8-Digit Activation Key at [DisneyPlusLink].com</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-expert-move-dial-down-console-shaking/"><u>The Expert Move: Dial Down Console Shaking</u></a></li>
-<li><a href="https://driver-download.techidaily.com/ultimate-canon-pro-100-drivers-and-utilities-download-for-windows-effortless-installation/"><u>Ultimate Canon PRO 100 Drivers & Utilities Download for Windows - Effortless Installation</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/ultimate-selection-of-apple-ipad-models-dominating-2024-expert-reviews-and-comparisons/"><u>Ultimate Selection of Apple iPad Models Dominating 2024: Expert Reviews and Comparisons</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-elite-streaming-gear-top-hd-360-cameras-compared/"><u>[New] 2024 Approved Elite Streaming Gear Top HD 360° Cameras Compared</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-best-price-to-performance-laptops-under-500-gaming-edition/"><u>2024 Approved Best Price-to-Performance Laptops Under $500 (Gaming Edition)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/25-unique-gift-choices-tailored-for-every-android-fanatic/"><u>25 Unique Gift Choices Tailored for Every Android Fanatic</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/exploring-tomorrows-job-landscape-with-rpa-insights-from-abbyys-timeline-infobook/"><u>Exploring Tomorrow's Job Landscape with RPA: Insights From ABBYY's Timeline Infobook</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722955998002-get-the-latest-atheros-driver-software-for-windows-systems-here/"><u>Get the Latest Atheros Driver Software for Windows Systems Here!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-8-to-others-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 8 To Others devices? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-11-pro-max-to-other-iphone-11-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 11 Pro Max to other iPhone 11 devices? | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovative-ai-driven-document-handling-for-modern-banking-systems/"><u>Innovative AI-Driven Document Handling for Modern Banking Systems</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leveraging-the-efficiency-of-cookiebot-technology-for-seamless-web-tracking/"><u>Leveraging the Efficiency of Cookiebot Technology for Seamless Web Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/online-marketplace-exceeds-growth-targets-and-boosts-operational-productivity-with-cutting-edge-invoice-management-technology/"><u>Online Marketplace Exceeds Growth Targets and Boosts Operational Productivity with Cutting-Edge Invoice Management Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/securing-your-digital-footprint-counteracting-textgrabber-threats-and-improving-user-mobility-insights-for-abbyy-readers/"><u>Securing Your Digital Footprint: Counteracting TextGrabber Threats & Improving User Mobility | Insights for ABBYY Readers</u></a></li>
+<li><a href="https://win-able.techidaily.com/solomon-kr-et-al-2015-the-effects-of-glyphosate-on-amphibians-a-review-and-synthesis-environ-toxicol-pharmacol-403-899-906/"><u>Solomon KR., Et Al (2015). The Effects of Glyphosate on Amphibians: A Review and Synthesis. Environ Toxicol Pharmacol, 40(3), 899-906</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/sustained-profitable-expansion-abbyy-announces-back-to-back-double-digit-revenue-upswing-for-third-year-in-a-row/"><u>Sustained Profitable Expansion: ABBYY Announces Back-to-Back Double-Digit Revenue Upswing for Third Year in a Row</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-ultimate-guide-to-no-cost-video-recording-software-for-2024/"><u>The Ultimate Guide to No-Cost Video Recording Software for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-the-best-value-video-editing-software/"><u>Updated 2024 Approved The Best Value Video Editing Software</u></a></li>
 </ul></div>
 

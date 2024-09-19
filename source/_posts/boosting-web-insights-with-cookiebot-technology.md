@@ -1,7 +1,7 @@
 ---
 title: Boosting Web Insights with Cookiebot Technology
-date: 2024-09-12T21:23:15.421Z
-updated: 2024-09-14T19:19:13.901Z
+date: 2024-09-14T00:53:46.453Z
+updated: 2024-09-18T22:59:34.951Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80456f09fe4efb7c4b8a390fbf6961e252df6f4afa54102d41b41a895101e337.jpg
@@ -50,16 +50,16 @@ Third-party content
 
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Demonstrating ROI of process improvement
 
 Another subset of transactions they investigated were high-value cases of over $5,000, which represented $11 million of their $17 million in transaction expenses (but less than 1% of transaction volume). They wanted to understand how these transactions perform compared to the lesser value transactions. With process mining, they identified that one particular type of transaction was occurring three times more often in the high value cases than it was in the lower value cases. And the impact of this was $2.4 million in expenses, due to the lengthiness of the process and the market exposure thus created. With this knowledge, they were able to create a business case to improve the design of this process to handle that type of request on the same day, thereby eliminating the market exposure and related expense.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Improving customer experience with process mining
 
@@ -81,13 +81,6 @@ He is a thought leader with market domain expertise in AI, machine learning, pro
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Additional Insights:
 
 1 / 3 
@@ -95,6 +88,13 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -105,13 +105,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -133,6 +126,13 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**How Process Mining Improves Business Processes and Prevents Cyber Threats**](https://tools.techidaily.com/abbyy/products/)
@@ -153,13 +153,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing](https://static1.abbyy.com/abbyycommedia/37510/the-second-tax-revolution_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing**](https://tools.techidaily.com/abbyy/products/)
@@ -169,6 +162,19 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![Is Generative AI Trustworthy?](https://static2.abbyy.com/abbyycommedia/37531/ai-and-the-big-question_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -210,13 +216,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Customer Point of View: Approach Automation Step by Step**](https://tools.techidaily.com/abbyy/products/)
@@ -226,6 +225,13 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -290,17 +296,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-bridging-devices-move-images-and-videos-from-pc/"><u>[New] Bridging Devices Move Images & Videos From PC</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-insight-into-lgs-360-camera-updates-and-features-for-todays-photographers/"><u>[New] Insight Into LG's 360 Camera Updates and Features for Today's Photographers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-microdrama-writers-guide/"><u>[New] Microdrama Writers Guide</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-prime-picks-for-effortless-screenshots/"><u>[Updated] 2024 Approved Prime Picks for Effortless Screenshots</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-decision-time-choose-your-dream-video-editor-filmora-or-democracy-creator-for-2024/"><u>[Updated] Decision Time! Choose Your Dream Video Editor (Filmora or Democracy Creator) for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-comprehensive-users-manual-for-precision-playback/"><u>[Updated] The Comprehensive User's Manual for Precision Playback</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/redefining-accounts-payable-the-synergy-of-automation-and-content-knowledge/"><u>Redefining Accounts Payable: The Synergy of Automation and Content Knowledge</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/robert-youngjohns-steering-vision-as-abbyys-esteemed-board-chair/"><u>Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-ultimate-android-video-editor-app-roundup/"><u>[Updated] 2024 Approved The Ultimate Android Video Editor App Roundup</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-mac-techniques-for-capturing-your-minecraft-adventures/"><u>[Updated] Mac Techniques for Capturing Your Minecraft Adventures</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-top-essentials-for-launching-a-youtube-success-story/"><u>[Updated] Top Essentials for Launching a YouTube Success Story</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-and-blue-prism/"><u>ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effective-solutions-for-dealing-with-freezing-issues-on-your-laptop-mouse/"><u>Effective Solutions for Dealing with Freezing Issues on Your Laptop Mouse</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-vivo-y36i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-nubia-red-magic-9-proplus-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Nubia Red Magic 9 Pro+ FRP</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/top-6-must-read-digital-intelligence-insights-of-2020-featured-on-the-abbyy-blog/"><u>Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/universitat-zurich-optimiert-prufungen-mit-abbyy-flexicapture-korrektursystem/"><u>Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unlock-deeper-understanding-with-abbyys-guide-on-elevated-bi-and-process-mining-tactics-ebook/"><u>Unlock Deeper Understanding with ABBYY's Guide on Elevated BI & Process Mining Tactics [eBook]</u></a></li>
 </ul></div>
 

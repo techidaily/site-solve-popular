@@ -1,7 +1,7 @@
 ---
 title: "ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska"
-date: 2024-09-13T20:13:48.001Z
-updated: 2024-09-14T16:20:44.392Z
+date: 2024-09-11T23:37:27.448Z
+updated: 2024-09-18T17:10:39.370Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3f74865abe3cde83f5178213b8f2028e6688a23ca37959ec467d0c79369ad79b.jpg
@@ -39,6 +39,13 @@ I’ve been with ABBYY since 2004, so basically, I ‘grew up’ professionally 
 * Listen and try to understand what problem your customer is trying to solve, and proactively provide solutions and answers.
 * Enjoy what you are doing! We spend a huge part of our life at work, so if we do not enjoy what we are doing, it’s a straight path to feeling miserable.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Do you have any hobbies or fun interests?
 
 I treasure every minute I spend with my family. My son’s climbing competitions and soccer games were a very important part of my life before he left for college. My daughter, who is now a high school junior, keeps us entertained with her dance competitions.
@@ -49,18 +56,18 @@ As a family we hiked to the top of the two tallest peaks in the White Mountains�
 
 ![two children and two adults family at Mt. Washington summit](https://static1.abbyy.com/abbyycommedia/34361/larysalototska-mount.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 My two other hobbies are more relaxing. I absolutely love egg painting using old beeswax and color dyeing techniques. It’s an art called "pysanka" in Ukraine. I also love embroidery, mainly cross stitching. I decorate traditional Ukrainian clothes and make embroidery pictures.
 
 ### If you had one wish come true, what would it be?
 
 I lost my mom to a very aggressive and untreatable cancer. If I had one wish, it would be to create a magic pill to cure any kind of cancer.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What’s your pet peeve?
 
@@ -73,13 +80,6 @@ It also bothers me when I hear anyone say, “I do not know how to do this”. W
 [See all open positions](https://boards.eu.greenhouse.io/abbyy/?itm%5Fsource=corpblog)
 
 [Meet Our Team](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -144,13 +144,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ow-to-authenticate-your-yt-account-a-hint-list-for-2024/"><u>[New] How to Authenticate Your YT Account? A Hint List for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-the-smart-planners-guide-to-virtual-meeting-success/"><u>[New] In 2024, The Smart Planner's Guide to Virtual Meeting Success</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-audiovisual-amplification-harness-no-cost-tools-for-dynamic-voice-effects/"><u>[Updated] Audiovisual Amplification Harness No-Cost Tools for Dynamic Voice Effects</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-constructing-attention-grabbing-trailers-for-youtube/"><u>[Updated] In 2024, Constructing Attention-Grabbing Trailers for YouTube</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-fuels-our-sites-intelligence-discover-the-smart-technology-driving-us/"><u>Cookiebot Fuels Our Site's Intelligence: Discover the Smart Technology Driving Us!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-website-with-advanced-tracking/"><u>Cookiebot-Enabled: Optimize Your Website with Advanced Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-workforce-corporate-change-and-business-transformation/"><u>Digital Workforce, Corporate Change, and Business Transformation.</u></a></li>
-<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-pixel-8-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from Pixel 8</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-make-every-instagram-story-count-your-complete-guide/"><u>[Updated] How to Make Every Instagram Story Count – Your Complete Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-install-and-upgrade-guide-to-the-latest-macos-sierra/"><u>[Updated] Install and Upgrade Guide to the Latest macOS Sierra</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-ultimate-2024-lists-high-quality-unboxers-on-youtube/"><u>[Updated] Ultimate 2024 Lists - High-Quality Unboxers on YouTube</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-realme-c67-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Realme C67 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-global-idp/"><u>ABBYY Global IDPトレンドの最新発表:成果報告書解説</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-presente-ses-innovantes-technologies-ia-pour-lextraction-de-donnees-au-salon-banque-and-innovation-evenement-cle-2018/"><u>ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-sdgs/"><u>ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み</u></a></li>
+<li><a href="https://driver-error.techidaily.com/easily-correct-uninstalled-drivers-problem-in-windows-1087-step-by-step-tutorial/"><u>Easily Correct Uninstalled Drivers Problem in Windows 10/8/7: Step-by-Step Tutorial</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Asus ROG Phone 7 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/immediate-countermeasures-to-address-winoffice-operational-failure/"><u>Immediate Countermeasures to Address WinOffice Operational Failure</u></a></li>
+<li><a href="https://techtrends.techidaily.com/topo-de-classificacao-os-12-melhores-capturadores-de-imagens-4k-para-todos-os-dispositivos-avaliacao-compreensiva-da-movavi/"><u>Topo De Classificação: Os 12 Melhores Capturadores De Imagens 4K Para Todos Os Dispositivos - Avaliação Compreensiva Da Movavi</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
+<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-from-your-apple-iphone-xs-max-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled From your Apple iPhone XS Max? How to Fix</u></a></li>
 </ul></div>
 

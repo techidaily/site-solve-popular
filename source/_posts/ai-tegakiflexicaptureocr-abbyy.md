@@ -1,7 +1,7 @@
 ---
 title: "「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ"
-date: 2024-09-07T20:09:36.826Z
-updated: 2024-09-14T16:23:54.146Z
+date: 2024-09-16T22:17:22.778Z
+updated: 2024-09-18T20:45:16.258Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1aaa1948c8657f1c3ade15a5850d4145b4cb86fea7e0bf45a6a316b50b831479.jpg
@@ -109,23 +109,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-precise-approach-to-blend-gopro-videos-with-surrounding-virtual-landscapes/"><u>[Updated] 2024 Approved Precise Approach to Blend GoPro Videos with Surrounding Virtual Landscapes</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-quick-setup-installing-snapchat-on-your-mac-for-2024/"><u>[Updated] Quick Setup Installing Snapchat on Your Mac for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Poco F5 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-strategies-to-dodge-content-advisory-strikes/"><u>2024 Approved Strategies to Dodge Content Advisory Strikes</u></a></li>
-<li><a href="https://games-able.techidaily.com/elevating-gaming-top-9-sony-ps5-perks/"><u>Elevating Gaming: Top 9 Sony PS5 Perks</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-personalization-with-the-support-of-cookiebot-technology/"><u>Enhanced Personalization with the Support of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-efficiency-in-financial-transactions-with-abbyys-innovative-automation-technology/"><u>Enhancing Efficiency in Financial Transactions with ABBYY's Innovative Automation Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-tracking-the-power-behind-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Tracking: The Power Behind Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evaluierung-von-volkswagens-infotainmentsystemen-mit-hilfe-der-software-von-abbyy/"><u>Evaluierung Von Volkswagens Infotainmentsystemen Mit Hilfe Der Software Von ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-tomorrows-job-landscape-with-rpa-insights-from-abbyys-timeline-infobook/"><u>Exploring Tomorrow's Job Landscape with RPA: Insights From ABBYY's Timeline Infobook</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-free-guide-to-premium-mp4-screen-recorders/"><u>[New] In 2024, Free Guide to Premium MP4 Screen Recorders</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-elevates-mariko-maeda-to-leadership-role-president-and-representative-director-for-strengthening-the-japanese-market-presence/"><u>ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-insights-sync-your-wireless-headset-with-ease-and-keep-passwords-protected/"><u>ABBYY Insights: Sync Your Wireless Headset with Ease and Keep Passwords Protected</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-automatisierte-intelligenz-innovative-losungen-auf-der-expo-fur-dienstleistungsverlagerung-und-konsolidierung/"><u>ABBYY-Automatisierte Intelligenz: Innovative Lösungen Auf Der Expo Für Dienstleistungsverlagerung Und Konsolidierung</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-jailbreak-icloud-locked-apple-iphone-xr-by-drfone-ios/"><u>In 2024, How to jailbreak iCloud locked Apple iPhone XR</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-mac-video-editing-101-using-quicktime-for-stunning-results/"><u>Updated In 2024, Mac Video Editing 101 Using QuickTime for Stunning Results</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/visionary-insights-selecting-from-5-premier-slow-cameras/"><u>Visionary Insights Selecting From 5 Premier Slow Cameras</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

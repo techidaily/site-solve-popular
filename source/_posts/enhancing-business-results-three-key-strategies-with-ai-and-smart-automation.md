@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Business Results: Three Key Strategies with AI & Smart Automation"
-date: 2024-09-07T16:19:13.187Z
-updated: 2024-09-14T17:57:01.324Z
+date: 2024-09-15T18:47:19.347Z
+updated: 2024-09-18T21:00:16.812Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4116c8792bda40459f2d1e2a1bd6affbce6e7196ef5949783c79461a680de11c.jpg
@@ -48,19 +48,6 @@ While, according to The OECD’s tracker on national AI policies, there are over
 
 [Learn more about ABBYY's guiding principles for fostering the development, productization, and marketing of trustworthy AI.](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Democratization of AI: How AI is rapidly proliferating from a highly technical domain of data scientists to line of business users
 
 The shift is toward no-code / low-code AI applications development, which according to Business Wire vii is forecast to reach $45.5 billion by 2025\. The main driver is hyper-productivity improvements, which Forrester viii estimates will improve application development productivity by a factor of 10x and deliver [faster time to value](https://www.forbes.com/sites/forbestechcouncil/2021/01/27/low-code-and-no-code-bringing-tech-and-business-together/?sh=179a23df6521). While no-code / low-code development of AI-based applications offers unprecedented speed and ease of use, it also creates potential challenges. Foremost among them is AI governance, risk, and compliance challenges due to lack of scrutiny by data scientists and IT professionals.
@@ -72,10 +59,10 @@ _Sean O'Brien_
 As Sean O’Brien ix, an academic at Yale Law School and the founder of Yale’s Privacy Lab, recently warned: “Low code can be like fast food: delivered quickly and in bright packaging, but bad for you, your community, and your ecosystem.” It is important that while no-code / low-code AI development delivers inherent efficiency improvements and time to value, its implementation must include comprehensive testing to ensure that it performs in accordance with initial design objectives, removes potential bias in the training data set, and is secure from adversarial AI attacks that can undermine AI algorithmic outcomes.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Three recommendations organizations may want to consider to fully benefit from the business value of AI technologies
@@ -129,6 +116,19 @@ Digital transformation expert and AI Ethics Evangelist for ABBYY
 Andrew Pery is an AI Ethics Evangelist at intelligent automation company [ABBYY](https://tools.techidaily.com/abbyy/products/). His expertise is in artificial intelligence (AI) technologies, application software, data privacy and AI ethics. He has written and presented several papers on the ethical use of AI and is currently co-authoring a book for the American Bar Association. He holds a Masters of Law degree with Distinction from Northwestern University Pritzker School of Law and is a Certified Information Privacy Professional (CIPP/C), (CIPP/E) and a Certified Information Professional (CIP/AIIM).
 
 Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-cipp-c-cipp-e-3a536726/).
+
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -193,18 +193,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-crafting-visibility-on-youtube-the-ultimate-guide-to-featured-channel-placement/"><u>[New] 2024 Approved Crafting Visibility on YouTube The Ultimate Guide to Featured Channel Placement</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-advancing-photo-viewing-in-windows-11-merge-artistic-layers-and-soundtracks-for-2024/"><u>[Updated] Advancing Photo Viewing in Windows 11 Merge Artistic Layers and Soundtracks for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-reroute-mac-screenshot-file-destination-for-2024/"><u>[Updated] Reroute Mac Screenshot File Destination for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/detailed-privacy-and-protection-overview-your-guide-to-enhanced-security-measures/"><u>Detailed Privacy and Protection Overview: Your Guide to Enhanced Security Measures</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/discovering-abbyy-teams-of-athletes-more-than-just-their-profession/"><u>Discovering ABBYY Teams of Athletes: More than Just Their Profession</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effortless-bill-settlement-with-abbyy-enabled-mobile-banking-application/"><u>Effortless Bill Settlement with ABBYY-Enabled Mobile Banking Application</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effortless-business-automation-harnessing-the-power-of-zero-coding-ai-tools/"><u>Effortless Business Automation: Harnessing the Power of Zero-Coding AI Tools</u></a></li>
-<li><a href="https://driver-error.techidaily.com/fixing-realtek-network-not-operational-in-10/"><u>Fixing Realtek Network Not Operational in 10</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/how-to-amplify-your-online-presence-with-google-meets-aesthetic-tools-for-2024/"><u>How to Amplify Your Online Presence with Google Meet's Aesthetic Tools for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Vivo Y100? | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-steps-to-prevent-r-type-final-grogsyndicationerror)r-type-final-2-from-crashing-on-your-computer/"><u>Troubleshooting Steps to Prevent R-Type Final Grog/Syndication_error>R-Type Final 2 From Crashing on Your Computer</u></a></li>
-<li><a href="https://win11.techidaily.com/unleash-joy-essential-list-of-free-media-players-for-windows/"><u>Unleash Joy: Essential List of Free Media Players for Windows</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-ultimate-guide-to-documenting-your-vr-experiences/"><u>[New] In 2024, Ultimate Guide to Documenting Your VR Experiences</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unveiling-the-bestiary-of-top-ios-gif-tools-for-2024/"><u>[New] Unveiling the Bestiary of Top iOS GIF Tools for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-simplified-techniques-for-creating-and-modifying-multiple-snaps-in-snapchat/"><u>[Updated] 2024 Approved Simplified Techniques for Creating and Modifying Multiple Snaps in Snapchat</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-enhancing-call-clarity-silencing-distractions/"><u>[Updated] In 2024, Enhancing Call Clarity Silencing Distractions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-customization-and-seo-success/"><u>Harnessing the Power of Cookiebot for Advanced Site Customization and SEO Success</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-itel-a60-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovative-herangehensweisen-an-die-prozessanalytik-ein-detaillierter-vergleich-zwischen-den-fuhrenden-methoden-pdf-abbyy/"><u>Innovative Herangehensweisen an Die Prozessanalytik: Ein Detaillierter Vergleich Zwischen Den Führenden Methoden (PDF) - ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovative-strategies-needed-adapting-trade-finance-for-emerging-market-hurdles/"><u>Innovative Strategies Needed: Adapting Trade Finance for Emerging Market Hurdles</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-realme-c51-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/prime-asmr-apps-android-and-ios-guide/"><u>Prime ASMR Apps Android & iOS Guide</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-fixing-the-lameencdll-problem-when-using-audacity-for-mp3-files/"><u>Step-by-Step Guide: Fixing the lame_enc.dll Problem When Using Audacity for MP3 Files</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/understanding-and-fixing-the-problem-when-your-device-says-wireless-capability-is-turned-off/"><u>Understanding and Fixing the Problem When Your Device Says 'Wireless Capability Is Turned Off'</u></a></li>
 </ul></div>
 

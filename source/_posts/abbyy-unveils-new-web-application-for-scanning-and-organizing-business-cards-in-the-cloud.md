@@ -1,7 +1,7 @@
 ---
 title: ABBYY Unveils New Web Application for Scanning and Organizing Business Cards in the Cloud
-date: 2024-09-10T17:28:56.081Z
-updated: 2024-09-14T16:56:34.619Z
+date: 2024-09-17T17:04:26.525Z
+updated: 2024-09-18T21:03:37.971Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/94367d0839b4e8bd552f4ff0b46203c6692aa9dd549da1507965a6ba4039d0e6.png
@@ -70,22 +70,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-a-step-by-step-guide-to-mastering-magix-video-pro-x/"><u>[New] In 2024, A Step-by-Step Guide to Mastering Magix Video Pro X</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-social-savvy-strategies-for-maxed-out-page-popularity/"><u>[Updated] In 2024, Social Savvy Strategies for Maxed-Out Page Popularity</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-guide-to-the-latest-tiktok-screen-art/"><u>2024 Approved Guide to the Latest TikTok Screen Art</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-motorolawithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Motorolawith/without a PC</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/redefining-accounts-payable-the-synergy-of-automation-and-content-knowledge/"><u>Redefining Accounts Payable: The Synergy of Automation and Content Knowledge</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/robert-youngjohns-steering-vision-as-abbyys-esteemed-board-chair/"><u>Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-web-compendium-alarm-rhythms-guidebook-for-2024/"><u>Ultimate Web Compendium Alarm Rhythms Guidebook for 2024</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-the-ultimate-adobe-premiere-guide-6-tips-for-smoother-faster-edits/"><u>Updated In 2024, The Ultimate Adobe Premiere Guide 6 Tips for Smoother, Faster Edits</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-quick-catch-resurrecting-archived-reddit-content/"><u>[Updated] Quick Catch Resurrecting Archived Reddit Content</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-speedy-social-snooping-techniques-for-fb-users/"><u>[Updated] Speedy Social Snooping Techniques for FB Users</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-nigh-dark-nemesis-versus-sunlit-savior/"><u>2024 Approved Nigh-Dark Nemesis Versus Sunlit Savior</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1723862719981-get-ready-to-play-unleash-epic-gaming-with-lenovos-legion-slim-5-and-a-potent-rtx-ntegrated-4060-at-an-amazing-price-of-899/"><u>Get Ready to Play! Unleash Epic Gaming with Lenovo's Legion Slim 5 and a Potent RTX Ntegrated 4060 at an Amazing Price of $899</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-tecno-pova-6-pro-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-xiaomi-redmi-note-13-proplus-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Xiaomi Redmi Note 13 Pro+ 5G Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-facebook-vids-made-simple-as-mp4-downloads/"><u>In 2024, Facebook Vids Made Simple as MP4 Downloads</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovazione-in-cattolica-assicurazioni-con-elaborazione-documentale-intelligente-per-un-miglioramento-dei-servizi/"><u>Innovazione in Cattolica Assicurazioni Con Elaborazione Documentale Intelligente per Un Miglioramento Dei Servizi</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/install-your-hp-deskjet-2755e-printer-on-windows-download-official-drivers/"><u>Install Your HP Deskjet 2755E Printer on Windows: Download Official Drivers</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-and-conversion-use-ocr-technology-with-finereader-pdf/"><u>IPhone Document Scanning & Conversion: Use OCR Technology with FineReader PDF</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-smarter-web-presence-and-seo-success/"><u>Leverage Cookiebot Technology for Smarter Web Presence and SEO Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-tracking-discover-the-power-of-cookiebot-technology/"><u>Optimized with Automated Tracking: Discover the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-next-level-analytics-and-conversion-boost/"><u>Optimized With Cookiebot: Next-Level Analytics & Conversion Boost</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

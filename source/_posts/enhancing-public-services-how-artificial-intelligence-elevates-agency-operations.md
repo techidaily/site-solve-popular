@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations"
-date: 2024-09-09T18:28:48.319Z
-updated: 2024-09-14T19:43:48.338Z
+date: 2024-09-11T23:37:35.276Z
+updated: 2024-09-19T03:12:10.966Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3bd086f6ddbea0000b61dea6630a396d485fdb4d681690353291c54c1139b976.png
@@ -41,6 +41,13 @@ Given the current state of affairs, government organizations on all levels—fed
 
 The approach made the research firm’s list of [Top 10 Government Technology Trends for 2022](https://www.gartner.com/en/newsroom/press-releases/2022-02-21-govt-tech-trends-2022-press-release), on the grounds of its ability to drive progress towards the high-priority goals of retaining top talent and improving the delivery of citizen services. [Principal Research Analyst Apeksha Kaushik recently commented](https://www.gartner.com/en/newsroom/press-releases/2021-12-15-government-predicts-2022), “Governments must move from a siloed approach to a cohesive strategy encompassing employee experience and citizen experiences across multiple platforms, channels, and technologies in the most intuitive user experience.”
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### The role of AI in improving TX
 
 As government organizations explore strategies for achieving their TX goals, many are looking to the private sector for inspiration, and many of those inspiring stories center around the use of artificial intelligence. In businesses across industries, technologies such as machine learning, natural language processing (NLP), and natural language understanding (NLU) are enabling transformative experiences that benefit customers and employees alike. Here are just a few examples of AI-driven technologies that are helping businesses build a better TX.
@@ -67,13 +74,6 @@ When customers contact a business, machine learning and NLP tools can “listen 
 
 For industries at high risk for fraud, such as banking and insurance, offering mobile services such as customer onboarding and claim filing presents the dilemma of how to ensure that users are who they claim to be. With [identity proofing and identity affirmation](https://tools.techidaily.com/abbyy/products/), users provide proof of their identity via identification (ID) cards, photos, and supporting documents, and AI-based tools step in to read, verify, and authenticate the submissions, including facial matching against a real-time “selfie.” Employees are freed from the tedious task of reviewing and verifying customer documents, and customers can enjoy historically in-person-only services with a few taps on their smartphones.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Government use case: Mobile identity verification for DMV offices
 
 One government interaction nearly everyone can relate to is applying for or renewing a driver’s license at the U.S. Department of Motor Vehicles (DMV). [As ABBYY recently told Federal News Network](https://federalnewsnetwork.com/cme-event/federal-insights/delivering-on-artificial-intelligences-potential/), “Everybody has had the experience of going into the department of motor vehicles and standing in line. It doesn’t mean you didn’t receive good service. But standing in line or taking time off work can be a big challenge and inconvenience.”
@@ -82,24 +82,18 @@ A secure mobile application can eliminate the need to go to the DMV office and w
 
 The California DMV has adopted this approach for its services, and the results have been impressive. “We’ve gone from 28 minutes per Real ID transaction to about 10 minutes,” [Ajay Gupta, chief digital transformation officer at the California DMV recently told GCN](https://gcn.com/state-local/2021/01/how-ai-helped-californias-dmv-adapt-to-covid-closures/315928/). “AI-driven pre-screening is one of the reasons why we are able to do that. It also reduced customer visits because there are reduced returning customers due to incomplete documentation.”
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Proving Identity in an Increasingly Remote World
 
 Infographic
 
 [Download infographic](https://static1.abbyy.com/abbyycommedia/36372/infographic-proofofidentity-proving-identity-in-an-increasingly-remote-world-en.pdf "Download infographic") 
-
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Choosing the right solutions
 
@@ -107,18 +101,18 @@ As government entity leaders begin exploring AI tools that can help them achieve
 
 Working with a single vendor, on the contrary, enables organizations to avoid the headaches of the piecemeal approach and discover additional advantages. For example, integration of all the various components has already been done, which is good news for the IT department, and if an issue does arise, they have a single point of contact for troubleshooting. Furthermore, organizations only have to get approval for a single provider—a definite plus for the government sector, where vendor approval processes can be lengthy and labor intensive.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Turning government entities into TX leaders
 
 Government organizations can no longer cling to legacy citizen and employee experiences on the grounds that “it’s the way we’ve always done it.” Constituents demand fluid, convenient delivery of services without having to wait in line, and employees demand freedom from rote tasks to focus on work that taps into their specialized skills and expertise. By adopting a TX approach, government entities can satisfy both parties, and AI-based tools enable them to achieve their goals while optimizing use of their current resources.
 
 ![Bruceorcutt 99X99](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Bruce Orcutt
 
@@ -131,13 +125,6 @@ Orcutt was previously SVP of Product Marketing where he led the product strategy
 He is a thought leader with market domain expertise in AI, machine learning, process and task mining, document and data capture, digital transformation, intelligent document processing, and hyperautomation. He also has deep experience with mobile platforms, customer experience, and has a passion for customer excellence.
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Additional Insights:
 
@@ -156,6 +143,13 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -176,13 +170,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -213,6 +200,13 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![Welcome to The Intelligent Enterprise](https://static5.abbyy.com/abbyycommedia/37545/ulf-848x444-slate.png)](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -277,20 +271,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-ensuring-visibility-fixing-missing-shorts-thumbnails/"><u>[New] In 2024, Ensuring Visibility Fixing Missing Shorts Thumbnails</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-smart-pick-android-apps-for-large-video-meetings/"><u>[New] In 2024, Smart Pick Android Apps for Large Video Meetings</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-ranking-the-most-effortlessly-successful-youtube-content-for-2024/"><u>[Updated] Ranking the Most Effortlessly Successful YouTube Content for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-dissecting-the-efficacy-of-vidma-as-a-recorder/"><u>2024 Approved Dissecting the Efficacy of Vidma as a Recorder</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-zooms-secrets-to-flawless-live-video-streaming-on-youtube/"><u>2024 Approved Zoom's Secrets to Flawless Live Video Streaming on YouTube</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-engagement-with-cookiebot-technology-for-tailored-content-delivery/"><u>Boosting Engagement with Cookiebot Technology for Tailored Content Delivery</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-for-well-being-seven-influential-factors-to-consider-in-seeking-online-health-advice/"><u>ChatGPT for Well-Being: Seven Influential Factors to Consider in Seeking Online Health Advice</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/combining-power-of-abbyy-with-alteryx-for-enhanced-data-management-and-process-automation-solutions/"><u>Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-analytics-unleashing-website-personalization-and-targeting/"><u>Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-personalization-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Driven Personalization: Enhance User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-solutions/"><u>Cookiebot-Enabled Analytics Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-website-with-advanced-tracking/"><u>Cookiebot-Enabled: Optimize Your Website with Advanced Tracking</u></a></li>
-<li><a href="https://techidaily.com/hard-resetting-an-honor-70-lite-5g-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Honor 70 Lite 5G Device Made Easy | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-htc-u23-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/unlocking-halo-infinites-secrets-fixing-game-crashing-issues-for-smooth-playthrough/"><u>Unlocking Halo Infinite's Secrets: Fixing Game-Crashing Issues for Smooth Playthrough</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-navigating-tiktoks-money-making-path-in-8-key-steps/"><u>[New] 2024 Approved Navigating TikTok's Money-Making Path in 8 Key Steps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-enhancing-watchlist-restoring-suggested-videos-for-2024/"><u>[New] Enhancing Watchlist Restoring Suggested Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-perfect-your-posts-instagram-video-edits-with-borders/"><u>[Updated] 2024 Approved Perfect Your Posts Instagram Video Edits with Borders</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-kyc-compliance-in-finance-with-ai-and-ml-techniques-download-our-comprehensive-guide/"><u>Enhancing KYC Compliance in Finance with AI & ML Techniques - Download Our Comprehensive Guide</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-online-experience-through-cookiebot-driven-analytics/"><u>Enhancing Online Experience Through Cookiebot-Driven Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-through-cookiebot-technology/"><u>Enhancing Website Analytics Through Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/experience-enhanced-digital-presence-with-cookiebot-integration-bespoke-online-growth-tools/"><u>Experience Enhanced Digital Presence with Cookiebot Integration | Bespoke Online Growth Tools</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-can-you-stream-popular-tiktok-videos-directly-onto-your-television/"><u>How Can You Stream Popular TikTok Videos Directly Onto Your Television?</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-with-ocr-convert-pdfs-and-jpgs-using-finereader/"><u>IPhone Document Scanning with OCR: Convert PDFs & JPGs Using FineReader</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-empowering-yourself-via-facebooks-privacy-center/"><u>Step-by-Step Guide: Empowering Yourself via Facebook's Privacy Center</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-pick-review-the-smartly-crafted-twelve-south-compass-pros-unmatched-durability-and-balance/"><u>Top Pick Review: The Smartly Crafted Twelve South Compass Pro's Unmatched Durability and Balance</u></a></li>
 </ul></div>
 

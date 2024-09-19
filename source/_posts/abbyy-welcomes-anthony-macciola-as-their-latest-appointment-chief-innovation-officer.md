@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Welcomes Anthony Macciola as Their Latest Appointment: Chief Innovation Officer"
-date: 2024-09-11T16:45:27.894Z
-updated: 2024-09-14T17:12:30.606Z
+date: 2024-09-13T20:39:14.828Z
+updated: 2024-09-18T20:23:44.165Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bfe527075b76486c457bb40593f28ebdf4420fa39a7d079da9e7faa5dde71ba1.jpg
@@ -61,32 +61,23 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-achieve-uninterrupted-youtube-experience-across-os-platforms-for-2024/"><u>[Updated] Achieve Uninterrupted YouTube Experience Across OS Platforms for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-navigating-the-free-path-of-fcp-for-2024/"><u>[Updated] Navigating the Free Path of FCP for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-top-picks-samsungs-virtual-reality-adventures/"><u>2024 Approved Top Picks Samsung's Virtual Reality Adventures</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-elevates-mariko-maeda-to-leadership-role-president-and-representative-director-for-strengthening-the-japanese-market-presence/"><u>ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-automatisierte-intelligenz-innovative-losungen-auf-der-expo-fur-dienstleistungsverlagerung-und-konsolidierung/"><u>ABBYY-Automatisierte Intelligenz: Innovative Lösungen Auf Der Expo Für Dienstleistungsverlagerung Und Konsolidierung</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724313274377-abbyy/"><u>ABBYYチェッカリスト - 金融市場で勝ち抜くための強化戦略</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-erase-iphone-se-2022-when-its-locked-within-seconds-by-drfone-ios/"><u>In 2024, 3 Ways to Erase iPhone SE (2022) When Its Locked Within Seconds</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-easy-steps-on-how-to-create-a-new-apple-id-account-on-apple-iphone-6-drfone-by-drfone-ios/"><u>In 2024, Easy Steps on How To Create a New Apple ID Account On Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-smartphones-superior-topping-video-capture-lists/"><u>In 2024, Smartphones Superior Topping Video Capture Lists</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/quick-and-easy-download-thrustmaster-t150-racing-simulator-drivers/"><u>Quick and Easy Download: Thrustmaster T150 Racing Simulator Drivers</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/solving-the-kickasstorrent-disruption-immediate-solutions/"><u>Solving the KickassTorrent Disruption: Immediate Solutions</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/steps-to-confirm-and-secure-your-tiktok-videos-for-posting-for-2024/"><u>Steps to Confirm and Secure Your TikTok Videos for Posting for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-complete-checklist-for-youtubes-resolution-width-and-height-settings/"><u>[New] The Complete Checklist for YouTube's Resolution, Width & Height Settings</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expand-your-viewing-realm-on-youtube-platforms/"><u>[Updated] Expand Your Viewing Realm on YouTube Platforms</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/amds-cutting-edge-ryzen-9-9950x-smashes-speed-barriers-at-6-ghz-with-ln2-overclocking/"><u>AMD's Cutting-Edge Ryzen 9 9950X Smashes Speed Barriers at 6.^ GHz with LN2 Overclocking</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/first-steps-to-fame-8-free-courses-for-youtube-novices-for-2024/"><u>First Steps to Fame 8 Free Courses for YouTube Novices for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-unlock-icloud-account-without-password-on-iphone-12-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Unlock iCloud Account Without Password On iPhone 12</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/monetizing-your-social-media-presence-snapchat-edition-for-2024/"><u>Monetizing Your Social Media Presence Snapchat Edition for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-split-screen-video-makers-the-best-ios-and-android-apps/"><u>New In 2024, Split Screen Video Makers The Best iOS and Android Apps</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/redefining-accounts-payable-the-synergy-of-automation-and-content-knowledge/"><u>Redefining Accounts Payable: The Synergy of Automation and Content Knowledge</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/transferring-facebook-videos-directly-to-whatsapp-for-2024/"><u>Transferring Facebook Videos Directly to WhatsApp for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

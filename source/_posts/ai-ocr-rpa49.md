@@ -1,7 +1,7 @@
 ---
 title: "伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成"
-date: 2024-09-11T16:56:31.661Z
-updated: 2024-09-14T18:24:54.062Z
+date: 2024-09-12T02:42:18.468Z
+updated: 2024-09-19T03:13:29.234Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7ff9df7bb6af3b5e4d65d67011a30e37297e02c3911882325d80adc38323e6c.jpg
@@ -148,23 +148,32 @@ DXの必要性が謳われ、多くの企業がDXに取り組んでいるが、�
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-revisit-the-past-easy-access-to-fb-story-archive/"><u>[New] Revisit the Past Easy Access to FB Story Archive</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/connecting-to-google-meet-laptop-plus-mobile/"><u>Connecting to Google Meet Laptop + Mobile</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/empowering-website-insights-with-cookiebot-advanced-tracking-solutions-for-improved-seo/"><u>Empowering Website Insights with Cookiebot: Advanced Tracking Solutions for Improved SEO</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-site-performance-with-our-cookiebot-integrated-tools/"><u>Enhance Site Performance with Our Cookiebot Integrated Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-website-traffic-analysis-with-our-advanced-cookiebot-technology-solutions/"><u>Enhance Website Traffic Analysis with Our Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-by-cookiebot-solutions/"><u>Enhanced by Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-multifunctional-toshiba-printer-with-built-in-abbyy-ocr-technology/"><u>Enhanced Multifunctional Toshiba Printer with Built-In ABBYY OCR Technology</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-flashlight-from-iphone-15-pro-max-lock-screen-drfone-by-drfone-ios/"><u>How To Remove Flashlight From iPhone 15 Pro Max Lock Screen | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-sharefake-location-on-whatsapp-for-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-the-art-of-dvd-screen-fitting-for-widescreen-televisions/"><u>Mastering the Art of DVD Screen Fitting for Widescreen Televisions</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-fcp-audio-essentials-2-techniques-for-seamless-transitions/"><u>New FCP Audio Essentials 2 Techniques for Seamless Transitions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-excellent-video-recorders-for-desktops/"><u>[New] 2024 Approved Excellent Video Recorders for Desktops</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-mac-audio-setup-101-using-audacity-for-sound-recording-for-2024/"><u>[New] Mac Audio Setup 101 - Using Audacity for Sound Recording for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-ae-text-and-title-styles-guide/"><u>[Updated] AE Text & Title Styles Guide</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-strategies-for-penning-persuasive-vlogger-content/"><u>[Updated] Strategies for Penning Persuasive Vlogger Content</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-beginners-handbook-for-pc-users-initiating-a-tiktok-broadcast/"><u>2024 Approved Beginner's Handbook for PC Users - Initiating a TikTok Broadcast</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortless-bill-settlement-with-abbyy-enabled-mobile-banking-application/"><u>Effortless Bill Settlement with ABBYY-Enabled Mobile Banking Application</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortless-business-automation-harnessing-the-power-of-zero-coding-ai-tools/"><u>Effortless Business Automation: Harnessing the Power of Zero-Coding AI Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-digital-marketing-with-the-cookiebot-advantage/"><u>Enhance Your Digital Marketing with the Cookiebot Advantage</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-site-performance-with-the-help-of-cookiebot-technology/"><u>Enhanced Site Performance with the Help of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-business-results-three-key-strategies-with-ai-and-smart-automation/"><u>Enhancing Business Results: Three Key Strategies with AI & Smart Automation</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/experience-advanced-audience-engagement-using-smart-tracking-cookiebot-technology/"><u>Experience Advanced Audience Engagement Using Smart Tracking - Cookiebot Technology</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-jumpstart-gaming-fun-xbox-one-and-zoom-integration/"><u>In 2024, Jumpstart Gaming Fun Xbox One and Zoom Integration</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Oppo K11 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-german-a-difficult-target-for-learners/"><u>Is German a Difficult Target for Learners?</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

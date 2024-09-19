@@ -1,7 +1,7 @@
 ---
 title: How ABBYY's Smart Data Extraction Is Reshaping the Future of Service Businesses
-date: 2024-09-13T16:30:49.753Z
-updated: 2024-09-14T18:38:01.577Z
+date: 2024-09-13T17:19:40.330Z
+updated: 2024-09-18T19:15:31.753Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d0cb748bcb0f62a12329bda108fa11c6c1e0878f52106a0e40a69c79938a6a30.jpg
@@ -51,10 +51,10 @@ There are many possible uses for intelligent capture in service industries:
 * **Employee onboarding**. When a new employee starts with a company, they may have to submit many documents, such as identity and tax forms. Intelligent capture allows them to photograph or submit these using their mobile device, then automatically extract the information and upload it to the HR system.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Points to consider before implementation
@@ -67,6 +67,13 @@ However, you also need to ensure that the downstream business processes are as a
 
 ![Sandy Kemsley](https://static4.abbyy.com/abbyycommedia/25712/sandykemsley-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Sandy Kemsley
 
 Process Automation Industry Analyst at Column 2
@@ -76,19 +83,6 @@ Sandy is an independent analyst and systems architect, specializing in digital p
 During her career of more than 20 years, she has started and run successful product and service companies, including a desktop workflow and document management product company from 1988-90, and a 40-person services firm specializing in BPM and e-commerce from 1990-2000\. During 2000-2001, she worked for FileNet (now IBM) as Director of eBusiness Evangelism during the launch of their eProcess BPM product, and I was a featured speaker on BPM and its impact on business at conferences and customer sites in 14 countries during that time.
 
 Since 2001, she has returned to private consulting practice as a BPM/DPA architect, performing engagements for financial services and insurance organizations across North America, and as an analyst working with BPM/DPA vendors. In addition to writing her blog, she often speaks at conferences about BPM/DPA and digital transformation, and is a contributing author to books on social BPM and adaptive case management. Sandy is the recipient of the 2016 Marvin L. Manheim award for significant contributions in the field of workflow, and the 2019 winner of the Workflow Management Coalition’s award for Outstanding Business Transformation Consultant.
-
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -153,12 +147,15 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tech-haven.techidaily.com/claude-vs-chatgpt-deciding-on-the-best-ai-bot-for-daily-task-management/"><u>Claude Vs. ChatGPT – Deciding on the Best AI Bot for Daily Task Management</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Vivo T2 5G? | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/safe-ways-to-obtain-keepvid-pro-crack-expert-tips-and-troubleshooting/"><u>Safe Ways to Obtain KeepVid Pro Crack: Expert Tips & Troubleshooting</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/tech-insight-pulling-and-keeping-twitters-vids-in-phone/"><u>Tech Insight Pulling and Keeping Twitters Vids in Phone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-celestial-canvas-unveiled-select-10-sites-for-high-quality-skies/"><u>2024 Approved Celestial Canvas Unveiled Select 10 Sites for High-Quality Skies</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/car-based-energy-solutions-transforming-vehicles-into-lifelines-during-blackouts/"><u>Car-Based Energy Solutions: Transforming Vehicles Into Lifelines During Blackouts</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-xiaomi-redmi-k70e-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Xiaomi Redmi K70E 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-personalization-and-analytics/"><u>Harnessing the Power of Cookiebot for Advanced Site Personalization and Analytics</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-repair-your-broken-obs-microphone-expert-solutions-and-tips-updated/"><u>How to Repair Your Broken OBS Microphone - Expert Solutions and Tips (Updated )</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/metro-ag-auf-dem-weg-in-die-digitale-ara-eine-reise-durch-innovation-und-technologie/"><u>METRO AG Auf Dem Weg in Die Digitale Ära: Eine Reise Durch Innovation Und Technologie</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/navigating-the-future-of-arb-in-finance-unveiling-strategies-from-abbyy-white-paper-on-digital-transformation/"><u>Navigating the Future of ARB in Finance – Unveiling Strategies From ABBYY White Paper on Digital Transformation</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimize-your-websites-performance-using-advanced-cookiebot-solutions/"><u>Optimize Your Website's Performance Using Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-and-solutions-for-libxml2dll-not-found-message-on-windows-computers/"><u>Troubleshooting and Solutions for 'libxml2.dll Not Found' Message on Windows Computers</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-now-microsoft-fixes-critical-issues-in-acpi-compatible-battery-drivers/"><u>Update Now! Microsoft Fixes Critical Issues in ACPI Compatible Battery Drivers</u></a></li>
 </ul></div>
 
