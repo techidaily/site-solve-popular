@@ -1,7 +1,7 @@
 ---
 title: "Transformez La Lecture De Vos Reçus en Temps Réel Grâce À L'IA : ABBYY Sphère Numérique"
-date: 2024-09-13T03:06:45.353Z
-updated: 2024-09-18T18:53:25.377Z
+date: 2024-09-19T17:48:50.498Z
+updated: 2024-09-23T17:21:23.325Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c062bf870fbc9fd76648c39e.jpg
@@ -15,9 +15,23 @@ Brochure
 
 ![Capture, Track, and Manage Expenses the Easy Way - ABBYY Brochure](https://static1.abbyy.com/abbyycommedia/35134/77c-capture-track-and-manage-expenses-the-easy-way-fr-262x340.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Éliminez le traitement manuel des reçus grâce au Traitement Intelligent des Documents
 
 Le traitement des pièces justificatives ne devrait pas gâcher le temps et les ressources précieuses de la comptabilité. Lorsque les reçus pour les notes de frais des salariés sont traités à la main, cela se traduit souvent par des erreurs telles que des paiements en doublon, ce qui ralentit les audits et expose votre entreprise à de potentielles fraudes. La solution ABBYY de gestion des dépenses rationalise et améliore les processus de remboursement des dépenses. Il s’agit d’une solution prête à l’emploi pour traiter automatiquement les reçus et en extraire les précieuses données dont vous avez besoin pour une gestion exacte des dépenses.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Télécharger maintenant!
 
@@ -30,10 +44,16 @@ Téléchargez cette brochure pour savoir comment la solution ABBYY de traitement
 * Maîtrise totale du budget dépensé
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Merci de votre intérêt pour ABBYY.
@@ -43,16 +63,10 @@ Téléchargez cette brochure pour savoir comment la solution ABBYY de traitement
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
@@ -124,21 +138,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-maximizing-your-channels-earning-potential-through-trailers/"><u>[New] Maximizing Your Channel's Earning Potential Through Trailers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-a-compreited-chronological-catalog-of-your-image-collection/"><u>[Updated] A Compreited Chronological Catalog of Your Image Collection</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-sim-inspired-memories-a-comprehensive-guide-to-capturing-life-events-with-gameplay-recordings/"><u>2024 Approved Sim-Inspired Memories A Comprehensive Guide to Capturing Life Events with Gameplay Recordings</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-honor-x9a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Honor X9a | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724312901263-abbyy-finereader-14/"><u>ABBYY FineReader 14 - 職場向けの文書ワークフローを一新する先進技術</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724312889342-cookiebot-enabled-optimize-your-site-with-advanced-analytics/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Analytics!</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-itel-p55-by-drfone-android/"><u>How to Bypass FRP on Itel P55?</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-resolve-launch-failures-in-star-wars-the-old-republic-swtor-game/"><u>How to Resolve Launch Failures in Star Wars: The Old Republic (SWTOR) Game</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/stream-success-on-two-platforms-ytplustwitch-to-expand-audience-for-2024/"><u>Stream Success on Two Platforms (YT+Twitch) to Expand Audience for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/the-role-of-artificial-intelligence-and-ml-in-streamlining-kyc-processes-for-financial-services/"><u>The Role of Artificial Intelligence & ML in Streamlining KYC Processes for Financial Services.</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/the-ultimate-guide-to-recording-your-lol-adventures-3-ways/"><u>The Ultimate Guide to Recording Your LOL Adventures (3 Ways)</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-honor-100-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Honor 100 for Streaming | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-strategies-fur-fandr-verantwortliche-erkenntnisse-aus-dem-abbyy-gipfel-der-fuhrenden-deutschen-cfos-201/"><u>Top Strategies Für F&R-Verantwortliche: Erkenntnisse Aus Dem ABBYY Gipfel Der Führenden Deutschen CFOs 201</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-the-complexities-in-organizational-process-management-lessons-from-the-abbyy-blog/"><u>Understanding The Complexities in Organizational Process Management – Lessons From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-web-analytics-and-performance/"><u>Utilizing Cookiebot Technology for Optimized Web Analytics & Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/vereinheitlichte-buchhalterlosungen-mit-iguana-und-abbyy-fur-verbesserte-kreditorenverwaltung-and-geschaftsprozesse/"><u>Vereinheitlichte Buchhalterlösungen Mit IGuana Und ABBYY Für Verbesserte Kreditorenverwaltung & Geschäftsprozesse</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-achieve-professional-grade-aesthetics-top-10-insta-grid-makers-for-2024/"><u>[Updated] Achieve Professional-Grade Aesthetics Top 10 Insta Grid Makers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-reversal-a-guide-to-rewinding-your-youtube-sequence/"><u>[Updated] Mastering Reversal A Guide to Rewinding Your YouTube Sequence</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-the-rise-of-vidma-transforming-the-landscape-of-capture-technology-for-2024/"><u>[Updated] The Rise of Vidma Transforming the Landscape of Capture Technology for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unblock-mystery-solved-detecting-snapchat-shutout-for-2024/"><u>[Updated] Unblock Mystery Solved Detecting Snapchat Shutout for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-soundtrack-streamlining-top-websites-for-skype-ringtones/"><u>2024 Approved Soundtrack Streamlining Top Websites for Skype Ringtones</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-engagement-with-cookiebot-technology-for-tailored-content-delivery/"><u>Boosting Engagement with Cookiebot Technology for Tailored Content Delivery</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/combining-power-of-abbyy-with-alteryx-for-enhanced-data-management-and-process-automation-solutions/"><u>Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-fuels-our-sites-intelligence-discover-the-smart-technology-driving-us/"><u>Cookiebot Fuels Our Site's Intelligence: Discover the Smart Technology Driving Us!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-analytics-unleashing-website-personalization-and-targeting/"><u>Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-personalization-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Driven Personalization: Enhance User Experience with Smart Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-solutions/"><u>Cookiebot-Enabled Analytics Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-website-with-advanced-tracking/"><u>Cookiebot-Enabled: Optimize Your Website with Advanced Tracking</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/cut-through-background-distraction-for-pro-images/"><u>Cut Through Background Distraction for Pro Images</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/digital-workforce-corporate-change-and-business-transformation/"><u>Digital Workforce, Corporate Change, and Business Transformation.</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-with-advanced-automated-marketing-solutions-from-cookiebot/"><u>Driven with Advanced Automated Marketing Solutions From Cookiebot</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effective-strategies-to-improve-page-visibility-in-google-search-results/"><u>Effective Strategies to Improve Page Visibility in Google Search Results</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-beyond-low-definition-the-ultimate-path-from-sdr-to-hdri-video/"><u>In 2024, Beyond Low Definition The Ultimate Path From SDR to HDRI Video</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/inside-the-rack-an-exploration-by-toms-electronics-review/"><u>Inside the Rack: An Exploration by Tom's Electronics Review</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/revolutionize-your-online-presence-with-manycam-leading-live-streaming-virtual-camera-tech-for-content-creators/"><u>Revolutionize Your Online Presence with ManyCam: Leading Live Streaming, Virtual Camera Tech for Content Creators</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/safe-secure-and-stress-free-exclusive-list-of-free-video-call-apps-for-iphoneandroid/"><u>Safe, Secure & Stress-Free Exclusive List of Free Video Call Apps for iPhone/Android</u></a></li>
 </ul></div>
 

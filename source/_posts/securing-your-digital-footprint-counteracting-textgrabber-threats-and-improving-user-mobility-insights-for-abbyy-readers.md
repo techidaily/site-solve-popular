@@ -1,7 +1,7 @@
 ---
 title: "Securing Your Digital Footprint: Counteracting TextGrabber Threats & Improving User Mobility | Insights for ABBYY Readers"
-date: 2024-09-11T21:53:53.633Z
-updated: 2024-09-19T01:48:23.470Z
+date: 2024-09-20T17:35:02.628Z
+updated: 2024-09-23T16:01:34.339Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f3622d27aea03408c9719ceb.jpg
@@ -51,6 +51,13 @@ Currently the app can only recognize commands spoken in English, but the develop
 
 Google has developed a special package of ready-to-use tools that developers can integrate into their own apps to make them more accessible to people with disabilities. The toolkit will enable users to control apps using their voice. It will also read out UI menus and commands, and will cause different buttons to vibrate differently, so that users with visual impairments can easily recognize them.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **ABBYY Tip: Disabling the “Grabbed with** **TextGrabber** **” Signature Line**
 
 If you are using TextGrabber to send documents via email, then you might have already noticed that sometimes a signature with a text saying “Grabbed with [TextGrabber](https://go.onelink.me/oo1u/cef0166e)” appears at the bottom of your emails. Until recently, this feature was always enabled by default and the text could only be removed from your email manually.
@@ -63,6 +70,13 @@ In the latest [TextGrabber](https://go.onelink.me/uny1/c9b5ef5c) updates for iOS
 
 ![abbyy textgrabber](https://static1.abbyy.com/abbyycommedia/26871/abbyy-textgrabber.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you have an Android phone, do the following:
 
 1. Open [TextGrabber](https://go.onelink.me/uny1/c9b5ef5c)
@@ -71,6 +85,13 @@ If you have an Android phone, do the following:
 4. Locate the “**Add signature**” option and turn it off
 
 For more information about disabling this signature in [FineScanner](https://go.onelink.me/0oMB/2b084a0a), see [this article](https://tools.techidaily.com/abbyy/products/).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **App of the Week: Habitty for iOS**
 
@@ -87,10 +108,10 @@ That’s all, folks!
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -156,17 +177,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/-detailed-exploration-youtubes-visionary-suite/"><u>[New] A Detailed Exploration YouTube's Visionary Suite</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-pioneering-virtual-play-samsungs-most-popular-titles/"><u>[New] Pioneering Virtual Play Samsung's Most Popular Titles</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-closing-in-on-the-essence-of-cinematic-action/"><u>[Updated] 2024 Approved Closing in on the Essence of Cinematic Action</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-seamless-sound-selecting-4-websites-for-ringtones/"><u>[Updated] Seamless Sound Selecting 4 Websites for Ringtones</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/disabled-apple-iphone-6s-plus-how-to-unlock-a-disabled-apple-iphone-6s-plus-drfone-by-drfone-ios/"><u>Disabled Apple iPhone 6s Plus How to Unlock a Disabled Apple iPhone 6s Plus? | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/from-novice-to-nifty-mastering-snapchats-digital-artistry-for-2024/"><u>From Novice to Nifty Mastering Snapchat’s Digital Artistry for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-nubia-z50-ultra-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Nubia Z50 Ultra? Tips, Tricks and Helpful Advice</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-scan-and-convert-documents-with-ocr-technology-perfectpdf-tools/"><u>IPhone Scan & Convert Documents with OCR Technology - PerfectPDF Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/les-avantages-de-rpa-pour-les-entreprises-francaises-une-etude-revelatrice-dun-retour-sur-investissement-positif-des-la-premiere-annee-informations-par-abby29/"><u>Les Avantages De RPA Pour Les Entreprises Françaises : Une Étude Révélatrice D'un Retour Sur Investissement Positif Dès La Première Année - Informations Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/les-dernieres-avancees-de-machine-learning-sur-la-solution-flexicapture-optimiser-avec-abbyy-technologie/"><u>Les Dernières Avancées De Machine Learning Sur La Solution FlexiCapture - Optimiser Avec ABBYY Technologie</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-your-playlists-the-ultimate-method-for-unliking-songs-on-spotify/"><u>Mastering Your Playlists: The Ultimate Method for Unliking Songs on Spotify</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-from-snapshots-to-blockbusters-the-ultimate-video-enhancement-tool/"><u>New From Snapshots to Blockbusters The Ultimate Video Enhancement Tool</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-15-youtube-starter-templates-a-guide-to-popularity-for-2024/"><u>[New] 15 YouTube Starter Templates A Guide to Popularity for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-collaboration-for-effective-content-delivery/"><u>[New] In 2024, YouTube Collaboration for Effective Content Delivery</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-ultimate-guide-unveiling-the-top-8-youtube-boosters/"><u>2024 Approved The Ultimate Guide Unveiling the Top 8 Youtube Boosters</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/efficient-session-management-and-targeting-through-cutting-edge-cookiebot-solutions/"><u>Efficient Session Management and Targeting Through Cutting-Edge Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-business-excellence-by-mastering-process-mapping-assessment-and-simulation-tactics/"><u>Elevate Business Excellence by Mastering Process Mapping, Assessment & Simulation Tactics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevating-industry-standards-ap-automation-success-story-of-siemens-and-abbyy/"><u>Elevating Industry Standards: AP Automation Success Story of Siemens and ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-collaboration-effortlessly-using-abbyy-timeline-5s-new-task-mining-technology/"><u>Enhance Collaboration Effortlessly Using ABBYY Timeline 5’S New Task Mining Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-web-personalization-with-the-power-of-cookiebot-technology/"><u>Enhance Web Personalization with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-motorola-edge-40-pro-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Motorola Edge 40 Pro to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-infinix-note-30-5g-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Infinix Note 30 5G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/install-updated-drivers-for-your-hp-laserjet-p1007-step-by-step-download-guide/"><u>Install Updated Drivers for Your HP LaserJet P1007 - Step-by-Step Download Guide</u></a></li>
+<li><a href="https://win-able.techidaily.com/1722985156970-ultimate-solution-to-stop-xcom-angs-on-your-windows-pc-now/"><u>Ultimate Solution to Stop XCOM Angs on Your Window's PC - Now!</u></a></li>
 </ul></div>
 

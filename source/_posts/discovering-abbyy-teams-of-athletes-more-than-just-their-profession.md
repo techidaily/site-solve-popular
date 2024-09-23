@@ -1,7 +1,7 @@
 ---
 title: "Discovering ABBYY Teams of Athletes: More than Just Their Profession"
-date: 2024-09-12T19:23:18.404Z
-updated: 2024-09-18T20:06:32.547Z
+date: 2024-09-19T16:45:27.678Z
+updated: 2024-09-23T16:19:07.235Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b88f149e018190d8db992f5fa62ce84a76816eeb035902ad86368ed1da64a17e.jpg
@@ -18,9 +18,23 @@ July 26, 2024
 
 Welcome to another article in our "Beyond the Job Title" series, where we explore the passions of ABBYY employees outside of work and how these interests contribute to their success in the workplace. This time, we dive into the lives of our sports and fitness enthusiasts, showcasing how their athletic pursuits help them excel both personally and professionally. In this article, you’ll meet Pierre, our US-based Director of Professional Services with a passion for bodybuilding; Greta, our UK-based Field Marketing and Demand Generation Specialist who thrives on kickboxing; Aniko, a Customer Excellence Business Operations Specialist in Budapest who finds her second home at the gym; and Ukraine-based Oksana who’s not only one of our Renewals Manager, but also a world-class powerlifter.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Pierre Van der Westhuizen, Director of Professional Services, US
 
 ![pierre-abbyy-body-builder-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-sports-enthusiasts-of-abbyy/pierre-abbyy-body-builder-848.png?h=564&w=848)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Pierre Van der Westhuizen's journey in fitness began with a love for tennis and evolved into a lifelong commitment to bodybuilding. He shares his story and insights on how his dedication to fitness impacts his role at ABBYY where he now leads our “Fitness and Nutrition” employee initiative group, inspiring our colleagues and building a community of like-minded individuals in our team.
 
@@ -40,9 +54,23 @@ When asked this question, Pierre was quick to correct us “bodybuilding is not 
 
 Bodybuilding has taught Pierre valuable lessons in discipline and consistency. "There really are no secrets, you show up and do the work!" He also highlights how the sport teaches perseverance through challenging tasks and fosters a sense of community and mentorship. These skills translate well into his professional life, helping him approach work with the same dedication and willingness to share knowledge.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Greta Banaityte, Field Marketing and Demand Generation Specialist, UK
 
 ![abbyy-greta-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-sports-enthusiasts-of-abbyy/abbyy-greta-848.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Greta’s passion for kickboxing not only keeps her fit but also boosts her confidence and relieves stress. Here’s how kickboxing plays a crucial role in her work-life balance and professional development.
 
@@ -58,29 +86,9 @@ Kickboxing provides Greta with a great way to stay active and unwind, ensuring s
 
 Several skills and lessons from kickboxing are highly transferable to Greta's work at ABBYY. She highlights patience and stamina as invaluable when managing various marketing situations. "Kickboxing has taught me the importance of perseverance," she notes, explaining how this mindset helps her navigate setbacks. Additionally, kickboxing has shown her not to be intimidated by others, allowing her to approach interactions with courage and determination. “Everyone has their weak spots, and this understanding helps me approach interactions with confidence and assertiveness, ensuring that my voice and ideas are heard within the team”, she told us.
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Aniko Biro, Hungary-based Customer Excellence Business Operations Specialist, Hungary
 
 ![aniko-abbyy-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-sports-enthusiasts-of-abbyy/aniko-abbyy-848.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Aniko’ commitment to the gym has not only improved her physical health but also provided her with valuable skills that enhance her performance at ABBYY. We sat down with her to find out more about how passion for fitness contributes positively to her day job at ABBYY.
 
@@ -185,17 +193,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-building-a-strong-introduction-examples-and-methods/"><u>[Updated] Building a Strong Introduction Examples & Methods</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-vr-innovations-unwrapped-top-peripherals-spotlight-for-2024/"><u>[Updated] VR Innovations Unwrapped - Top Peripherals Spotlight for 2024</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/5-effective-methods-for-converting-wma-files-to-mp3-a-comprehensive-guide-updated/"><u>5 Effective Methods for Converting WMA Files to MP3: A Comprehensive Guide (Updated)</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automated-customer-engagement-with-cookiebot-technology/"><u>Automated Customer Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-traffic-with-cookiebot-powerful-site-engagement-tools/"><u>Boost Traffic with Cookiebot - Powerful Site Engagement Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-engagement-with-cookiebot-technology-for-tailored-content-delivery/"><u>Boosting Engagement with Cookiebot Technology for Tailored Content Delivery</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/combining-power-of-abbyy-with-alteryx-for-enhanced-data-management-and-process-automation-solutions/"><u>Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-videos-from-your-nokia-c210-by-fonelab-android-recover-video/"><u>How to recover old videos from your Nokia C210</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-a-found-apple-iphone-15-pro-max-by-drfone-ios/"><u>How To Unlock A Found Apple iPhone 15 Pro Max?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-10-must-have-keyword-gurus-for-video-success/"><u>In 2024, 10 Must-Have Keyword Gurus for Video Success</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/meme-crafting-undead-androids-for-2024/"><u>Meme Crafting Undead Androids for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-unlock-new-possibilities-filmora-x-adds-arm-support-for-2024/"><u>New Unlock New Possibilities Filmora X Adds ARM Support for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-fundamentals-of-motion-design-and-practical-application-for-2024/"><u>[Updated] Fundamentals of Motion Design & Practical Application for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-mastering-chrome-os-4-screenshots-tricks/"><u>[Updated] Mastering Chrome OS 4 Screenshots Tricks</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-road-warriors-top-virtual-races-listed-for-2024/"><u>[Updated] Road Warriors Top Virtual Races Listed for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-premier-index-affordable-flexible-image-sources/"><u>2024 Approved Premier Index Affordable, Flexible Image Sources</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-personalization-with-the-support-of-cookiebot-technology/"><u>Enhanced Personalization with the Support of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-efficiency-in-financial-transactions-with-abbyys-innovative-automation-technology/"><u>Enhancing Efficiency in Financial Transactions with ABBYY's Innovative Automation Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-tracking-the-power-behind-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Tracking: The Power Behind Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/evaluierung-von-volkswagens-infotainmentsystemen-mit-hilfe-der-software-von-abbyy/"><u>Evaluierung Von Volkswagens Infotainmentsystemen Mit Hilfe Der Software Von ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/exploring-tomorrows-job-landscape-with-rpa-insights-from-abbyys-timeline-infobook/"><u>Exploring Tomorrow's Job Landscape with RPA: Insights From ABBYY's Timeline Infobook</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Sony Xperia 1 V? | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/win11-graphic-glitch-rectified/"><u>Win11 Graphic Glitch Rectified</u></a></li>
 </ul></div>
 

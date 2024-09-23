@@ -1,7 +1,7 @@
 ---
 title: Online Marketplace Exceeds Growth Targets and Boosts Operational Productivity with Cutting-Edge Invoice Management Technology
-date: 2024-09-12T19:49:35.218Z
-updated: 2024-09-19T02:22:10.022Z
+date: 2024-09-21T16:44:32.048Z
+updated: 2024-09-23T17:56:30.576Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f5fbbf41453d9824bf6879798120e6de2082db27f668f4cb2a72d45c0fe37f64.jpg
@@ -19,11 +19,25 @@ Other | Accounts Payable Automation
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Top online retailer speeds growth and improves operating efficiency with invoice automation
 
 Other | Accounts Payable Automation 
 
 ![](https://static1.abbyy.com/abbyycommedia/15575/22-pcrush-1.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Customer Overview
 
@@ -100,6 +114,13 @@ As for the future, Dy is confident in FlexiCapture’s ongoing benefits: “As w
 
 [![4-flexicapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![1-accounts-payable](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Accounts Payable](https://tools.techidaily.com/abbyy/products/) 
@@ -107,6 +128,13 @@ As for the future, Dy is confident in FlexiCapture’s ongoing benefits: “As w
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![(19) eFileCabinet-2](https://static5.abbyy.com/abbyycommedia/15570/19-efilecabinet-2.png)](https://static2.abbyy.com/abbyycommedia/1007/fc%5Fpcrush%5Fecommerce%5F2014%5Fusa.pdf "PDF version") [PDF version](https://static2.abbyy.com/abbyycommedia/1007/fc%5Fpcrush%5Fecommerce%5F2014%5Fusa.pdf "PDF version") 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [read more](https://static2.abbyy.com/abbyycommedia/1007/fc%5Fpcrush%5Fecommerce%5F2014%5Fusa.pdf "PDF version") 
 
@@ -139,31 +167,19 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-iphone-vr-videos-unveiled-a-quick-how-to/"><u>[Updated] In 2024, IPhone VR Videos Unveiled A Quick How-To</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-an-introductory-overview-using-ez-grabber-software/"><u>2024 Approved An Introductory Overview Using EZ Grabber Software</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-silent-sounds-garagebands-volume-control-magic/"><u>2024 Approved Mastering Silent Sounds Garageband's Volume Control Magic</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/discovering-the-best-in-android-gaming-kinemaster-edition/"><u>Discovering the Best in Android Gaming KineMaster Edition</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-and-enhance-your-synaptic-touchpad-drivers-step-by-step/"><u>Download & Enhance Your Synaptic Touchpad Drivers - Step by Step</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-online-performance-using-the-powerful-features-of-cookiebot-technology/"><u>Enhance Online Performance Using the Powerful Features of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-with-advanced-automation-powered-by-the-cutting-edge-cookiebot-technology/"><u>Enhanced with Advanced Automation: Powered by the Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/expanded-pdf-handling-in-latest-abbyys-finereader-version-14-for-improved-document-processing/"><u>Expanded PDF Handling in Latest ABBYY's FineReader Version 14 for Improved Document Processing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-personalized-content-with-our-cookiebot-integration/"><u>Experience Personalized Content with Our Cookiebot Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/forbes-insight-transitioning-from-traditional-documents-to-advanced-digital-process-analytics/"><u>Forbes Insight: Transitioning From Traditional Documents to Advanced Digital Process Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harness-the-power-of-cookiebot-for-optimized-web-traffic-growth/"><u>Harness the Power of Cookiebot for Optimized Web Traffic Growth</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-samsung-galaxy-s21-fe-5g-2023-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Samsung Galaxy S21 FE 5G (2023) Devices | Dr.fone</u></a></li>
-<li><a href="https://media-tips.techidaily.com/understanding-youtubes-high-quality-streaming-exploring-the-enhanced-bitrate/"><u>Understanding YouTube's High-Quality Streaming: Exploring the Enhanced Bitrate</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/everaging-google-meet-for-youtube-streaming-a-step-by-step-process-for-2024/"><u>[New] Leveraging Google Meet for YouTube Streaming A Step-by-Step Process for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-enhancing-virtual-communication-applying-zoom-filter-features/"><u>[Updated] In 2024, Enhancing Virtual Communication Applying Zoom Filter Features</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-fuels-our-sites-intelligence-discover-the-smart-technology-driving-us/"><u>Cookiebot Fuels Our Site's Intelligence: Discover the Smart Technology Driving Us!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-solutions/"><u>Cookiebot-Enabled Analytics Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-website-with-advanced-tracking/"><u>Cookiebot-Enabled: Optimize Your Website with Advanced Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/digital-workforce-corporate-change-and-business-transformation/"><u>Digital Workforce, Corporate Change, and Business Transformation.</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-with-advanced-automated-marketing-solutions-from-cookiebot/"><u>Driven with Advanced Automated Marketing Solutions From Cookiebot</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effective-strategies-to-improve-page-visibility-in-google-search-results/"><u>Effective Strategies to Improve Page Visibility in Google Search Results</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/experience-ultra-fast-data-transfer-with-raid-card-technology-reach-speeds-of-56-gbs-via-dual-setups-of-pcie-50-and-40-nvme-ssds/"><u>Experience Ultra-Fast Data Transfer with RAID Card Technology - Reach Speeds of 56 GB/S via Dual Setups of PCIe 5.0 and 4.0 NVMe SSDs</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebook-is-defining-satirical-expression/"><u>How Facebook Is Defining Satirical Expression</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-itel-s23plus-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Itel S23+ Location by Number | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-xiaomi-13t-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Xiaomi 13T Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-infinix-note-30-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/windows-11-compatible-how-to-download-and-update-your-amd-radeon-hd-7870-graphics-card-drivers/"><u>Windows 11 Compatible - How to Download & Update Your AMD Radeon HD 7870 Graphics Card Drivers</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

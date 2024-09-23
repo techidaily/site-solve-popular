@@ -1,7 +1,7 @@
 ---
 title: Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog
-date: 2024-09-16T17:08:58.411Z
-updated: 2024-09-18T16:48:19.654Z
+date: 2024-09-19T17:11:18.343Z
+updated: 2024-09-23T18:23:09.225Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a9de22e1aa59a5e7f9127b24.jpg
@@ -21,9 +21,29 @@ We had a year full of amazing stories that demonstrate the value of Digital Inte
 
 Here are our most interesting and favorite Digital Intelligence stories from 2020, in case you missed any of them.
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. The Human Touch: The Untapped Opportunity for Making AI Work for Insurance
 
 ![digital transformation 2020](https://static1.abbyy.com/abbyycommedia/31574/blog-digital-intelligence-2-848x444.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The opportunity for artificial intelligence (AI) is in targeting the end-to-end processing of documents for human-machine collaboration as an essential part of the customer journey. Customer acquisition and retention remain the essential drivers of insurance revenue and profit; however, knowing how to create experiences to acquire and keep customers happy remains challenging.
 
@@ -38,13 +58,6 @@ A new breed of competitor—Insuretechs—target smart technologies at the custo
 With social distancing measures in place and businesses across diverse industries that temporarily closed their store fronts, the digital experience has never been more critical for businesses and the customers who depend on them. Consumers develop brand loyalty and trust in accordance to the degree a company can best meet their needs—both in everyday circumstances and especially during a crisis. That makes it even more important for businesses to leverage [mobile capabilities](https://tools.techidaily.com/abbyy/products/) and optimize the digital experience across customer-facing operations now to serve consumer expectations. Companies that pivot the customer experience accordingly will be poised to emerge ahead of the curve in the post COVID-19 world.
 
 [Read the article.](https://www.cmswire.com/digital-experience/social-distancing-has-raised-the-bar-for-the-digital-experience/)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Data Insight Plays a Key Role in How ABBYY Supplies Vital Pieces of the RPA Puzzle
 
@@ -62,20 +75,27 @@ COVID-19 is the defining event of 2020, and with it, ”social distancing” ent
 
 [Read the article.](https://www.kmworld.com/Articles/Editorial/ViewPoints/The-need-for-digital-intelligence-in-the-time-of-social-distancing--140797.aspx)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Six Steps to Revive Your Digital Transformation Projects
 
 ![ideas for improving customer service](https://static1.abbyy.com/abbyycommedia/31624/blog-digital-intelligence-1-848x444.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The pandemic shifted many IT resources toward business continuity efforts, and many workers and leaders reached the point where they were struggling to ramp up or resume digital transformation projects. Organizations looked to tap into the benefits attained from scaling end-to-end digital transformation but needed direction on the right strategies to accelerate higher-value initiatives. The challenges stem from a lack of understanding of business processes coupled with an inability to turn a company’s data into actionable, valuable information that drives strategic business decisions. ABBYY shared six fundamental steps to help implement digital transformation.
 
 [Read the article.](https://www.cmswire.com/leadership/6-steps-to-revive-your-digital-transformation-projects/)
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Five Crucial Insurance Questions for the Post-COVID 'New Normal'
 
@@ -88,13 +108,6 @@ We shared five questions to help leaders at insurance companies evaluate if ther
 [Read the article.](https://www.dig-in.com/opinion/covid-19-5-tips-for-insurers-to-thrive)
 
 [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -159,16 +172,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/rom-zero-to-hero-youtube-tech-required-for-2024/"><u>[New] From Zero to Hero YouTube Tech Required for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-how-to-create-engaging-screencasts-a-practical-guide-for-2024/"><u>[New] How to Create Engaging Screencasts A Practical Guide for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-strategies-for-perfecting-igtv-video-titles/"><u>[New] Strategies for Perfecting IGTV Video Titles</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-from-recording-to-broadcasting-the-steam-gamers-path-for-2024/"><u>[Updated] From Recording to Broadcasting The Steam Gamers' Path for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/best-8-online-locations-for-3d-text-psd-downloads/"><u>Best 8 Online Locations for 3D Text PSD Downloads</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-smarter-web-presence-and-seo-success/"><u>Leverage Cookiebot Technology for Smarter Web Presence and SEO Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-tracking-discover-the-power-of-cookiebot-technology/"><u>Optimized with Automated Tracking: Discover the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-next-level-analytics-and-conversion-boost/"><u>Optimized With Cookiebot: Next-Level Analytics & Conversion Boost</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/transforming-youtube-content-using-the-power-of-imovie-for-2024/"><u>Transforming YouTube Content Using the Power of iMovie for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-insider-writers-on-popular-tiktok-wallpapers/"><u>[New] 2024 Approved Insider' Writers on Popular TikTok Wallpapers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-capturing-classroom-dynamics-easily-for-2024/"><u>[New] Capturing Classroom Dynamics Easily for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-easy-desktop-screen-capture-method-for-2024/"><u>[Updated] Easy Desktop Screen Capture Method for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-automation-enhancing-your-digital-marketing-efforts/"><u>Cookiebot-Driven Automation: Enhancing Your Digital Marketing Efforts</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-solutions-enhanced-site-traffic-and-conversion/"><u>Cookiebot-Driven Solutions | Enhanced Site Traffic & Conversion</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-websites-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's Analytics & Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-boosting-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Boosting Your Site with Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-backbone-of-personalized-web-interactions/"><u>Cookiebot: The Backbone of Personalized Web Interactions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-efficient-and-smart-powering-behind-your-web-analytics/"><u>Cookiebot: The Efficient and Smart Powering Behind Your Web Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cut-invoice-processing-time-in-half-using-norco-technology/"><u>Cut Invoice Processing Time in Half Using Norco Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cyberpunk-2077-evaluation-striking-despite-its-unpolished-edges/"><u>Cyberpunk 2077 Evaluation: Striking Despite Its Unpolished Edges</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/detailed-privacy-and-protection-overview-your-guide-to-enhanced-security-measures/"><u>Detailed Privacy and Protection Overview: Your Guide to Enhanced Security Measures</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/discovering-abbyy-teams-of-athletes-more-than-just-their-profession/"><u>Discovering ABBYY Teams of Athletes: More than Just Their Profession</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortless-bill-settlement-with-abbyy-enabled-mobile-banking-application/"><u>Effortless Bill Settlement with ABBYY-Enabled Mobile Banking Application</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/enter-the-contest-for-your-chance-at-a-complimentary-corsair-t2-elite-gaming-seat/"><u>Enter the Contest for Your Chance at a Complimentary Corsair T2 Elite Gaming Seat</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-install-and-update-hardware-device-drivers-manually-in-windows-10-and-7-by-drivereasy-guide/"><u>How to install and update hardware device drivers manually in Windows 10 & 7</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-your-iphone-15-pro-max-on-metropcs-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Your iPhone 15 Pro Max on MetroPCS</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/navigating-the-world-of-computing-with-toms-guidance/"><u>Navigating the World of Computing with Tom's Guidance</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/reactivate-and-enhance-photo-viewing-with-ease-win-11/"><u>Reactivate and Enhance Photo Viewing with Ease (Win 11)</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/revealing-concealed-mac-finder-items-a-step-by-step-guide-using-terminal/"><u>Revealing Concealed Mac Finder Items: A Step-by-Step Guide Using Terminal</u></a></li>
 </ul></div>
 

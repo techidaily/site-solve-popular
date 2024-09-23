@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations"
-date: 2024-09-11T23:37:35.276Z
-updated: 2024-09-19T03:12:10.966Z
+date: 2024-09-18T17:59:04.489Z
+updated: 2024-09-23T16:36:02.856Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3bd086f6ddbea0000b61dea6630a396d485fdb4d681690353291c54c1139b976.png
@@ -27,6 +27,13 @@ When the pandemic forced brick-and-mortar service providers to close their doors
 
 [As Sha Hwang and Annelies Goger of the Brookings Institution recently noted](https://www.brookings.edu/blog/the-avenue/2022/01/12/want-to-restore-trust-in-government-start-with-customer-experience/), “The frustration many Americans experience in even the most basic interactions with government—like renewing a driver’s license or filing taxes—fractures trust in our institutions, which is already near historic lows.” In an effort to turn the tide, United States President Joe Biden signed [an executive order calling on federal agencies to make services—particularly digital services—easier to use](https://www.whitehouse.gov/briefing-room/statements-releases/2021/12/13/fact-sheet-putting-the-public-first-improving-customer-experience-and-service-delivery-for-the-american-people/), more modernized, and more transparent.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Retaining top talent
 
 Another unforeseen outcome of the pandemic is the “Great Resignation,” the wave of post-lockdown job changing that began in the spring of 2021—driven primarily, [as a Gallup survey revealed, by workers who identified as being “not engaged” or “actively disengaged](https://www.gallup.com/workplace/351545/great-resignation-really-great-discontent.aspx)”. While quit rates within the federal government remained relatively steady, the Rockefeller Institute of Government reports that [the employment level in state and local government is still 928,000 below where it was before the pandemic hit](https://rockinst.org/blog/the-great-resignations-impact-on-local-government/).
@@ -35,18 +42,18 @@ The Great Resignation became a wake-up call to employers across industries about
 
 Given the current state of affairs, government organizations on all levels—federal, state, and local—need strategies that elevate both citizen and employee experiences while optimizing the use of their resources.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What is total experience (TX)?
 
 [Total experience for government entities, according to Gartner,](https://www.gartner.com/en/newsroom/press-releases/2021-12-15-government-predicts-2022) combines the disciplines of user experience (UX), citizen experience (CX), employee experience (EX) and multiexperience (MX) into one holistic approach toward service design and delivery. A TX strategy ensures that resources across CX, EX, UX and MX disciplines collaborate to uncover new opportunities for improved service delivery that increases both citizen and employee satisfaction and improves the government’s mission outcomes.
 
 The approach made the research firm’s list of [Top 10 Government Technology Trends for 2022](https://www.gartner.com/en/newsroom/press-releases/2022-02-21-govt-tech-trends-2022-press-release), on the grounds of its ability to drive progress towards the high-priority goals of retaining top talent and improving the delivery of citizen services. [Principal Research Analyst Apeksha Kaushik recently commented](https://www.gartner.com/en/newsroom/press-releases/2021-12-15-government-predicts-2022), “Governments must move from a siloed approach to a cohesive strategy encompassing employee experience and citizen experiences across multiple platforms, channels, and technologies in the most intuitive user experience.”
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### The role of AI in improving TX
 
@@ -70,6 +77,13 @@ Intelligent process automation enables employees to benefit from faster, smoothe
 
 When customers contact a business, machine learning and NLP tools can “listen in” to determine the caller’s intent, evaluate their emotional state, and even detect possible fraudulent behavior. For example, [Deloitte’s Behavioral and Emotion Analytics Tool (BEAT)](https://www.deloitte.com/global/en/Industries/financial-services/perspectives/gx-ai-and-risk-management.html), developed for the financial services industry, monitors voice interactions to devise a “risk score” based on word choice, rate of speech, and other factors. The higher the score, the more the agent can be on alert for a potential complaint or possible fraudulent activity.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Identity proofing and affirmation
 
 For industries at high risk for fraud, such as banking and insurance, offering mobile services such as customer onboarding and claim filing presents the dilemma of how to ensure that users are who they claim to be. With [identity proofing and identity affirmation](https://tools.techidaily.com/abbyy/products/), users provide proof of their identity via identification (ID) cards, photos, and supporting documents, and AI-based tools step in to read, verify, and authenticate the submissions, including facial matching against a real-time “selfie.” Employees are freed from the tedious task of reviewing and verifying customer documents, and customers can enjoy historically in-person-only services with a few taps on their smartphones.
@@ -82,31 +96,24 @@ A secure mobile application can eliminate the need to go to the DMV office and w
 
 The California DMV has adopted this approach for its services, and the results have been impressive. “We’ve gone from 28 minutes per Real ID transaction to about 10 minutes,” [Ajay Gupta, chief digital transformation officer at the California DMV recently told GCN](https://gcn.com/state-local/2021/01/how-ai-helped-californias-dmv-adapt-to-covid-closures/315928/). “AI-driven pre-screening is one of the reasons why we are able to do that. It also reduced customer visits because there are reduced returning customers due to incomplete documentation.”
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Proving Identity in an Increasingly Remote World
 
 Infographic
 
 [Download infographic](https://static1.abbyy.com/abbyycommedia/36372/infographic-proofofidentity-proving-identity-in-an-increasingly-remote-world-en.pdf "Download infographic") 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Choosing the right solutions
 
 As government entity leaders begin exploring AI tools that can help them achieve their TX goals, they will quickly recognize that a single solution can involve many moving parts. Comprehensive identity proofing and affirmation, for example, encompasses ID reading, ID verification, biometric authentication, document analysis, and many other capabilities. While individual products are available to handle each of these requirements, the hassle of juggling multiple licenses with multiple vendors could erode some of the productivity benefits that AI has to offer.
 
 Working with a single vendor, on the contrary, enables organizations to avoid the headaches of the piecemeal approach and discover additional advantages. For example, integration of all the various components has already been done, which is good news for the IT department, and if an issue does arise, they have a single point of contact for troubleshooting. Furthermore, organizations only have to get approval for a single provider—a definite plus for the government sector, where vendor approval processes can be lengthy and labor intensive.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Turning government entities into TX leaders
 
@@ -134,6 +141,13 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them**](https://tools.techidaily.com/abbyy/products/)
@@ -145,10 +159,10 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
@@ -191,6 +205,13 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![The Changing Role of the Finance Leader](https://static5.abbyy.com/abbyycommedia/37012/finance_1134322021_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**The Changing Role of the Finance Leader**](https://tools.techidaily.com/abbyy/products/)
@@ -200,13 +221,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![Welcome to The Intelligent Enterprise](https://static5.abbyy.com/abbyycommedia/37545/ulf-848x444-slate.png)](https://tools.techidaily.com/abbyy/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -271,16 +285,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-navigating-tiktoks-money-making-path-in-8-key-steps/"><u>[New] 2024 Approved Navigating TikTok's Money-Making Path in 8 Key Steps</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-enhancing-watchlist-restoring-suggested-videos-for-2024/"><u>[New] Enhancing Watchlist Restoring Suggested Videos for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-perfect-your-posts-instagram-video-edits-with-borders/"><u>[Updated] 2024 Approved Perfect Your Posts Instagram Video Edits with Borders</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-kyc-compliance-in-finance-with-ai-and-ml-techniques-download-our-comprehensive-guide/"><u>Enhancing KYC Compliance in Finance with AI & ML Techniques - Download Our Comprehensive Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-online-experience-through-cookiebot-driven-analytics/"><u>Enhancing Online Experience Through Cookiebot-Driven Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-through-cookiebot-technology/"><u>Enhancing Website Analytics Through Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-enhanced-digital-presence-with-cookiebot-integration-bespoke-online-growth-tools/"><u>Experience Enhanced Digital Presence with Cookiebot Integration | Bespoke Online Growth Tools</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-can-you-stream-popular-tiktok-videos-directly-onto-your-television/"><u>How Can You Stream Popular TikTok Videos Directly Onto Your Television?</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-with-ocr-convert-pdfs-and-jpgs-using-finereader/"><u>IPhone Document Scanning with OCR: Convert PDFs & JPGs Using FineReader</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-guide-empowering-yourself-via-facebooks-privacy-center/"><u>Step-by-Step Guide: Empowering Yourself via Facebook's Privacy Center</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/top-pick-review-the-smartly-crafted-twelve-south-compass-pros-unmatched-durability-and-balance/"><u>Top Pick Review: The Smartly Crafted Twelve South Compass Pro's Unmatched Durability and Balance</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-high-quality-audio-collections-a-youtube-creators-guidebook/"><u>[Updated] High-Quality Audio Collections A YouTube Creator's Guidebook</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-top-five-hd-recording-cards-switch-edition-for-2024/"><u>[Updated] Top Five HD Recording Cards, Switch Edition for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-basic-tips-how-to-record-and-save-google-voice-calls/"><u>2024 Approved Basic Tips How to Record and Save Google Voice Calls</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-dominates-2022-spark-matrix-rankings-by-quadrant-knowledge-solutions-for-advanced-document-analysis/"><u>ABBYY Dominates 2022 SPARK Matrix Rankings by Quadrant Knowledge Solutions for Advanced Document Analysis</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312901263-abbyy-finereader-14/"><u>ABBYY FineReader 14 - 職場向けの文書ワークフローを一新する先進技術</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-leadership-in-customer-excellence-meet-larysa-lototska/"><u>ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyyocr/"><u>ABBYY組み込みOCR採用：東芝テックの新シリーズ印刷機</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-asteriaflexicapture-cloud/"><u>ABBYYブログで紹介! ASTERIAとFlexiCapture Cloudに対応した高度な画面分析テンプレート - 最新技術の解説</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/cinematic-narratives-mastering-screenplays/"><u>Cinematic Narratives Mastering Screenplays</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312889342-cookiebot-enabled-optimize-your-site-with-advanced-analytics/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Analytics!</u></a></li>
+<li><a href="https://media-tips.techidaily.com/guide-on-converting-videos-for-optimal-playback-on-your-ipad/"><u>Guide on Converting Videos for Optimal Playback on Your iPad</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/guide-to-address-high-resource-usage-from-microsoft-telemetry-on-windows-11-devices/"><u>Guide to Address High Resource Usage From Microsoft Telemetry on Windows 11 Devices</u></a></li>
+<li><a href="https://change-location.techidaily.com/honor-magic-5-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor Magic 5 Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/rhyme-fight-poets-vs-virtual-intelligence-woolly-side/"><u>Rhyme Fight - Poets vs Virtual Intelligence, Woolly Side</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-ultimate-how-to-applying-captions-to-pictures-in-pcmac-environments/"><u>The Ultimate How-To Applying Captions to Pictures in PC/Mac Environments</u></a></li>
 </ul></div>
 

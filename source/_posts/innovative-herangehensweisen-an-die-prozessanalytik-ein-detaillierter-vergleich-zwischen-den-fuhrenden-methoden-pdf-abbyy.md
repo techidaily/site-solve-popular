@@ -1,7 +1,7 @@
 ---
 title: "Innovative Herangehensweisen an Die Prozessanalytik: Ein Detaillierter Vergleich Zwischen Den Führenden Methoden (PDF) - ABBYY"
-date: 2024-09-18T01:05:10.415Z
-updated: 2024-09-19T01:14:58.168Z
+date: 2024-09-17T17:04:48.458Z
+updated: 2024-09-23T16:13:38.047Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/246d0000b4a8f8f8e29a0c282b538c53c7dcabe9e936ddda4c95b0a712854944.jpg
@@ -15,11 +15,25 @@ Whitepaper
 
 ![Business process schema compared to Timeline Analysis - ABBYY White Paper](https://static1.abbyy.com/abbyycommedia/32494/05b-abbyy-timeline-vs-schema-analysis-de-262x340.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Verständnis der modernen Prozessanalyse und der verschiedenen Ansätze für Process Mining
 
 Erhalten Sie tiefere Einblicke in die Unterschiede zwischen der Methodik des traditionellen Schemaansatzes im Process Mining (Dot-Algorithmus) im Vergleich zu einem neuen, zum Patent angemeldeten Ansatz namens „Timeline Analysis“.
 
 In diesem Papier werden Prozessanalysen für das moderne Unternehmen und die Unterschiede zwischen verschiedenen marktverfügbaren Konzepten untersucht. Dabei wird aufgezeigt, dass der Schemaansatz viele grundlegende Probleme aufweist, die seine praktische Verwendung in der kommerziellen Anwendung erheblich beeinträchtigen. Die Timeline Analysis basiert auf dem Konzept einer Zeitleiste, die den Zugriff auf die ungefilterte und unbearbeitete Historie einer einzelnen Entität ermöglicht. Das kann ein Fall sein, eine Opportunity, eine Bestellung, ein Patient oder ein anderer Prozess.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Jetzt herunterladen!
 
@@ -34,10 +48,10 @@ Dieser Ansatz kann auf verschiedene Industrien und Branchen angewendet werden::
 **Mit dem Timeline-Ansatz für die Prozessanalyse erhalten Sie einen vollständigen Überblick über jeden Prozess, auch wenn verschiedene Prozessschritte mit mehreren Back-End-Systemen ausgeführt werden.**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY.
@@ -47,10 +61,10 @@ Dieser Ansatz kann auf verschiedene Industrien und Branchen angewendet werden::
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -122,19 +136,22 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-comedic-counterpoints-funny-song-flips/"><u>[New] In 2024, Comedic Counterpoints Funny Song Flips</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-m1-nexus-smooth-transitions-unmatched-editing-velocity/"><u>[New] M1 Nexus Smooth Transitions, Unmatched Editing Velocity</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-applications-for-crafting-dynamic-video-entrances/"><u>[Updated] In 2024, Best Applications for Crafting Dynamic Video Entrances</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/alternative-techniques-to-enter-safe-mode-in-windows-11-if-the-f8-keyboard-functionality-is-compromised/"><u>Alternative Techniques to Enter Safe Mode in Windows 11 If the F8 Keyboard Functionality Is Compromised</u></a></li>
-<li><a href="https://common-error.techidaily.com/diy-fixes-for-when-your-logitech-keyboard-stops-working/"><u>DIY Fixes for When Your Logitech Keyboard Stops Working</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-with-innovative-cookiebot-technology/"><u>Driven with Innovative Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-online-experience-with-cookiebot-power-solutions-for-superior-user-targeting-and-retention/"><u>Elevate Online Experience with Cookiebot Power Solutions for Superior User Targeting and Retention</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/eliminate-game-disruptions-solving-valorants-screen-tearing-problem-efficiently/"><u>Eliminate Game Disruptions: Solving Valorant's Screen Tearing Problem Efficiently</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/embracing-innovative-mobility-learn-with-us-on-the-abbyy-blog/"><u>Embracing Innovative Mobility - Learn with Us on the ABBYY Blog</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-online-performance-using-the-powerful-features-of-cookiebot-technology/"><u>Enhance Online Performance Using the Powerful Features of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-with-advanced-automation-powered-by-the-cutting-edge-cookiebot-technology/"><u>Enhanced with Advanced Automation: Powered by the Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/expanded-pdf-handling-in-latest-abbyys-finereader-version-14-for-improved-document-processing/"><u>Expanded PDF Handling in Latest ABBYY's FineReader Version 14 for Improved Document Processing</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-vivo-y100a-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Vivo Y100A</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-on-apple-iphone-6s-plus-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock On Apple iPhone 6s Plus You Should Try Out</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-efficient-workflow-screen-recording-techniques-in-os-x-via-keyboard-shortcuts/"><u>[New] 2024 Approved Efficient Workflow Screen Recording Techniques in OS X via Keyboard Shortcuts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-are-scalping-subscribers-a-viable-strategy-for-2024/"><u>[New] Are Scalping Subscribers a Viable Strategy for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-handbook-for-swapping-music-libraries-for-2024/"><u>[New] The Ultimate Handbook for Swapping Music Libraries for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tips-for-youtube-thumbnail-size-aspect-ratio-included/"><u>[New] Tips for YouTube Thumbnail Size [Aspect Ratio Included]</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-vimeo-integration-for-professional-instagram-users/"><u>[New] Vimeo Integration for Professional Instagram Users</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-recorders-eye-a-snapshot-of-best-tools/"><u>[Updated] 2024 Approved The Recorder's Eye A Snapshot of Best Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-ocr-rpa49/"><u>伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automatisierte-rechnungsbearbeitung-fur-energielieferanten-mit-branchenrelevanz-empfehlungen-von-abbyy/"><u>Automatisierte Rechnungsbearbeitung Für Energielieferanten Mit Branchenrelevanz – Empfehlungen Von ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-site-traffic-with-cookiebot-integration-strategies/"><u>Boost Site Traffic with Cookiebot Integration Strategies</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-web-visibility-instantly-using-the-powerful-cookiebot-seo-tech/"><u>Boost Web Visibility Instantly Using the Powerful Cookiebot SEO Tech</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/carlsberg-accelere-son-debut-en-mer-avec-la-technologie-abbyy-un-nouveau-partenariat-industriel/"><u>Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Website's User Engagement</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/new-trends-in-technology-3-solutions-connecting-laptops-and-hp-printers/"><u>New Trends in Technology - 3 Solutions Connecting Laptops & HP Printers</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/snap-back-on-tiktok-after-accidental-loadout/"><u>Snap-Back on TikTok After Accidental Loadout</u></a></li>
 </ul></div>
 

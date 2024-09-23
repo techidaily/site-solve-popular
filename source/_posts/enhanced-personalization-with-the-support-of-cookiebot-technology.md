@@ -1,7 +1,7 @@
 ---
 title: Enhanced Personalization with the Support of Cookiebot Technology
-date: 2024-09-17T19:14:36.995Z
-updated: 2024-09-18T18:26:48.212Z
+date: 2024-09-20T17:01:42.582Z
+updated: 2024-09-23T17:44:52.320Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bb47cd4fd3c3317200fd6a0408edf3404c84e0ce2b2a16adf3218bdf1eaafd6a.jpg
@@ -47,11 +47,25 @@ Any organization navigating digital transformation will find this new offering e
 
 [Learn more about](https://www.blueprism.com/products/blue-prism-process-intelligence/?utm%5Fsource=prnewswire&utm%5Fmedium=press-release&utm%5Fcampaign=gl-product-2021-q4-10-1-blue-prism-process-intelligence) Blue Prism Process Intelligence Powered by ABBYY Timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### About Blue Prism
 
 Blue Prism is a global leader in enterprise robotic process automation (RPA) and intelligent automation, transforming the way work is done. We have over 2,000 customers in over 170 countries and 70 industry verticals, 30% in the Forbes Global 2,000, creating value with new ways of working by unlocking efficiencies and returning millions of hours of work back into their businesses. Our enterprise digital robots offer high-scale automation that is secure, smart, accessible to all, enabling centrally managed human and digital workforces of the future and freeing up humans to re-imagine work. To learn more visit [www.blueprism.com](https://www.blueprism.com/?utm%5Fsource=prnewswire&utm%5Fmedium=press-release&utm%5Fcampaign=gl-brand-2021-fy-5-13-boilerplate)and follow us on Twitter [@blue\_prism](https://twitter.com/blue%5Fprism) and on [LinkedIn](https://www.linkedin.com/company/blue-prism-limited).
 
 © 2021 Blue Prism Limited. “Blue Prism”, the “Blue Prism” logo and Prism device are either trademarks or registered trademarks of Blue Prism Limited and its affiliates. All Rights Reserved. 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### About ABBYY
 
@@ -60,22 +74,15 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies, and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Media contacts:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Paul Taylor 
 
@@ -84,6 +91,13 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 [paul.taylor@blueprism.com](https://tools.techidaily.com/abbyy/products/)
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Gina Ray, APR
 
@@ -108,13 +122,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-through-cookiebot-technology/"><u>Enhancing Website Analytics Through Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-enhanced-digital-presence-with-cookiebot-integration-bespoke-online-growth-tools/"><u>Experience Enhanced Digital Presence with Cookiebot Integration | Bespoke Online Growth Tools</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/expert-recommendations-on-erasing-sensitive-data-a-collection-from-stellar-professionals/"><u>Expert Recommendations on Erasing Sensitive Data - A Collection From Stellar Professionals</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/five-notorious-chatgpt-schemes-you-should-know-about/"><u>Five Notorious ChatGPT Schemes You Should Know About</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-with-ocr-convert-pdfs-and-jpgs-using-finereader/"><u>IPhone Document Scanning with OCR: Convert PDFs & JPGs Using FineReader</u></a></li>
-<li><a href="https://facebook.techidaily.com/january-hearing-trumps-facebook-prohibition/"><u>January Hearing: Trump's Facebook Prohibition</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/quick-setup-for-hosting-online-seminars-on-pcmac-for-2024/"><u>Quick Setup for Hosting Online Seminars on PC/Mac for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/the-updated-method-to-bypass-samsung-galaxy-z-fold-5-frp-by-drfone-android/"><u>The Updated Method to Bypass Samsung Galaxy Z Fold 5 FRP</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-explore-free-youtube-pic-themes-for-2024/"><u>[New] Explore Free YouTube Pic Themes for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-request-info-on-obtaining-full-shared-content-on-messengers-for-2024/"><u>[New] Request Info on Obtaining Full Shared Content on Messengers for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-snap-and-save-life-on-mi-11-with-unmatched-screen-quality/"><u>[New] Snap and Save Life on Mi 11 with Unmatched Screen Quality</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-transforming-outdoor-vision-into-online-presence-gopro-to-periscopefacebook-for-2024/"><u>[New] Transforming Outdoor Vision Into Online Presence GoPro to Periscope/Facebook for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-ultra-high-definition-capture-ideal-apps-reviewed/"><u>[Updated] Ultra-High Definition Capture Ideal Apps Reviewed</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iuoajoodhplusocuoocvplusodqplusodleocqeodvoodoos9noaikoobruwwgumwgowutuodquocueodidrkv53pmbrjgrvjgqjgrjg7zjgplkuk3lv4pjgajjgzfjgzjg4hjgqfjg4pjgqjg6rjgrnjg4j1/"><u>「デジタルフォーム作成の専門家リスト:保険セクターを中心としたチェックリストガイド」</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-global-idp/"><u>ABBYY Global IDPトレンドの最新発表:成果報告書解説</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-presente-ses-innovantes-technologies-ia-pour-lextraction-de-donnees-au-salon-banque-and-innovation-evenement-cle-2018/"><u>ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-sdgs/"><u>ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-increase-your-influence-on-instagram-5-proven-methods-with-case-studies/"><u>In 2024, Increase Your Influence on Instagram 5 Proven Methods with Case Studies</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-smirk-secrets-crafting-chuckles-with-simplicity/"><u>In 2024, Smirk Secrets Crafting Chuckles with Simplicity</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-guide-to-photo-framing-on-the-net/"><u>In 2024, The Ultimate Guide to Photo Framing on the Net</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-improved-online-traffic-and-user-interaction/"><u>Leverage Cookiebot Technology for Improved Online Traffic & User Interaction</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/navigating-device-specific-zoom-configurations-for-2024/"><u>Navigating Device-Specific Zoom Configurations for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
+<li><a href="https://driver-install.techidaily.com/user-friendly-device-driver-improvements-for-win7/"><u>User-Friendly Device Driver Improvements for Win7</u></a></li>
 </ul></div>
 

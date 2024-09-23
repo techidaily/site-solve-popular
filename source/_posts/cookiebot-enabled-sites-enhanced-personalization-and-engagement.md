@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled Sites: Enhanced Personalization & Engagement"
-date: 2024-09-12T21:39:25.873Z
-updated: 2024-09-19T00:14:21.179Z
+date: 2024-09-19T18:12:57.522Z
+updated: 2024-09-23T17:58:08.547Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1139b752cbc32f334a7708e871f23f8ed96ff0366c449e4d477fdb61f162967a.jpg
@@ -31,11 +31,25 @@ Perhaps, it’s the main iOS 14 innovation. Previously you had to swipe right to
 
 Smart Stack is a part of new widgets. It’s a dynamic widget that displays relevant information for current conditions. For example, you’ll see the weather forecast in the morning, and today’s physical activity in the evening. Smart Stack can also be scrolled manually.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Compact Siri
 
 Before iOS 14, Siri opened in a fullscreen mode. Now Siri, as well as it’s text replies, will be displayed at the bottom of the screen. Other requests will be displayed at the top of the screen as a widget. You can still use Siri to work with our apps. For example, [open documents](https://tools.techidaily.com/abbyy/products/) in [FineScanner](https://go.onelink.me/0oMB/2b084a0a) or [open business cards](https://tools.techidaily.com/abbyy/products/) in [Business Card Reader](https://go.onelink.me/LuYz/ca107d7).
 
 ![iOS 14 Siri](https://static1.abbyy.com/abbyycommedia/29629/siri-ios14.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Call Notifications
 
@@ -44,16 +58,10 @@ Apple did what users wanted for years. You will no longer be interrupted by an i
 ![Calls notification iOS 14](https://static1.abbyy.com/abbyycommedia/29626/звонки-ios14.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Updated Messages
@@ -63,10 +71,17 @@ Slowly, but surely, Apple turns the Messages app into a great messenger. In iOS 
 ![Messages iOS 14](https://static1.abbyy.com/abbyycommedia/29628/сообщения-ios14.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Improved Privacy
@@ -85,15 +100,22 @@ There’s a new way to sort your apps. All apps will be automatically added to s
 
 ![app library iOS 14](https://static1.abbyy.com/abbyycommedia/29623/библиотека-приложений-ios14.jpg) The App Library screen will be the rightmost on your Home screen.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Third-party Apps by Default
 
 If you don’t like Safari or Apple Mail, no problem. iOS 14 allows you to set any other browser or the mail agent as a default app, for example, Chrome and Gmail.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### App Clips
@@ -101,13 +123,6 @@ If you don’t like Safari or Apple Mail, no problem. iOS 14 allows you to set a
 App Clips feature eases the workflow on-the-go. You can run some apps even without downloading it. The light version of the app will allow performing the most common actions in the app with QR-codes or NFC. For example, you can scan a QR-code on the table in a café to see a menu.
 
 ![App Clips iOS 14](https://static1.abbyy.com/abbyycommedia/29624/блиц-приложения-ios14.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Emoji Search
 
@@ -140,13 +155,6 @@ It’s hard to say, but most likely, yes. On the one hand, iOS 14 delivers a new
 * iPhone 11 Pro Max
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -211,21 +219,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-effective-methods-for-transferring-youtube-videos-to-the-social-network/"><u>[Updated] 2024 Approved Effective Methods for Transferring YouTube Videos to the Social Network</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-seamless-instagram-story-layering-techniques/"><u>[Updated] Seamless Instagram Story Layering Techniques</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-ultimate-guide-to-action-film-snapshotting-for-2024/"><u>[Updated] Ultimate Guide to Action Film Snapshotting for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-step-by-step-approach-to-mastering-the-steam-pro-controller-on-switch/"><u>2024 Approved Step-by-Step Approach to Mastering the Steam Pro Controller on Switch</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Lava Blaze 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-by-cookiebot-solutions/"><u>Enhanced by Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-multifunctional-toshiba-printer-with-built-in-abbyy-ocr-technology/"><u>Enhanced Multifunctional Toshiba Printer with Built-In ABBYY OCR Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-accounting-efficiency-with-advanced-automated-solutions/"><u>Enhancing Accounting Efficiency with Advanced Automated Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-financial-stability-with-ai-driven-bank-compliance-measures-and-resilience-tactics/"><u>Enhancing Financial Stability with AI-Driven Bank Compliance Measures and Resilience Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-robotic-process-automation-efficiency-with-advanced-process-analytics-insights-from-the-abbyy-experience/"><u>Enhancing Robotic Process Automation Efficiency with Advanced Process Analytics: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-tools/"><u>Enhancing User Experience Through Smart Data Collection Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-a-look-into-the-efficiency-of-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Data Collection: A Look Into the Efficiency of Cookiebot Solutions</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-nokia-c300-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Nokia C300 Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-samsung-galaxy-a34-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Samsung Galaxy A34 5G Devices</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-unlock-joyful-hours-essential-list-of-best-offline-ios-titles/"><u>In 2024, Unlock Joyful Hours - Essential List of Best Offline iOS Titles</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/inside-look-at-googles-pixel-slate-navigating-a-sea-of-chromeos-issues/"><u>Inside Look at Google's Pixel Slate: Navigating a Sea of ChromeOS Issues</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-mastering-filming-techniques-on-tiktok-platforms/"><u>[New] 2024 Approved Mastering Filming Techniques on TikTok Platforms</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-achieving-auditory-perfection-zooming-up-your-sound-quality/"><u>[New] Achieving Auditory Perfection Zooming Up Your Sound Quality</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-maximizing-igtv-impact-effective-tips-for-vertical-video-conversion/"><u>[New] Maximizing IGTV Impact Effective Tips for Vertical Video Conversion</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/aximizing-impact-strategies-for-watermark-and-logo-insertion-in-yt-videos-for-2024/"><u>[New] Maximizing Impact Strategies for Watermark & Logo Insertion in YT Videos for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-from-airwaves-to-files-online-audio-capture-basics/"><u>[Updated] In 2024, From Airwaves to Files Online Audio Capture Basics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-elevates-mariko-maeda-to-leadership-role-president-and-representative-director-for-strengthening-the-japanese-market-presence/"><u>ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-insights-sync-your-wireless-headset-with-ease-and-keep-passwords-protected/"><u>ABBYY Insights: Sync Your Wireless Headset with Ease and Keep Passwords Protected</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-ocr-software-development-kit-advanced-automatic-document-scanning-and-interpretation/"><u>Abbyy OCR Software Development Kit: Advanced Automatic Document Scanning & Interpretation</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-web-application-for-scanning-and-organizing-business-cards-in-the-cloud/"><u>ABBYY Unveils New Web Application for Scanning and Organizing Business Cards in the Cloud</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-anthony-macciola-as-their-latest-appointment-chief-innovation-officer/"><u>ABBYY Welcomes Anthony Macciola as Their Latest Appointment: Chief Innovation Officer</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-automatisierte-intelligenz-innovative-losungen-auf-der-expo-fur-dienstleistungsverlagerung-und-konsolidierung/"><u>ABBYY-Automatisierte Intelligenz: Innovative Lösungen Auf Der Expo Für Dienstleistungsverlagerung Und Konsolidierung</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automated-marketing-mastery-with-cookiebot-technology/"><u>Automated Marketing Mastery with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-ihre-firmenproduktivitat-mit-der-digitalisierung-vernichtet-den-papier-aktenkeller/"><u>Boost Ihre Firmenproduktivität Mit Der Digitalisierung - Vernichtet Den Papier-Aktenkeller!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-your-site-with-cookiebots-powerful-analytics/"><u>Boost Your Site with Cookiebot's Powerful Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-your-traffic-with-cookiebots-powerful-tracking-technology/"><u>Boost Your Traffic with Cookiebot's Powerful Tracking Technology</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/bring-back-the-past-a-guide-to-recovering-deleted-chat-history-from-microsofts-chatbot/"><u>Bring Back the Past: A Guide to Recovering Deleted Chat History From Microsoft's Chatbot</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-tecno-pop-7-pro-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Tecno Pop 7 Pro Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-tecno-camon-30-pro-5g-frp-bypass-by-drfone-android/"><u>In 2024, About Tecno Camon 30 Pro 5G FRP Bypass</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-tutorial-for-activating-icloud-on-apple-iphone-6-safe-and-legal-by-drfone-ios/"><u>In 2024, Easy Tutorial for Activating iCloud on Apple iPhone 6 Safe and Legal</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-xiaomi-redmi-12-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Xiaomi Redmi 12 FRP Bypass</u></a></li>
 </ul></div>
 

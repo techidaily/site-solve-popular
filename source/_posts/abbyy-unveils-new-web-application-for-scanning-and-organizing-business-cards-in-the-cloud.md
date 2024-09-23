@@ -1,7 +1,7 @@
 ---
 title: ABBYY Unveils New Web Application for Scanning and Organizing Business Cards in the Cloud
-date: 2024-09-17T17:04:26.525Z
-updated: 2024-09-18T21:03:37.971Z
+date: 2024-09-18T16:56:25.380Z
+updated: 2024-09-23T16:27:19.289Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/94367d0839b4e8bd552f4ff0b46203c6692aa9dd549da1507965a6ba4039d0e6.png
@@ -70,27 +70,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/updated-quick-catch-resurrecting-archived-reddit-content/"><u>[Updated] Quick Catch Resurrecting Archived Reddit Content</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-speedy-social-snooping-techniques-for-fb-users/"><u>[Updated] Speedy Social Snooping Techniques for FB Users</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-nigh-dark-nemesis-versus-sunlit-savior/"><u>2024 Approved Nigh-Dark Nemesis Versus Sunlit Savior</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1723862719981-get-ready-to-play-unleash-epic-gaming-with-lenovos-legion-slim-5-and-a-potent-rtx-ntegrated-4060-at-an-amazing-price-of-899/"><u>Get Ready to Play! Unleash Epic Gaming with Lenovo's Legion Slim 5 and a Potent RTX Ntegrated 4060 at an Amazing Price of $899</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-tecno-pova-6-pro-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-xiaomi-redmi-note-13-proplus-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Xiaomi Redmi Note 13 Pro+ 5G Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-facebook-vids-made-simple-as-mp4-downloads/"><u>In 2024, Facebook Vids Made Simple as MP4 Downloads</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovazione-in-cattolica-assicurazioni-con-elaborazione-documentale-intelligente-per-un-miglioramento-dei-servizi/"><u>Innovazione in Cattolica Assicurazioni Con Elaborazione Documentale Intelligente per Un Miglioramento Dei Servizi</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/install-your-hp-deskjet-2755e-printer-on-windows-download-official-drivers/"><u>Install Your HP Deskjet 2755E Printer on Windows: Download Official Drivers</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-and-conversion-use-ocr-technology-with-finereader-pdf/"><u>IPhone Document Scanning & Conversion: Use OCR Technology with FineReader PDF</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-smarter-web-presence-and-seo-success/"><u>Leverage Cookiebot Technology for Smarter Web Presence and SEO Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-tracking-discover-the-power-of-cookiebot-technology/"><u>Optimized with Automated Tracking: Discover the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-next-level-analytics-and-conversion-boost/"><u>Optimized With Cookiebot: Next-Level Analytics & Conversion Boost</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-voicing-freedom-how-to-modify-your-audio-on-instagram-posts-for-2024/"><u>[New] Voicing Freedom How to Modify Your Audio on Instagram Posts for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-enhance-video-storytelling-with-smart-chapter-insertion-techniques-on-youtube-for-2024/"><u>[Updated] Enhance Video Storytelling with Smart Chapter Insertion Techniques on YouTube for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-motorola-moto-g34-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Motorola Moto G34 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/fresh-start-for-your-epson-workforce-ds-30-printer-on-windows-find-the-right-driver-download-here/"><u>Fresh Start for Your Epson WorkForce DS-30 Printer on Windows: Find the Right Driver Download Here!</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-rated-economical-timer-services/"><u>In 2024, Top-Rated Economical Timer Services</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/peak-matrix-2019-abbyy-stands-out-in-everest-groups-rankings-of-leading-idp-tools-and-applications/"><u>Peak Matrix™ 2019: ABBYY Stands Out in Everest Group's Rankings of Leading IDP Tools and Applications</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/pioneering-visual-stunts-from-the-ground-up-for-2024/"><u>Pioneering Visual Stunts From the Ground Up for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/protect-your-data-understanding-the-abbyy-cloud-agreement-for-gdpr-adherence/"><u>Protect Your Data: Understanding the ABBYY Cloud Agreement for GDPR Adherence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/the-future-of-digital-transformation-insights-from-the-2018-abbyy-technology-summit-on-content-intelligence/"><u>The Future of Digital Transformation: Insights From the 2018 ABBYY Technology Summit on Content Intelligence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/top-6-must-read-digital-intelligence-insights-of-2020-featured-on-the-abbyy-blog/"><u>Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Leveraging Cutting-Edge Tracking Tools for Enhanced Performance and Engagement
-date: 2024-09-12T01:27:10.127Z
-updated: 2024-09-18T22:13:39.389Z
+date: 2024-09-21T16:03:58.097Z
+updated: 2024-09-23T18:06:53.402Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8224c2eaffde473b7b29c4172387e354997fe7d2a767ebc186d1a15d8b28408a.jpg
@@ -50,10 +50,10 @@ Technically e-invoices are not a new concept. Alongside technology standards suc
 * and many more have evolved\*, driven mainly by the need for efficient AP processes of private business in high-volume industries.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What are the benefits of e-invoicing?
@@ -64,14 +64,20 @@ However, its primary driver is closing the [“VAT Gap”](https://www.allenover
 
 ![guide-to-e-invoicing-accounts-payable-a-848x44](https://content.abbyy.com/-/jssmedia/Project/Abbyy/Abbyy/Insights/Blog/A%20Guide%20to%20E-invoicing%20in%20Accounts%20Payable/guide-to-e-invoicing-accounts-payable-a-848x44.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The [2022 VAT in the Digital Age (ViDA)](https://www.ey.com/en%5Fgr/tax/tax-alerts/eu-proposals-for-vat-in-the-digital-age-vida) proposal aims to implement cross-border digital reporting using e-invoicing for B2B transactions, while [PEPPOL](https://peppol.org/about/for-end-users/) invoices are becoming mandatory for B2G transactions. Many EU states plan to enforce e-invoicing in B2B transactions within four years, reflecting a growing trend towards regulatory adoption of e-invoicing standards.
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What impact does e-invoicing have on accounts payable processes? 
 
@@ -90,10 +96,10 @@ At least in theory, the concept promises to solve many efficiency hurdles. But p
 ![guide-to-e-invoicing-accounts-payable-a-848x44](https://content.abbyy.com/-/jssmedia/Project/Abbyy/Abbyy/Insights/Blog/A%20Guide%20to%20E-invoicing%20in%20Accounts%20Payable/guide-to-e-invoicing-accounts-payable-b-848x44.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is e-invoicing the answer to all AP automation dreams?
@@ -111,6 +117,13 @@ In the [UK, e-invoicing](https://ec.europa.eu/digital-building-blocks/sites/disp
 With governments across the globe acting as catalysts for the adoption of e-invoicing solutions, the landscape is rapidly changing. Invoice scanning and OCR is expected to be significantly reduced, while the [amount of e-invoices is expected to grow by 10-20% per year in the midterm](https://www.billentis.com/assets/reports/The%5Feinvoicing%5Fjourney%5F2019-2025.pdf).
 
 Although the theory behind e-invoicing sounds like every automation team’s dream, the reality is that the complexity of regulations, maturity, adoption, standards and formats leaves global companies still dealing with a messy reality, that requires new solutions.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Choosing the right AP automation solution for your e-invoicing
 
@@ -204,14 +217,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-top-rated-5-web-videography-editing-suites/"><u>[New] Top-Rated 5 Web Videography Editing Suites</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-speaking-words-into-sound-your-pathway-to-excellence/"><u>[Updated] Speaking Words Into Sound Your Pathway to Excellence</u></a></li>
-<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-nokia-c12-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Nokia C12 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-collaborative-venture-with-apponfly-elevating-document-processing-solutions/"><u>ABBYY Unveils New Collaborative Venture with AppOnFly: Elevating Document Processing Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automate-your-leads-with-cookiebot-enabled-solutions/"><u>Automate Your Leads with Cookiebot-Enabled Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automated-customer-engagement-with-cookiebot-technology/"><u>Automated Customer Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Tecno Spark 20 Pro | Dr.fone</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/resolving-netflix-stutter-after-upgraded-windows/"><u>Resolving Netflix Stutter After Upgraded Windows</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/top-10-online-stores-for-personalized-box-designs/"><u>Top 10 Online Stores for Personalized Box Designs</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-essential-techniques-for-saving-lol-games/"><u>[New] 2024 Approved Essential Techniques for Saving LOL Games</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/sap-intelligent-rpa-abbyy-abbyy/"><u>高度な文書処理技術と組み合わせた、SAP Intelligent RPA にABBYYを統合する方法 | ABBYYの技術解説</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-narzo-n55-phone-without-password-by-drfone-android/"><u>How To Unlock Realme Narzo N55 Phone Without Password?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-full-guide-to-unlock-iphone-6s-with-itunes-by-drfone-ios/"><u>In 2024, Full Guide to Unlock iPhone 6s with iTunes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-realme-gt-3-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Realme GT 3 to PC? | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/mastering-seamless-mobile-onboarding-with-strategies-from-the-abbyy-handbook/"><u>Mastering Seamless Mobile Onboarding with Strategies From the ABBYY Handbook</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-crafting-an-effective-online-page-for-search-engines/"><u>Mastering the Art of Crafting an Effective Online Page for Search Engines</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/mastering-universal-copy-paste-seamless-sharing-across-devices-and-enhancing-your-fitness-routine-with-indoor-cycling-insights-from-the-abbyy-expertise/"><u>Mastering Universal Copy-Paste: Seamless Sharing Across Devices & Enhancing Your Fitness Routine with Indoor Cycling - Insights From the ABBYY Expertise</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-is-this-a-pigeon-meme-generator-for-2024/"><u>New Is This a Pigeon Meme Generator for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/promising-future-with-us-policy-changes-expert-analysis-on-abbyys-platform/"><u>Promising Future with US Policy Changes | Expert Analysis on ABBYY's Platform</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-vivo-s17e-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/strategies-doptimisation-de-la-chaine-logistique-comment-les-donnees-facilitent-le-reinventer-grace-a-abbyy/"><u>Stratégies D'Optimisation De La Chaîne Logistique: Comment Les Données Facilitent Le Réinventer Grâce À ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/strengthen-business-continuity-with-effective-process-enhancement/"><u>Strengthen Business Continuity with Effective Process Enhancement</u></a></li>
+<li><a href="https://video-capture.techidaily.com/transforming-online-meetings-choose-from-these-top-5-recorders/"><u>Transforming Online Meetings Choose From These Top 5 Recorders</u></a></li>
+<li><a href="https://fox-that.techidaily.com/turn-off-unwanted-rings-staying-silent-on-your-ipad-when-your-iphone-is-active/"><u>Turn Off Unwanted Rings: Staying Silent on Your iPad When Your iPhone Is Active</u></a></li>
 </ul></div>
 

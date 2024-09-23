@@ -1,7 +1,7 @@
 ---
 title: Elevate Online Experience with Cookiebot Power Solutions for Superior User Targeting and Retention
-date: 2024-09-11T18:00:04.292Z
-updated: 2024-09-18T17:35:51.758Z
+date: 2024-09-20T16:44:08.441Z
+updated: 2024-09-23T17:11:59.342Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4c64599e932018a17c352685488bbe982ee82f5fc1c73b73894ec43a1b1c5c03.jpg
@@ -28,6 +28,13 @@ Gesundheitswesen und Pharmazie | Digitale Archivierung
 #### Über den Kunden
 
 ![Boehringer Ingelheim](https://static5.abbyy.com/abbyycommedia/16276/boeringer-ingelheim-155x69.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name        | Boehringer Ingelheim                                                |
 | ----------- | ------------------------------------------------------------------- |
@@ -78,13 +85,34 @@ Die Installation bei Boehringer Ingelheim umfasst einen ABBYY Recognition Server
 
 [![ABBYY Recognition Server wird jetzt ABBYY FineReader Server genannt](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) ") [ABBYY Recognition Server (jetzt FineReader Server genannt)](https://tools.techidaily.com/abbyy/products/) ") 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) ") 
 
 [![10-Healthcare](https://static2.abbyy.com/abbyycommedia/14360/10-healthcare.jpg)](https://tools.techidaily.com/abbyy/products/) [Gesundheitswesen](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![cs-fraunhofernzz-360x162](https://static3.abbyy.com/abbyycommedia/17083/cs-fraunhofernzz-360x162.jpg)](https://static3.abbyy.com/abbyycommedia/6139/fallstudie-boehringer-ingelheim-healthcare-de.pdf "PDF-Version") [PDF-Version](https://static3.abbyy.com/abbyycommedia/6139/fallstudie-boehringer-ingelheim-healthcare-de.pdf "PDF-Version") 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Zum Dokument](https://static3.abbyy.com/abbyycommedia/6139/fallstudie-boehringer-ingelheim-healthcare-de.pdf "PDF-Version") 
 
@@ -117,25 +145,18 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harness-youtubes-power-with-these-top-7-affordable-easy-to-use-tag-extractor-tools/"><u>[New] 2024 Approved Harness YouTube's Power with These Top 7 Affordable, Easy-to-Use Tag Extractor Tools</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-expert-review-best-mac-apps-for-screenshots/"><u>[New] In 2024, Expert Review Best Mac Apps for Screenshots</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-improve-your-work-efficiency-leveraging-snap-photography-techniques/"><u>[Updated] 2024 Approved Improve Your Work Efficiency Leveraging Snap Photography Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-income-accumulation-with-cosmetic-videos/"><u>[Updated] Income Accumulation with Cosmetic Videos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-ultimate-guide-to-budget-drone-flights/"><u>2024 Approved The Ultimate Guide to Budget Drone Flights</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724313274377-abbyy/"><u>ABBYYチェッカリスト - 金融市場で勝ち抜くための強化戦略</u></a></li>
-<li><a href="https://win-dash.techidaily.com/fixing-hp-laserjet-p2035-printer-problems-on-windows-a-comprehensive-guide/"><u>Fixing HP LaserJet P2035 Printer Problems on Windows: A Comprehensive Guide</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/flamegrab-firefox-add-ons/"><u>FlameGrab Firefox Add-Ons</u></a></li>
-<li><a href="https://driver-error.techidaily.com/how-to-fix-the-last-usb-device-malfunctioned-and-windows-doesnt-recognize-it/"><u>How to Fix The Last USB Device Malfunctioned and Windows Doesn’t Recognize It</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-exclusive-edition-motorcyclings-top-action-cameras-of-2023-review/"><u>In 2024, Exclusive Edition Motorcycling’s Top Action Cameras of 2023 Review</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/robert-youngjohns-steering-vision-as-abbyys-esteemed-board-chair/"><u>Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-instant-recovery-of-vanished-visuals/"><u>[New] 2024 Approved Instant Recovery of Vanished Visuals</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-the-verdict-on-screen-recording-does-obs-surpass-fraps-for-2024/"><u>[New] The Verdict on Screen Recording Does OBS Surpass Fraps for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ltimate-gear-premium-lenses-for-vloggers-for-2024/"><u>[New] Ultimate Gear Premium Lenses for Vloggers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-yt-thumbnails-downloading-via-browser-app-and-command-line/"><u>[New] YT Thumbnails Downloading via Browser, App & Command Line</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-tips-for-integrating-supplemental-film-content/"><u>2024 Approved Tips for Integrating Supplemental Film Content</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/enhancing-your-playback-quality-tips-for-roblox-recordings-mac-for-2024/"><u>Enhancing Your Playback Quality Tips for Roblox Recordings (Mac) for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-avoid-social-stress-how-to-unfollow-people/"><u>In 2024, Avoid Social Stress How to Unfollow People</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovative-ai-driven-document-handling-for-modern-banking-systems/"><u>Innovative AI-Driven Document Handling for Modern Banking Systems</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leveraging-the-efficiency-of-cookiebot-technology-for-seamless-web-tracking/"><u>Leveraging the Efficiency of Cookiebot Technology for Seamless Web Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/online-marketplace-exceeds-growth-targets-and-boosts-operational-productivity-with-cutting-edge-invoice-management-technology/"><u>Online Marketplace Exceeds Growth Targets and Boosts Operational Productivity with Cutting-Edge Invoice Management Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/securing-your-digital-footprint-counteracting-textgrabber-threats-and-improving-user-mobility-insights-for-abbyy-readers/"><u>Securing Your Digital Footprint: Counteracting TextGrabber Threats & Improving User Mobility | Insights for ABBYY Readers</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/sustained-profitable-expansion-abbyy-announces-back-to-back-double-digit-revenue-upswing-for-third-year-in-a-row/"><u>Sustained Profitable Expansion: ABBYY Announces Back-to-Back Double-Digit Revenue Upswing for Third Year in a Row</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-from-video-to-live-photo-the-ultimate-app-roundup-and-tutorial/"><u>Updated From Video to Live Photo The Ultimate App Roundup and Tutorial</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

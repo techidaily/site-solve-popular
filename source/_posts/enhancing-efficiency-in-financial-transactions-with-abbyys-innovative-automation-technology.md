@@ -1,7 +1,7 @@
 ---
 title: Enhancing Efficiency in Financial Transactions with ABBYY's Innovative Automation Technology
-date: 2024-09-15T20:10:53.163Z
-updated: 2024-09-19T03:06:16.946Z
+date: 2024-09-17T17:57:41.887Z
+updated: 2024-09-23T16:27:32.498Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/64de9954aaa9872e4109ed0fb3bd88e929af8b2024c5f17c9a376420ca579cf7.jpg
@@ -19,7 +19,21 @@ English
 
 ![Cheryl Chiodi](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Cheryl Chiodi](https://static4.abbyy.com/abbyycommedia/32900/75-cherylchiodi-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Cheryl Chiodi
 
@@ -37,13 +51,6 @@ Senior Analyst, **Forrester**
 
 The challenges of the recent global crisis have exposed the fact that the events and trends in financial services move fast. Financial institutions need the velocity necessary to keep up and meet the needs of their customers by creating the differentiated experiences they demand. In a world where things can change with little or no warning, speed matters.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What you will learn
 
 In this webinar, ABBYY's financial services expert Cheryl Chiodi and guest speaker Aurelie L'Hostis, Senior Analyst from Forrester, will cover:
@@ -53,13 +60,20 @@ In this webinar, ABBYY's financial services expert Cheryl Chiodi and guest speak
 * Ways of leveraging technology and partnerships to expedite process automation to become more agile and improve CX
 * How to discover, analyse and predict outcomes with actionable process insights
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch now
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Get in touch with us
@@ -67,14 +81,14 @@ In this webinar, ABBYY's financial services expert Cheryl Chiodi and guest speak
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Thank you, enjoy your webinar.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Check out some of the best moments and watch the full recording below.
 
@@ -145,18 +159,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-elite-converter-mp4-to-instant-fb-access-2023/"><u>[New] 2024 Approved Elite Converter MP4 to Instant FB Access 2023</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-the-complete-review-lg-360-camera-cutting-edge-2023-edition/"><u>[New] 2024 Approved The Complete Review LG 360 Camera - Cutting-Edge 2023 Edition</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-blueprint-for-seamless-integration-of-instagram-and-tiktok/"><u>[New] Blueprint for Seamless Integration of Instagram and TikTok</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-stepwise-guide-to-conducting-video-chats-on-laptop-via-whatsapp/"><u>[New] In 2024, Stepwise Guide to Conducting Video Chats on Laptop via WhatsApp</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-ios-leading-edge-psp-emulators-top-5-lists/"><u>[Updated] In 2024, IOS Leading Edge PSP Emulators, Top 5 Lists</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-tips-for-disconnecting-unfollowing-on-instagram/"><u>[Updated] In 2024, Tips for Disconnecting Unfollowing on Instagram</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-swift-fixes-for-non-functional-facebook-video-sharing-on-androidios/"><u>[Updated] Swift Fixes for Non-Functional Facebook Video Sharing on Android/iOS</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iuoajoodhplusocuoocvplusodqplusodleocqeodvoodoos9noaikoobruwwgumwgowutuodquocueodidrkv53pmbrjgrvjgqjgrjg7zjgplkuk3lv4pjgajjgzfjgzjg4hjgqfjg4pjgqjg6rjgrnjg4j1/"><u>「デジタルフォーム作成の専門家リスト:保険セクターを中心としたチェックリストガイド」</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-improved-online-traffic-and-user-interaction/"><u>Leverage Cookiebot Technology for Improved Online Traffic & User Interaction</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unraveling-youtubes-highest-peaks-post-vidcon-for-2024/"><u>Unraveling Youtube's Highest Peaks (Post-VidCon) for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-best-app-for-gamers-fraps-vs-obs-studio-review/"><u>[New] 2024 Approved Best App for Gamers Fraps Vs. OBS Studio Review</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-pixelshalfed-dissection/"><u>[New] 2024 Approved PixelsHalfed Dissection</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-top-10-premier-live-streaming-platforms-a-comparative-guide/"><u>[New] Top 10 Premier Live Streaming Platforms A Comparative Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-instantly-post-photosvideos-to-twitter-skipping-retweets/"><u>[Updated] 2024 Approved Instantly Post Photos/Videos to Twitter, Skipping Retweets</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-must-see-hd-video-snaps-for-mac-users-char-limit-156-for-2024/"><u>[Updated] Must-See HD Video Snaps for Mac Users (Char Limit 156) for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-swiftly-uncover-unfollowers-on-instagram/"><u>[Updated] Swiftly Uncover Unfollowers on Instagram</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-ocr-rpa49/"><u>伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-advanced-language-translator-powered-by-ntt-docomo-features-ocr-for-multilingual-support/"><u>ABBYY's Advanced Language Translator - Powered by NTT DOCOMO, Features OCR for Multilingual Support</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automatisierte-rechnungsbearbeitung-fur-energielieferanten-mit-branchenrelevanz-empfehlungen-von-abbyy/"><u>Automatisierte Rechnungsbearbeitung Für Energielieferanten Mit Branchenrelevanz – Empfehlungen Von ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-site-traffic-with-cookiebot-integration-strategies/"><u>Boost Site Traffic with Cookiebot Integration Strategies</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-web-visibility-instantly-using-the-powerful-cookiebot-seo-tech/"><u>Boost Web Visibility Instantly Using the Powerful Cookiebot SEO Tech</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/harnessing-chatgpt-6-essential-tips-for-a-dream-dm-experience/"><u>Harnessing ChatGPT: 6 Essential Tips for a Dream DM Experience</u></a></li>
 </ul></div>
 

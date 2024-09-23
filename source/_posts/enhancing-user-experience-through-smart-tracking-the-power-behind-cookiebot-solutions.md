@@ -1,7 +1,7 @@
 ---
 title: "Enhancing User Experience Through Smart Tracking: The Power Behind Cookiebot Solutions"
-date: 2024-09-13T22:37:41.673Z
-updated: 2024-09-19T00:28:24.458Z
+date: 2024-09-16T16:02:21.811Z
+updated: 2024-09-23T17:11:15.297Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/30c3f68025cf60445ca0af9503de0d05421151fac72dff09f39b3449e1fcd630.jpg
@@ -21,6 +21,13 @@ Since 1909, scientists of the National Institute of Meteorology of Brazil (INMET
 
 Brazil, the largest country in South America, sits within the tropics. Its territory boasts three types of climate: equatorial, subtropical and tropical. The development of almost all branches of the Brazilian economy, and especially of agriculture, depends on a variety of weather conditions. Therefore, it is important for specialists to analyze and accurately predict possible changes in weather conditions. Forecasts are also needed to ensure the safety of aircraft, pilots and passengers, to protect ships and sailors, for the proper organization of fisheries and the development of tourism.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Deploying technology to rescue the past
 
 Thankfully, new capture technology like ABBYY FlexiCapture Engine can be deployed to restore the archive of weather observations that might otherwise be destroyed forever. Such weather history can help anticipate possible climate changes and make decisions on adjusting the country's agricultural and industrial policies. INMET has been painstakingly collecting data on precipitation, wind, relative humidity, pressure since 1909\. Day after day, its specialists registered this information and recorded it in their diaries of observations.
@@ -29,6 +36,13 @@ Until recently, these documents were kept in paper form. Archives with records w
 
 In 2010, INMET decided to digitize its entire archive of weather observations - 3 million pages or 4 billion characters - including notebooks, books and microfilms. The first step was collecting all records stored in different cities across Brazil. This was achieved in 2011, with help from the Institute's employees, who transported the documents to Brasilia and housed them in a 1500-square-meter storage area in the INMET building. During the next stage, the institute's specialists began to process and the restore the records, some of which were badly damaged. The final stage before digitization involved cataloging of all records and making it easy to find a diary of weather observations in the repository.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Forward, to digitization
 
 INMET kicked off its digitization efforts in 2012, by inviting Flexdoc, a Brazilian company which develops software for processing and storing documents. However, rather than using modern OCR technology, Flexdoc relied on outdated manual OCR to convert weather observations into electronic form. The company also developed templates indicating what data from scanned documents should be entered into the system. Flexdoc then sent scans to a group of operators in India, who manually inserted valuable data from the images into the template. The result was over 20 types of brochures with information about the weather, each in at least 6 different page format, and with more than 150 fields.
@@ -36,10 +50,10 @@ INMET kicked off its digitization efforts in 2012, by inviting Flexdoc, a Brazil
 To streamline and simplify this process, Flexdoc turned to ABBYY FlexiCapture Engine in 2014\. The first advantage is that the FC Engine enabled workers to use multiple scanners and feed results into one solution. Therefore, Flexdoc employees scanned pages from the weather observation diaries using 12 ATIZ BookDrive PR and Plustek OpticPro A360 scanners. They then teamed up with INMET specialists to check the quality of the scanned images after which the results were imported into the system based on the ABBYY FlexiCapture Engine. Flexdoc employees provided the templates developed by ABBYY FlexiCapture for processing the documents, while ABBYY's OCR technologies helped define and overlay templates for documents, find necessary fields in them and extract data. In decrepit documents or hand-written records, OCR technologies could not always recognize a field requiring digitization to be performed manually by Flexdoc employees.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Making everyone happy
@@ -53,10 +67,10 @@ _By Elizaveta Titarenko_
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [OCR](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -122,14 +136,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-step-by-step-guide-to-swap-fins-sounds-on-windows/"><u>[New] In 2024, Step-by-Step Guide to Swap Fins' Sounds on Windows</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-unbeatable-prices-for-top-budget-4k-cameras-(1000/"><u>[New] Unbeatable Prices for Top Budget 4K Cameras (<$1,000)</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-global-idp/"><u>ABBYY Global IDPトレンドの最新発表:成果報告書解説</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-presente-ses-innovantes-technologies-ia-pour-lextraction-de-donnees-au-salon-banque-and-innovation-evenement-cle-2018/"><u>ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-sdgs/"><u>ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み</u></a></li>
-<li><a href="https://fox-http.techidaily.com/sonic-scenes-from-still-shots-for-2024/"><u>Sonic Scenes From Still Shots for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/unleash-your-creativity-best-android-video-editor-apps-for-chrome-os/"><u>Unleash Your Creativity Best Android Video Editor Apps for Chrome OS</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/windows-compatible-creative-webcam-drivers-free-downloads-and-step-by-step-updates-for-optimal-performance/"><u>Windows-Compatible Creative Webcam Drivers: Free Downloads & Step-by-Step Updates for Optimal Performance</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-get-rid-of-youtube-distractions-ad-blocking-on-chrome-firefox-and-ios-for-2024/"><u>[New] Get Rid of YouTube Distractions Ad-Blocking on Chrome, Firefox & iOS for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-quick-tips-innovative-lens-creation-on-snapchat/"><u>[New] In 2024, Quick Tips Innovative Lens Creation on Snapchat</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-the-audiences-eye-view-selecting-best-webcams-for-podcasts-for-2024/"><u>[New] The Audience's Eye View Selecting Best Webcams for Podcasts for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-spectrum-of-virtuality-from-meta-to-omniverse-explored/"><u>[New] The Spectrum of Virtuality From Meta to Omniverse Explored</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-video-mastery-unlocked-the-top-5-online-techniques-to-shorten-vimeo-content/"><u>[Updated] Video Mastery Unlocked The Top 5 Online Techniques to Shorten Vimeo Content</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/carlsberg-accelere-son-debut-en-mer-avec-la-technologie-abbyy-un-nouveau-partenariat-industriel/"><u>Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Website's User Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-enhanced-personalization-and-engagement/"><u>Cookiebot-Enabled Sites: Enhanced Personalization & Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-optimizing-your-site-with-advanced-analytics/"><u>Cookiebot-Enhanced: Optimizing Your Site with Advanced Analytics</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/discovering-free-screen-recorders-insightful-review-best-picks/"><u>Discovering Free Screen Recorders – Insightful Review, Best Picks</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-enhancing-online-personalization/"><u>Driven by Cookiebot: Enhancing Online Personalization</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-with-innovative-cookiebot-technology/"><u>Driven with Innovative Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-online-experience-with-cookiebot-power-solutions-for-superior-user-targeting-and-retention/"><u>Elevate Online Experience with Cookiebot Power Solutions for Superior User Targeting and Retention</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-screen-reporter-tech-boosting-youtubing-experience/"><u>Ideal Screen Reporter Tech Boosting YouTubing Experience</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-of-spyro-reignited-trilogy-tiny-heros-huge-impact/"><u>In-Depth Analysis of Spyro Reignited Trilogy: Tiny Hero's Huge Impact</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-the-chromecast-converter-how-to-play-un-supported-video-formats/"><u>Updated 2024 Approved The Chromecast Converter How to Play Un-Supported Video Formats</u></a></li>
 </ul></div>
 

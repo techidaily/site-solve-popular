@@ -1,7 +1,7 @@
 ---
 title: "The Future of Digital Transformation: Insights From the 2018 ABBYY Technology Summit on Content Intelligence"
-date: 2024-09-15T01:04:51.304Z
-updated: 2024-09-18T19:32:42.959Z
+date: 2024-09-17T16:05:35.709Z
+updated: 2024-09-23T17:02:42.338Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8c53194608f8a775260017278f44b51f37022a75b1d4965ad23230242f3d564c.jpg
@@ -58,31 +58,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-capturing-live-discussions-iphoneandroids-screen-recording/"><u>[New] In 2024, Capturing Live Discussions IPhone/Android's Screen Recording</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-solve-invisible-buffer-problems-in-video-games-for-2024/"><u>[New] Solve Invisible Buffer Problems in Video Games for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-artistry-in-your-pocket-the-bestiary-of-top-8-iphone-drawing-apps/"><u>[Updated] 2024 Approved Artistry in Your Pocket The Bestiary of Top 8 iPhone Drawing Apps</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-tools/"><u>Enhancing User Experience Through Smart Data Collection Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-with-advanced-cookiebot-technology/"><u>Enhancing User Experience with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/excellence-recognized-and-best-practices-established/"><u>Excellence Recognized and Best Practices Established!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/from-alpine-adventures-to-digital-signatures-the-abbyy-guide-on-smartwatch-innovations-and-skiing-apps/"><u>From Alpine Adventures to Digital Signatures: The ABBYY Guide on Smartwatch Innovations and Skiing Apps</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-repair-no-rest-for-the-wicked-freezing-problems-on-windows-machines/"><u>How to Repair 'No Rest for the Wicked' Freezing Problems on Windows Machines</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-honor-100-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Honor 100 Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovazione-in-cattolica-assicurazioni-con-elaborazione-documentale-intelligente-per-un-miglioramento-dei-servizi/"><u>Innovazione in Cattolica Assicurazioni Con Elaborazione Documentale Intelligente per Un Miglioramento Dei Servizi</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-and-conversion-use-ocr-technology-with-finereader-pdf/"><u>IPhone Document Scanning & Conversion: Use OCR Technology with FineReader PDF</u></a></li>
-<li><a href="https://win-dash.techidaily.com/keep-your-windows-devices-updated-microsofts-newest-bluetooth-driver-upgrades/"><u>Keep Your Windows Devices Updated: Microsoft's Newest Bluetooth Driver Upgrades</u></a></li>
-<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-lava-storm-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Lava Storm 5G? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/1716118410024-updated-2024-approved-facebook-videos-vertical-or-horizontal/"><u>[Updated] 2024 Approved Facebook Videos Vertical or Horizontal?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-android-mac-video-archiving-a-snap-solution-guide/"><u>[Updated] In 2024, Android-Mac Video Archiving A Snap Solution Guide</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-precision-and-performance-top-6-video-edits-on-macos-big-sur/"><u>[Updated] Precision and Performance Top 6 Video Edits on macOS Big Sur</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-europe-201/"><u>AI Europe 201</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ameliorer-les-resultats-de-la-robotique-de-processus-assistee-par-ordinateur-rpa-analyse-et-techniques-avancees-chez-abbyy/"><u>Améliorer Les Résultats De La Robotique De Processus Assistée Par Ordinateur (RPA) - Analyse Et Techniques Avancées Chez ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/at-leading-annual-summit-abbyy-showcases-advanced-ml-and-ai-technologies-for-future-success/"><u>At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-website-performance-with-cookiebot-integration-the-key-to-successful-seo-strategies/"><u>Boost Website Performance with Cookiebot Integration - The Key to Successful SEO Strategies</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-flawless-cross-sound-mixing-in-audacity-pro/"><u>In 2024, Flawless Cross-Sound Mixing in Audacity Pro</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-poco-f5-5g-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Poco F5 5G Phone FRP Lock</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/radiance-and-refine-essential-editing-secrets-revealed-for-2024/"><u>Radiance and Refine Essential Editing Secrets Revealed for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

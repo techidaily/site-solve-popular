@@ -1,7 +1,7 @@
 ---
 title: "Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives"
-date: 2024-09-17T17:18:50.568Z
-updated: 2024-09-19T00:31:34.853Z
+date: 2024-09-21T16:31:26.456Z
+updated: 2024-09-23T16:35:32.250Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0c75a67c21e60baebffadabf.jpg
@@ -48,6 +48,13 @@ Digital transformation expert and AI Ethics Evangelist for ABBYY
 Andrew Pery is an AI Ethics Evangelist at intelligent automation company [ABBYY](https://tools.techidaily.com/abbyy/products/). His expertise is in artificial intelligence (AI) technologies, application software, data privacy and AI ethics. He has written and presented several papers on the ethical use of AI and is currently co-authoring a book for the American Bar Association. He holds a Masters of Law degree with Distinction from Northwestern University Pritzker School of Law and is a Certified Information Privacy Professional (CIPP/C), (CIPP/E) and a Certified Information Professional (CIP/AIIM).
 
 Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-cipp-c-cipp-e-3a536726/).
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -112,27 +119,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/approved-purity-in-browsing-top-7-selective-android-adblocking-tools/"><u>2024 Approved Purity in Browsing Top 7 Selective Android AdBlocking Tools</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-techniques-for-swiftly-finding-deleted-reddit-contributions/"><u>2024 Approved Techniques for Swiftly Finding Deleted Reddit Contributions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-backs-humanity-project-in-pioneering-unbiased-ai-oversight-tools/"><u>ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-finereader-wesentliches-tool-in-der-dokumentenverarbeitung-und-analyse/"><u>ABBYY FineReader - Wesentliches Tool in Der Dokumentenverarbeitung Und Analyse</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724312941231-abbyy-flexicapture/"><u>ABBYY FlexiCapture の正式日本市場発売開始</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-industry-pioneer-in-process-analytics-and-intelligent-data-extraction/"><u>ABBYY: Industry Pioneer in Process Analytics and Intelligent Data Extraction</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-open-source-neoml-bibliothek-erlebt-einen-sprung-nach-vorn-mit-python-integration-und-beispielloser-geschwindigkeit/"><u>ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-perspective-on-synergizing-with-ai-for-enhanced-team-performance/"><u>ABBYY's Perspective on Synergizing with AI for Enhanced Team Performance</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/fixing-the-directx-issue-a-complete-guide-to-enhance-your-fifa-20-gaming-experience/"><u>Fixing the DirectX Issue – A Complete Guide to Enhance Your FIFA 20 Gaming Experience</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-partnered-filmmaking-expand-your-channels-reach/"><u>In 2024, Partnered Filmmaking Expand Your Channel's Reach</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-premium-alert-tones-top-selection-of-websites/"><u>In 2024, Premium Alert Tones Top Selection of Websites</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-unsung-heroes-of-canvas-open-source-paintings-for-2024/"><u>The Unsung Heroes of Canvas Open-Source Paintings for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-tips-solve-outpost-infinity-siege-pc-game-crashes/"><u>Troubleshooting Tips: Solve Outpost: Infinity Siege PC Game Crashes</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/ultimate-guide-to-prime-3ds-reproduction-software/"><u>Ultimate Guide to Prime 3Ds Reproduction Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unveiling-process-intelligence-insights-into-advanced-data-analytics/"><u>Unveiling Process Intelligence: Insights Into Advanced Data Analytics</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-from-live-to-video-key-techniques-in-gaming-recordings/"><u>[New] 2024 Approved From Live to Video Key Techniques in Gaming Recordings</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-mastering-insta-metrics-top-strategies-for-highlight-optimization/"><u>[New] 2024 Approved Mastering Insta Metrics Top Strategies for Highlight Optimization</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-free-gift-guide-all-about-our-50-unique-youtube-ads-for-you/"><u>[Updated] In 2024, Free Gift Guide All About Our 50 Unique YouTube Ads for You</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-your-guide-to-8-best-fb-movies-downloader-selection/"><u>[Updated] In 2024, Your Guide to #8 Best FB Movies Downloader Selection</u></a></li>
+<li><a href="https://apple-account.techidaily.com/can-i-remove-the-apple-watch-activation-lock-by-apple-iphone-11-without-the-previous-owner-by-drfone-ios/"><u>Can I Remove the Apple Watch Activation Lock By Apple iPhone 11 without the Previous Owner?</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/digital-workforce-corporate-change-and-business-transformation/"><u>Digital Workforce, Corporate Change, and Business Transformation.</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-with-advanced-automated-marketing-solutions-from-cookiebot/"><u>Driven with Advanced Automated Marketing Solutions From Cookiebot</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effective-strategies-to-improve-page-visibility-in-google-search-results/"><u>Effective Strategies to Improve Page Visibility in Google Search Results</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/efficient-session-management-and-targeting-through-cutting-edge-cookiebot-solutions/"><u>Efficient Session Management and Targeting Through Cutting-Edge Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-business-excellence-by-mastering-process-mapping-assessment-and-simulation-tactics/"><u>Elevate Business Excellence by Mastering Process Mapping, Assessment & Simulation Tactics</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-infinix-smart-8-plus-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Infinix Smart 8 Plus Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-toon-up-a-beginners-guide-to-converting-digital-videos-into-cartoons-for-2024/"><u>New Toon Up! A Beginners Guide to Converting Digital Videos Into Cartoons for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

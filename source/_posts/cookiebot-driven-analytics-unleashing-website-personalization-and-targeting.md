@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting"
-date: 2024-09-15T02:40:54.198Z
-updated: 2024-09-18T17:03:27.799Z
+date: 2024-09-19T16:26:09.792Z
+updated: 2024-09-23T17:36:47.991Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/876e753e27077574ad25291cd756f73dd324e0088d395c4f6b7d4b1f29dc8396.jpg
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/876e753e27077574ad25291cd756f73dd324e0088
 **_ABBYY Timeline は、ヘルスケアを提供されている方々に、継続的な運用上の洞察を提供するクラウドベースのプラットフォームです。 詳細は [こちら](https://tools.techidaily.com/abbyy/products/)。なお、ABBYY Timelineの[体験版申し込み](https://tools.techidaily.com/abbyy/products/)も承っております。日本語UIもサポートしております。_**
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. AI and Automation Enabling Remote Working During the COVID-19 Crisis - 新型コロナ感染危機の際にテレワークを可能にしたAIそして自動化
@@ -55,6 +55,13 @@ thumbnail: https://thmb.techidaily.com/876e753e27077574ad25291cd756f73dd324e0088
 Enterprise Talkでは、ABBYYのAIエバンジェリストであるIvan Yamschikovが、CIOが現在の状況を乗り切るために必要なDX（デジタルトランスフォーメーション）についてインタビューしています。例えば、「時代の先を行くリーダーがどのように皆を先導するか、テレワークの際の従業員の生産性とパフォーマンスをどのように監視するか。 自動化への投資とこれが新型コロナ感染危機を乗り切る組織の能力にどのように直接関連しているのか。 企業が、従業員に権限を与えて自己責任を持つことができるようにし、プロセスがどこで壊れているかを発見させ、将来どのように早く立ち直らせるか。 」などです。
 
 [記事はこちら](https://enterprisetalk.com/interview/ai-and-automation-enabling-remote-working-during-the-covid-19-crisis/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Will COVID-19 Change Opinions About Automation Adoption? - 新型コロナ感染流行は自動化の採用に関して影響を与えますか？
 
@@ -76,28 +83,28 @@ ITProTodayでは、新型コロナ感染流行が続く中、この通常では�
 
 [記事はこちら](https://www.cmswire.com/learning-development/want-to-be-a-leader-in-the-digital-first-era-upskill-your-workforce/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8\. It’s Time to Upskill Your Digital Workforce - 今こそデジタル労働力を高めよう！
 
 あなたの職場のデジタル労働力はどれくらいスマート（賢い）ですか？ 現在、多くの組織がAIベースのスキルを活用してエンドツーエンドのアクティビティを実行させることにより人間の職務を遂行することができるデジタルワーカー、つまりソフトウェアベースの労働者を配置しています。 しかし、リーダー達は、これらのソフトウェアロボットが非構造化ドキュメントを含むような、より高度で複雑なタスクを自動化できないことにすぐに気づきます。
 
 ![working from home](https://static1.abbyy.com/abbyycommedia/31775/7_gettyimages-1215346013.jpg)このフォーブスの記事では、企業のセンターオブエクセレンス（CoE、組織横断的専門チーム）内の意思決定者が、DX導入から実際に影響を与えるために、適切な機能を備えたスキルアップしたデジタルワーカーと自動化プラットフォームをどのように検討する必要があるかについて説明しています。
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [記事はこちら](https://www.forbes.com/sites/forbestechcouncil/2020/09/09/its-time-to-upskill-your-digital-workforce/#6f44f0ab15b8)
 
 **非構造的文書の処理にはABBYY FlexiCaptureが最適です。詳しくは[こちら](https://tools.techidaily.com/abbyy/products/)。**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\. How Task Mining Can Turbocharge Your Productivity - タスクマイニングによってどのように生産性を上げることができるのか？
@@ -111,22 +118,15 @@ ITProTodayでは、新型コロナ感染流行が続く中、この通常では�
 [記事はこちら](https://www.analyticsinsight.net/how-task-mining-can-turbocharge-your-productivity/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 10\. Six Professions That Should Get Their Own Robot in 2021 - 2021年にロボット化されるべき6つの職業
 
 ![team meeting via video call](https://static1.abbyy.com/abbyycommedia/31776/8_gettyimages-1248192282.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 最近の統計によると、新型コロナ感染危機により、41％の企業がAI（人工知能）に目を向け、新しいデジタルな働き方を導入しています。 Digital Intelligenceを方針として掲げるABBYYのプロダクトマーケティング部長であるBill Galushaが、Innovation＆Tech Todayにおいて、この変化の影響について説明し、従業員達が新しい同僚としてボットを迎える可能性を述べております。
 
@@ -197,21 +197,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://program-issues.techidaily.com/cod-mw3-update-troubles-how-to-solve-the-sudden-crash-in-modern-warfare-3/"><u>COD MW3 Update Troubles? How to Solve the Sudden Crash in Modern Warfare 3</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/comparative-review-top-cloud-services-prices-for-2024/"><u>Comparative Review Top Cloud Services' Prices for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-efficiency-in-financial-transactions-with-abbyys-innovative-automation-technology/"><u>Enhancing Efficiency in Financial Transactions with ABBYY's Innovative Automation Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-tracking-the-power-behind-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Tracking: The Power Behind Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evaluierung-von-volkswagens-infotainmentsystemen-mit-hilfe-der-software-von-abbyy/"><u>Evaluierung Von Volkswagens Infotainmentsystemen Mit Hilfe Der Software Von ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-tomorrows-job-landscape-with-rpa-insights-from-abbyys-timeline-infobook/"><u>Exploring Tomorrow's Job Landscape with RPA: Insights From ABBYY's Timeline Infobook</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-apple-iphone-15-plus-to-factory-settings-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Reset Apple iPhone 15 Plus to Factory Settings? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-gt-5-phone-without-password-by-drfone-android/"><u>How To Unlock Realme GT 5 Phone Without Password?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-4-ways-to-mirror-apple-iphone-13-pro-to-laptop-via-usb-or-wi-fi-drfone-by-drfone-ios/"><u>In 2024, 4 Ways to Mirror Apple iPhone 13 Pro to Laptop via USB or Wi-Fi | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-apple-melodies-enhancing-visual-storytelling/"><u>In 2024, Apple Melodies Enhancing Visual Storytelling</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-honor-magic-vs-2-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Honor Magic Vs 2 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-poco-f5-pro-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Poco F5 Pro 5G to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-ai-driven-document-handling-for-modern-banking-systems/"><u>Innovative AI-Driven Document Handling for Modern Banking Systems</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-the-efficiency-of-cookiebot-technology-for-seamless-web-tracking/"><u>Leveraging the Efficiency of Cookiebot Technology for Seamless Web Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/online-marketplace-exceeds-growth-targets-and-boosts-operational-productivity-with-cutting-edge-invoice-management-technology/"><u>Online Marketplace Exceeds Growth Targets and Boosts Operational Productivity with Cutting-Edge Invoice Management Technology</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/samsung-galaxy-unveiling-on-july-10-anticipating-the-new-innovations/"><u>Samsung Galaxy Unveiling on July 10: Anticipating the New Innovations</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-best-budget-cameras-for-creating-quality-vlogs/"><u>[New] Best Budget Cameras for Creating Quality Vlogs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-guarding-against-virtual-sickness/"><u>[Updated] Guarding Against Virtual Sickness</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-monetization-changes-500-subscribers-now-eligible/"><u>[Updated] YouTube Monetization Changes 500 Subscribers Now Eligible</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-spectacularly-in-3d-apt-selection-of-top-decks/"><u>2024 Approved Spectacularly in 3D Apt Selection of Top Decks</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/ad-free-pro-android-screenshot-suite/"><u>Ad-Free Pro Android Screenshot Suite</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/easy-steps-to-convert-your-wmv-videos-to-mov-on-a-mac-for-enhanced-playback-and-editing/"><u>Easy Steps to Convert Your WMV Videos to MOV on a Mac for Enhanced Playback and Editing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-financial-stability-with-ai-driven-bank-compliance-measures-and-resilience-tactics/"><u>Enhancing Financial Stability with AI-Driven Bank Compliance Measures and Resilience Tactics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-robotic-process-automation-efficiency-with-advanced-process-analytics-insights-from-the-abbyy-experience/"><u>Enhancing Robotic Process Automation Efficiency with Advanced Process Analytics: Insights From the ABBYY Experience</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-tools/"><u>Enhancing User Experience Through Smart Data Collection Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-a-look-into-the-efficiency-of-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Data Collection: A Look Into the Efficiency of Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-with-advanced-cookiebot-technology/"><u>Enhancing User Experience with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/excellence-recognized-and-best-practices-established/"><u>Excellence Recognized and Best Practices Established!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/from-alpine-adventures-to-digital-signatures-the-abbyy-guide-on-smartwatch-innovations-and-skiing-apps/"><u>From Alpine Adventures to Digital Signatures: The ABBYY Guide on Smartwatch Innovations and Skiing Apps</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/harnessing-ai-power-in-canva-for-mass-outputs/"><u>Harnessing AI Power in Canva for Mass Outputs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-11-pro-to-ipad-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 11 Pro to iPad? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-realme-gt-neo-5-se-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Realme GT Neo 5 SE</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovazione-in-cattolica-assicurazioni-con-elaborazione-documentale-intelligente-per-un-miglioramento-dei-servizi/"><u>Innovazione in Cattolica Assicurazioni Con Elaborazione Documentale Intelligente per Un Miglioramento Dei Servizi</u></a></li>
 </ul></div>
 

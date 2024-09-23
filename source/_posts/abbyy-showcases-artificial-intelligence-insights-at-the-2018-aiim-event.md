@@ -1,7 +1,7 @@
 ---
 title: ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event
-date: 2024-09-12T21:57:32.514Z
-updated: 2024-09-19T01:42:08.293Z
+date: 2024-09-20T16:29:05.750Z
+updated: 2024-09-23T17:18:30.597Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ae69a61ee431cd865eb63071b7e7dab33df662eeb4d068d44c620780bca6c82.jpeg
@@ -62,23 +62,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-how-to-livestream-on-facebook-from-android-and-ios/"><u>[New] In 2024, How to Livestream on Facebook From Android and iOS?</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-ultimate-playlist-plan-for-insta/"><u>[New] The Ultimate Playlist Plan for Insta</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-create-professional-fb-ad-videos-leverage-free-creative-toolkit-for-2024/"><u>[Updated] Create Professional FB Ad Videos Leverage Free Creative Toolkit for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-fuels-our-sites-intelligence-discover-the-smart-technology-driving-us/"><u>Cookiebot Fuels Our Site's Intelligence: Discover the Smart Technology Driving Us!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-workforce-corporate-change-and-business-transformation/"><u>Digital Workforce, Corporate Change, and Business Transformation.</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-with-advanced-automated-marketing-solutions-from-cookiebot/"><u>Driven with Advanced Automated Marketing Solutions From Cookiebot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effective-strategies-to-improve-page-visibility-in-google-search-results/"><u>Effective Strategies to Improve Page Visibility in Google Search Results</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-honor-play-40c-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Honor Play 40C</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Oppo A38? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-nubia-red-magic-9-proplus-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Nubia Red Magic 9 Pro+ Phone Screen?</u></a></li>
-<li><a href="https://change-location.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Samsung Galaxy A34 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-instructions-clearing-stored-videos-on-youtubes-watchlater/"><u>[New] 2024 Approved Instructions Clearing Stored Videos on YouTube's Watchlater</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unlocking-money-with-youtube-shorts-necessities-and-possible-earnings/"><u>[New] In 2024, Unlocking Money with YouTube Shorts Necessities and Possible Earnings</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-effectiveness-of-instagrams-selfie-authenticity-feature/"><u>[New] The Effectiveness of Instagram's Selfie Authenticity Feature</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-low-quality-steam-streams/"><u>Addressing Low Quality Steam Streams</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/vating-commitment-gentle-subscription-strategies/"><u>Cultivating Commitment Gentle Subscription Strategies</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortless-bill-settlement-with-abbyy-enabled-mobile-banking-application/"><u>Effortless Bill Settlement with ABBYY-Enabled Mobile Banking Application</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortless-business-automation-harnessing-the-power-of-zero-coding-ai-tools/"><u>Effortless Business Automation: Harnessing the Power of Zero-Coding AI Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-digital-marketing-with-the-cookiebot-advantage/"><u>Enhance Your Digital Marketing with the Cookiebot Advantage</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-site-performance-with-the-help-of-cookiebot-technology/"><u>Enhanced Site Performance with the Help of Cookiebot Technology</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-12-pro-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 12 Pro without Passcode or Face ID</u></a></li>
+<li><a href="https://games-able.techidaily.com/is-it-time-for-graphics-cards-to-get-more-expensive/"><u>Is It Time for Graphics Cards to Get More Expensive?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-best-4-app-tools-to-simplify-your-next-indoor-or-outdoor-painting-task/"><u>The Best 4 App Tools to Simplify Your Next Indoor or Outdoor Painting Task</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

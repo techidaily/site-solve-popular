@@ -1,7 +1,7 @@
 ---
 title: Excellence Recognized and Best Practices Established!
-date: 2024-09-11T16:58:55.667Z
-updated: 2024-09-19T00:44:10.760Z
+date: 2024-09-20T17:06:33.050Z
+updated: 2024-09-23T17:07:22.321Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bf1aa2624ef83ca4793045372b8a4d65e582b534521041d47a00805c4d5db19c.jpg
@@ -13,9 +13,23 @@ Bericht
 
 ## ABBYY im Gartner® Magic Quadrant™ for Process Mining-Platforms 2024 als Marktführer benannt
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYY wurde für seine Timeline-Process-Intelligence-Plattform nach den Kriterien Vollständigkeit der Vision und Umsetzungskompetenz ausgezeichnet. 
 
 ![Figure_1_Magic_Quadrant_for_Process_Mining](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/figure_1_magic_quadrant_for_process_mining.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Process-Mining-Plattformen](https://tools.techidaily.com/abbyy/products/) helfen Unternehmen, intelligente, datenbasierte Entscheidungen schneller zu treffen, um operative Ziele zu erreichen und Wettbewerbsvorteile zu erzielen. Der Gartner® Magic Quadrant™ for Process Mining Platforms untersucht die aktuellen Marktkräfte und die führenden Anbieter von Process-Mining-Plattformen. 
 
@@ -38,6 +52,13 @@ The Gartner document is available upon request from ABBYY.
 GARTNER is a registered trademark and service mark, and MAGIC QUADRANT and PEER INSIGHTS are trademarks and service marks, of Gartner, Inc. and/or its affiliates in the U.S. and internationally and are used herein with permission. All rights reserved. Gartner does not endorse any vendor, product or service depicted in its research publications, and does not advise technology users to select only those vendors with the highest ratings or other designation. Gartner research publications consist of the opinions of Gartner’s research organization and should not be construed as statements of fact. Gartner disclaims all warranties, expressed or implied, with respect to this research, including any warranties of merchantability or fitness for a particular purpose. 
 
 Gartner Peer Insights content consists of the opinions of individual end users based on their own experiences with the vendors listed on the platform, should not be construed as statements of fact, nor do they represent the views of Gartner or its affiliates. Gartner does not endorse any vendor, product or service depicted in this content nor makes any warranties, expressed or implied, with respect to this content, about its accuracy or completeness, including any warranties of merchantability or fitness for a particular purpose."
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY. 
 
@@ -110,24 +131,22 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-famed-stop-motion-movies-15-of-all-time-for-2024/"><u>[Updated] Famed Stop-Motion Movies #15 of All Time for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-elevates-mariko-maeda-to-leadership-role-president-and-representative-director-for-strengthening-the-japanese-market-presence/"><u>ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-insights-sync-your-wireless-headset-with-ease-and-keep-passwords-protected/"><u>ABBYY Insights: Sync Your Wireless Headset with Ease and Keep Passwords Protected</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-ocr-software-development-kit-advanced-automatic-document-scanning-and-interpretation/"><u>Abbyy OCR Software Development Kit: Advanced Automatic Document Scanning & Interpretation</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-web-application-for-scanning-and-organizing-business-cards-in-the-cloud/"><u>ABBYY Unveils New Web Application for Scanning and Organizing Business Cards in the Cloud</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-anthony-macciola-as-their-latest-appointment-chief-innovation-officer/"><u>ABBYY Welcomes Anthony Macciola as Their Latest Appointment: Chief Innovation Officer</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/best-4k-tvs-top-ten-selection-for-2024/"><u>Best 4K TVs Top Ten Selection for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/dronemakers-ultimate-sky-explore-for-2024/"><u>Dronemaker's Ultimate Sky Explore for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/efficiently-design-your-google-image-mosaic-today/"><u>Efficiently Design Your Google Image Mosaic Today</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-non-functional-scroll-wheel-issues-on-synaptics-trackpads-post-windows-11-update/"><u>Solving Non-Functional Scroll Wheel Issues on Synaptics Trackpads Post-Windows 11 Update</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/storyboarding-through-instagram-slides/"><u>Storyboarding Through Instagram Slides</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-comparing-screen-capture-software-features-bandicam-and-camtasia/"><u>[New] Comparing Screen Capture Software Features Bandicam & Camtasia</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-deciphering-virtual-universes-metaverse-and-multiverse/"><u>[New] Deciphering Virtual Universes Metaverse & Multiverse</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-expertly-engineered-virtual-assistants-discord-for-2024/"><u>[New] Expertly Engineered Virtual Assistants (Discord) for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-essential-review-best-dynamic-capture-devices/"><u>[New] In 2024, Essential Review Best Dynamic Capture Devices</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-the-strategy-behind-automatic-youtube-playback-on-fb/"><u>[Updated] 2024 Approved The Strategy Behind Automatic YouTube Playback on FB</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-dominates-2022-spark-matrix-rankings-by-quadrant-knowledge-solutions-for-advanced-document-analysis/"><u>ABBYY Dominates 2022 SPARK Matrix Rankings by Quadrant Knowledge Solutions for Advanced Document Analysis</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312901263-abbyy-finereader-14/"><u>ABBYY FineReader 14 - 職場向けの文書ワークフローを一新する先進技術</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-leadership-in-customer-excellence-meet-larysa-lototska/"><u>ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyyocr/"><u>ABBYY組み込みOCR採用：東芝テックの新シリーズ印刷機</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-asteriaflexicapture-cloud/"><u>ABBYYブログで紹介! ASTERIAとFlexiCapture Cloudに対応した高度な画面分析テンプレート - 最新技術の解説</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-strategy-shifts-global-economys-influence-explored-in-comprehensive-intelligence-automation-overview/"><u>AI Strategy Shifts: Global Economy's Influence Explored in Comprehensive Intelligence Automation Overview</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-conversions-using-the-latest-cookiebot-technology-features/"><u>Boost Conversions Using the Latest Cookiebot Technology Features</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/comment-un-logiciel-dabbyy-optimise-le-travail-des-cabinets-davocats-londoniens-pour-la-gestion-efficace-de-procedures-essentielles/"><u>Comment Un Logiciel D'ABBYY Optimise Le Travail Des Cabinets D’avocats Londoniens Pour La Gestion Efficace De Procédures Essentielles</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/dive-into-tech-with-toms-ultimate-guide-the-hardware-hub/"><u>Dive Into Tech with Tom's Ultimate Guide - The Hardware Hub</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-launch-microsoft-outlook-in-safe-mode-on-windows-10-a-step-by-step-guide-with-visuals/"><u>How to Launch Microsoft Outlook in Safe Mode on Windows 10: A Step-by-Step Guide with Visuals</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/maximizing-your-fb-page-visibility-a-step-by-step-guide/"><u>Maximizing Your FB Page Visibility A Step-by-Step Guide</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-top-10-best-free-mkv-cutters-2023-update/"><u>Updated Top 10 Best Free MKV Cutters-2023 Update</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

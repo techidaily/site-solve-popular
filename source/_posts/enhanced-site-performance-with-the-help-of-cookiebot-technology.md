@@ -1,7 +1,7 @@
 ---
 title: Enhanced Site Performance with the Help of Cookiebot Technology
-date: 2024-09-13T23:07:41.573Z
-updated: 2024-09-18T19:21:09.397Z
+date: 2024-09-20T16:57:52.589Z
+updated: 2024-09-23T16:21:09.289Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/08f2c817ace11f52f69518bb589ba81c382ee3c50cca52847005eac86a562eee.jpg
@@ -29,6 +29,13 @@ What we discovered was not entirely surprising. Seventy-four percent of responde
 
 What _was_ surprising is that another major contributing factor to workplace challenges was processes. While most would agree that business processes are in place to foster efficiency, compliance, and better business outcomes, nearly half of the respondents (48%) blamed poor business processes for making their job more challenging, with one in four wanting to quit their job because of it. Another 36% said processes wasted time and let them down.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### So, in what ways do processes negatively impact employees’ work? And what can be done to address this?
 
 The answers lie in that many organizations develop processes based on how they think they should flow and not how people interact with systems, applications, and handle outlier events. ABBYY solves this problem with its [Process Intelligence](https://tools.techidaily.com/abbyy/products/) solution, which can analyze multiple processes within your business and deliver a digital process model (a “digital twin”) of your business operations and processes.
@@ -38,6 +45,19 @@ Using advanced algorithms, Process Intelligence extracts and reads the timestamp
 Another interesting finding from the survey was the introduction of technology during the pandemic. Sixty-four percent of respondents’ companies were quick to adopt new technologies and processes for the first time during the lockdown to help alleviate the stresses of WFH. Tools that helped with processes digitized the automation of paper, and onboarded new clients were deemed successful for respondents (76%); this included tools for monitoring employee tasks and performance.
 
 ![COVID Impact on Business, Employees](https://static1.abbyy.com/abbyycommedia/30408/abbyy-global-covid-technology-survey_us_1200x628.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Monitoring how employees perform tasks is a nascent category of process intelligence called task mining. Task mining enables companies to understand how they manage tasks by collecting and analyzing user interactions. Such an in-depth understanding can help enterprises automate and improve processes. Task mining has parallels with process mining, but it uses user interaction data, rather than logs files and business metrics, to analyze processes. [ABBYY Task Mining](https://tools.techidaily.com/abbyy/products/) analyzes desktop user interaction data and seamlessly links it with process details mined from system event data, so you can see where repetitive and inefficient tasks are slowing your processes and allocate resources in the right places to resolve them.
 
@@ -61,6 +81,13 @@ Leaders need to understand the day-to-day frustrations employees have with their
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Bruce Orcutt
 
 Senior Vice President of Product Marketing at ABBYY
@@ -68,6 +95,13 @@ Senior Vice President of Product Marketing at ABBYY
 Bruce Orcutt is a veteran Product Marketing and Product Management professional with over 20 years’ experience in Enterprise Software. Bruce drives global product marketing for ABBYY's intelligent automation solutions that create business value for organizations. His go-to-market strategies accelerate the adoption of ABBYY solutions worldwide.
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -132,32 +166,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-aligning-apple-android-and-computer-schedules-for-zoom-syncing/"><u>[New] In 2024, Aligning Apple, Android, and Computer Schedules for Zoom Syncing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-seamless-video-text-illusion-with-free-tools/"><u>[New] Seamless Video Text Illusion with Free Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-editors-guide-best-for-youtube-content/"><u>[New] The Ultimate Editor's Guide Best for YouTube Content</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-mastering-youtube-srt-extracts-a-triad-approach/"><u>[Updated] Mastering YouTube SRT Extracts A Triad Approach</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-engagement-with-cookiebot-technology-integration/"><u>Enhancing Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evolving-towards-process-intelligence-insightful-strategies-from-abbyys-leading-expert/"><u>Evolving Towards Process Intelligence: Insightful Strategies From ABBYY's Leading Expert</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-artificial-intelligence-frontiers-at-abbyy-event-shaping-tomorrows-tech-landscape/"><u>Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/1719574021414-print-every-page-without-a-glitch-now/"><u>Print Every Page without a Glitch, Now</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-future-of-internet-browsing-introducing-microsoft-bings-artificial-intelligence-upgrade/"><u>The Future of Internet Browsing: Introducing Microsoft Bing's Artificial Intelligence Upgrade</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-tecno-spark-20c-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Tecno Spark 20C Bricked Devices | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/unseen-transformation-how-the-true-ai-evolution-remains-hidden/"><u>Unseen Transformation: How the True AI Evolution Remains Hidden</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-streamlined-approach-to-capturing-youtube-content/"><u>[New] 2024 Approved Streamlined Approach to Capturing YouTube Content</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-pinnacle-programs-for-peak-webcam-video-quality/"><u>[New] Pinnacle Programs for Peak Webcam Video Quality</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-tegakiflexicaptureocr-abbyy/"><u>「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-essential-flight-gear-to-upgrade-your-phantom-4-drone/"><u>2024 Approved Essential Flight Gear to Upgrade Your Phantom 4 Drone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-uncover-the-health-perks-of-asmr-sounds/"><u>2024 Approved Uncover the Health Perks of ASMR Sounds</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-industry-pioneer-in-process-analytics-and-intelligent-data-extraction/"><u>ABBYY: Industry Pioneer in Process Analytics and Intelligent Data Extraction</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-open-source-neoml-bibliothek-erlebt-einen-sprung-nach-vorn-mit-python-integration-und-beispielloser-geschwindigkeit/"><u>ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-perspective-on-synergizing-with-ai-for-enhanced-team-performance/"><u>ABBYY's Perspective on Synergizing with AI for Enhanced Team Performance</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/advanced-insights-exploring-beyond-business-analytics-and-process-analysis-ebook-by-abbyy/"><u>Advanced Insights: Exploring Beyond Business Analytics and Process Analysis eBook by ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automatische-dokumentverarbeitung-in-wilmington-mit-abbyy-software/"><u>Automatische Dokumentverarbeitung in Wilmington Mit ABBYY Software</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-conversion-rates-using-innovative-cookiebot-tracking-solutions/"><u>Boost Conversion Rates Using Innovative Cookiebot Tracking Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-success-boost-your-sites-visibility-and-conversions/"><u>Cookiebot-Driven Success: Boost Your Site's Visibility and Conversions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-site-with-advanced-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Site with Advanced Analytics and Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Technology</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/enigma-explorers-guide-top-10-online-deals-on-boxes/"><u>Enigma Explorers' Guide - Top 10 Online Deals on Boxes</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-11-pro-to-other-iphone-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 11 Pro To Other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/how-to-upgrade-or-install-the-macos-sierra-for-2024/"><u>How to Upgrade or Install the macOs Sierra for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-streamline-editing-with-these-10-leading-software-tools/"><u>In 2024, Streamline Editing with These 10 Leading Software Tools</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/navigating-through-t-mobiles-residential-cellular-coverage-guidelines/"><u>Navigating Through T-Mobile's Residential Cellular Coverage Guidelines</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-future-of-flying-games-mavic-air-vs-dji-spark-showdown/"><u>The Future of Flying Games Mavic Air Vs. DJI Spark Showdown</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Optimized with Automated Tracking: Discover the Power of Cookiebot Technology"
-date: 2024-09-15T19:04:47.230Z
-updated: 2024-09-19T00:29:12.724Z
+date: 2024-09-18T16:46:00.883Z
+updated: 2024-09-23T18:20:15.539Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/01714150012339f1efdced7e1f734d013877746c193a3029a59cdde359ecf8d8.jpg
@@ -25,6 +25,13 @@ In the list below, we’ve curated our top picks for Process Intelligence articl
 
 ![Scott Opitz ABBYY CMO](https://static1.abbyy.com/abbyycommedia/32066/1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After a 20-year tenure with the company, our Chief Marketing Officer, Jupp Stoepetie, retired in February of last year, and we announced the appointment of Scott Opitz as his successor. Workflow Magazine interviewed Opitz about his new role and talked about his biggest challenges, industry outlook, and more.
 
 [Read the article.](https://www.workflowotg.com/qa-with-scott-opitz-cmo-abbyy/)
@@ -35,25 +42,11 @@ Digital Intelligence empowers enterprises to make a tremendous impact where it m
 
 [Read the article.](https://www.rtinsights.com/successful-digital-transformation-understanding-processes/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Understand Your Business Processes or Risk Failing
 
 Automation has fundamentally transformed the enterprise. From streamlining workflows and increasing operational efficiencies to improving the customer experience, automation enhances business-critical functions and accelerates digital transformation initiatives.
 
 ![successful digital transformation team meeting](https://static1.abbyy.com/abbyycommedia/32068/3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Robotic process automation (RPA) technologies enable employees to focus less on mundane tasks and more on high-value, creative, and relationship-oriented responsibilities that directly influence the bottom line. However, despite its significant benefits, RPA technologies by themselves aren't enough to deliver automation's full potential. Anthony Macciola, Chief Innovation Officer, advises organizations to use Digital Intelligence solutions to understand the context and meaning of content in this Forbes article.
 
@@ -65,11 +58,25 @@ From evolving customer demands, complex legal and regulatory environments, incre
 
 [Read the article.](https://workflowotg.com/a-new-approach-to-processes/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. 3 Questions Every Leader Needs to Ask for a Resilient Supply Chain
 
 While the Coronavirus disease (COVID-19) pandemic has fundamentally disrupted virtually every industry, it is perhaps the most pronounced in the supply chain. Three out of four U.S. companies report that their supply chains have been disrupted as a result of the crisis. Shipment delays and stock shortages have become common occurrences.
 
 ![process improvement for supply chains](https://static1.abbyy.com/abbyycommedia/32065/4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In late March, just a couple of weeks after a state of emergency was declared in the United States, it was reported that even Amazon was experiencing delivery delays as long as one month. ABBYY Vice President of Product Marketing Bruce Orcutt tells Supply & Demand Chain Executive that the supply chain needs to be able to pivot quickly in order to be resilient.
 
@@ -89,16 +96,16 @@ Adrian Bridgwater, technology journalist, and his latest IDG Connect article exp
 
 ![process schema](https://static1.abbyy.com/abbyycommedia/32067/2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **_ABBYY Timeline, a cloud-based platform, uses advanced task and process mining to deliver 360-degree visibility into business operations by combining insights from people, processes, and content. Learn more [here](https://tools.techidaily.com/abbyy/products/)._**
 
 [Process Mining](https://tools.techidaily.com/abbyy/products/) [Coronavirus](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -163,20 +170,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-mastering-customization-seamlessly-embedding-text-and-links-in-youtube-videos/"><u>[New] 2024 Approved Mastering Customization Seamlessly Embedding Text & Links in Youtube Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-how-to-use-adsense-for-youtube-for-2024/"><u>[Updated] How to Use AdSense for YouTube for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unveiling-the-mystery-of-facebooks-status-video-downloads/"><u>[Updated] In 2024, Unveiling the Mystery of Facebook's Status Video Downloads</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/advanced-dvd-conversion-tool-with-winx-dvd-ripper-gold-for-effortless-dvds-to-flvmp4-transfers-on-windows-10/"><u>Advanced DVD Conversion Tool with WinX DVD Ripper Gold for Effortless DVDs to FLV/MP4 Transfers on Windows 10</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/editor-insider-look-editmaster-pro-whats-new-in-2esy/"><u>Editor Insider Look EditMaster Pro - What's New in 2Esy</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-marketing-precision-via-cookiebot-driven-insights/"><u>Enhanced Marketing Precision via Cookiebot-Driven Insights</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-ocr-solutions-boost-efficiency-in-top-tier-construction-information-firm/"><u>Enhanced OCR Solutions Boost Efficiency in Top-Tier Construction Information Firm</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-personalization-with-the-support-of-cookiebot-technology/"><u>Enhanced Personalization with the Support of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-efficiency-in-financial-transactions-with-abbyys-innovative-automation-technology/"><u>Enhancing Efficiency in Financial Transactions with ABBYY's Innovative Automation Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-tracking-the-power-behind-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Tracking: The Power Behind Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evaluierung-von-volkswagens-infotainmentsystemen-mit-hilfe-der-software-von-abbyy/"><u>Evaluierung Von Volkswagens Infotainmentsystemen Mit Hilfe Der Software Von ABBYY</u></a></li>
-<li><a href="https://fox-info.techidaily.com/frame-perfect-capture-leading-slow-motion-cameras-reviewed/"><u>Frame-Perfect Capture Leading Slow Motion Cameras Reviewed</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-apple-iphone-11-pro-max-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Track WhatsApp Messages on Apple iPhone 11 Pro Max Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme GT Neo 5 SE | Dr.fone</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/navigating-the-world-of-amr-wmas-an-in-depth-guide-to-file-conversion-techniques-2023/"><u>Navigating the World of AMR WMAs An In-Depth Guide to File Conversion Techniques 2023</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-smartphone-savvy-capturing-and-storing-twitter-gifs/"><u>[New] In 2024, Smartphone Savvy Capturing & Storing Twitter GIFs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-engaging-audience-from-anywhere-phone-based-filming-techniques/"><u>[Updated] 2024 Approved Engaging Audience From Anywhere Phone-Based Filming Techniques</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-itel-p40-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Website's User Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-enhanced-personalization-and-engagement/"><u>Cookiebot-Enabled Sites: Enhanced Personalization & Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-optimizing-your-site-with-advanced-analytics/"><u>Cookiebot-Enhanced: Optimizing Your Site with Advanced Analytics</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/deciding-the-best-coding-ai-the-thorough-comparison-of-chatgpt-vs-gemini/"><u>Deciding the Best Coding AI - The Thorough Comparison of ChatGPT Vs. Gemini</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-enhancing-online-personalization/"><u>Driven by Cookiebot: Enhancing Online Personalization</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-with-innovative-cookiebot-technology/"><u>Driven with Innovative Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-online-experience-with-cookiebot-power-solutions-for-superior-user-targeting-and-retention/"><u>Elevate Online Experience with Cookiebot Power Solutions for Superior User Targeting and Retention</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/embracing-innovative-mobility-learn-with-us-on-the-abbyy-blog/"><u>Embracing Innovative Mobility - Learn with Us on the ABBYY Blog</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-online-performance-using-the-powerful-features-of-cookiebot-technology/"><u>Enhance Online Performance Using the Powerful Features of Cookiebot Technology</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-pioneering-the-soundtrack-adding-editing-and-cropping-music/"><u>In 2024, Pioneering the Soundtrack Adding, Editing, and Cropping Music</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-how-to-perform-mask-tracking-discovering-the-best-methods/"><u>New In 2024, How to Perform Mask Tracking Discovering the Best Methods</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/streamline-your-4k-editing-workflow-on-premiere-pro-tips-to-avoid-performance-issues/"><u>Streamline Your 4K Editing Workflow on Premiere Pro - Tips to Avoid Performance Issues</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-5-strategies-how-pupils-utilize-chatgpt-for-academic-success/"><u>Top 5 Strategies: How Pupils Utilize ChatGPT for Academic Success</u></a></li>
+<li><a href="https://some-skills.techidaily.com/understanding-the-essence-of-digital-chronicles-for-2024/"><u>Understanding the Essence of Digital Chronicles for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Enhanced Customer Insights with the Help of Cookiebot Technology
-date: 2024-09-14T16:11:55.191Z
-updated: 2024-09-19T03:03:01.978Z
+date: 2024-09-20T16:48:53.767Z
+updated: 2024-09-23T18:19:44.309Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a23b6166dff1d71405deccff3c580ba47c280d1fae23b982db1e3d6f2479cd12.jpg
@@ -29,6 +29,13 @@ For organizations to leverage these powerful tools it is vital that they speak t
 
 However, the content needs to be transformed into more than a mere digital facsimile but should also contain information structured in a way that these enabling technologies can both understand and, more importantly, act upon.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Content Intelligence
 
 In order to do this, it is first necessary to classify the nature of the content, i.e. determine what it represents and, therefore, identify the context of the information it contains. This can be achieved by _Content Intelligence_ through utilization of AI algorithms capable of automating this time-consuming activity.
@@ -42,13 +49,6 @@ Once the nature of the content is identified, it is then necessary to determine 
 If all the documents of a particular type were identical, e.g. copies of the same underlying form, this would be relatively simple we could use the geospatial co-ordinates of the fields on the form and extract the information from a predefined region of the form. However Digital Transformation is not merely restricted to identical fixed format forms, but content existing in many diverse formats, e.g. different vendor invoices and bank statements from various financial institutions.
 
 The ability to accommodate such diversity comes from a combination AI and business rules to identify, extract and validate the information within the content regardless of the specific layout. The accuracy of the information is maximized through additional validation with external databases, e.g. a vendor database for invoices.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Machine Learning
 
@@ -67,10 +67,10 @@ If a customer wishes to set up an automatic payment to, for example, their Elect
 The customer can use their Electricity Bill to initiate and automate the setup of an electronic bill payment.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Paperless Billing
@@ -85,6 +85,13 @@ Once the bank, receives the email, FlexiCapture processes the attachment, automa
 
 This extracted information is passed to an RPA application to configure the automated payment and await final activation. Given that the request came in via email, the customer is notified via their Customer Banking Portal and is prompted to confirm the activation of the automatic payment.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Paper-based Billing
 
 Not all customers of vendors avail themselves of paperless billing. Consequently, a mechanism is required to automatically extract information from a paper bill in a manner that enhance the total customer experience.
@@ -92,6 +99,13 @@ Not all customers of vendors avail themselves of paperless billing. Consequently
 In this use case, customer can capture the paper bill directly from their mobile banking app and send the resulting image directly to FlexiCapture as shown below in Figure 3.
 
 ![Talking to robots 3](https://static1.abbyy.com/abbyycommedia/25295/talking-to-robots-abbyy-blog-3.png)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Figure 3 - Setting up e-Billing via Mobile Banking App using paper-based bill_
 
@@ -108,13 +122,6 @@ By speaking the right language, it is possible to transition seamlessly from the
 _**by Carl Hillier, Product Group Head for Data Capture**_
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -179,16 +186,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-rx-memory-treasure/"><u>[New] RX Memory Treasure</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-find-hotspots-for-online-video-dialogue/"><u>[Updated] 2024 Approved Find Hotspots for Online Video Dialogue</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-unlocking-youtubes-central-hub-for-video-crafting/"><u>2024 Approved Unlocking YouTube's Central Hub for Video Crafting</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-exploring-the-mystery-of-the-blue-video-symbol-on-fb-messages/"><u>[New] Exploring the Mystery of the Blue Video Symbol on FB Messages</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-hone-your-sight-the-top-5-ways-to-zoom-in-minecraft/"><u>[New] Hone Your Sight The Top 5 Ways to Zoom in Minecraft</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-must-have-tech-for-clear-streamed-content/"><u>[New] Must-Have Tech for Clear Streamed Content</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-advanced-techniques-in-zooming-achieving-perfect-audio-quality-for-your-podcast/"><u>[Updated] 2024 Approved Advanced Techniques in Zooming Achieving Perfect Audio Quality for Your Podcast</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-mouthwatering-marvels-leading-tiktok-kitchen-stars-for-2024/"><u>[Updated] Mouthwatering Marvels Leading TikTok Kitchen Stars for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-dominates-2022-spark-matrix-rankings-by-quadrant-knowledge-solutions-for-advanced-document-analysis/"><u>ABBYY Dominates 2022 SPARK Matrix Rankings by Quadrant Knowledge Solutions for Advanced Document Analysis</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312901263-abbyy-finereader-14/"><u>ABBYY FineReader 14 - 職場向けの文書ワークフローを一新する先進技術</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/abbyys-leadership-in-customer-excellence-meet-larysa-lototska/"><u>ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyyocr/"><u>ABBYY組み込みOCR採用：東芝テックの新シリーズ印刷機</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-asteriaflexicapture-cloud/"><u>ABBYYブログで紹介! ASTERIAとFlexiCapture Cloudに対応した高度な画面分析テンプレート - 最新技術の解説</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/ai-strategy-shifts-global-economys-influence-explored-in-comprehensive-intelligence-automation-overview/"><u>AI Strategy Shifts: Global Economy's Influence Explored in Comprehensive Intelligence Automation Overview</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversions-using-the-latest-cookiebot-technology-features/"><u>Boost Conversions Using the Latest Cookiebot Technology Features</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/crafting-an-authentic-online-presence-in-the-world-of-fb-for-2024/"><u>Crafting an Authentic Online Presence in the World of FB for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-magic-6-lite-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor Magic 6 Lite to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-exploring-the-latest-advancements-in-lgs-all-round-360-camera/"><u>In 2024, Exploring the Latest Advancements in LG's All-Round 360 Camera</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-the-ultimate-unboxing-adventure-boosting-customer-delight/"><u>In 2024, The Ultimate Unboxing Adventure Boosting Customer Delight</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/revolutionize-your-posts-best-igtv-edits-unveiled-for-2024/"><u>Revolutionize Your Posts Best IGTV Edits Unveiled for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312889342-cookiebot-enabled-optimize-your-site-with-advanced-analytics/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Analytics!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-macs-best-picks-elite-4k-monitor-showdown/"><u>In 2024, Mac's Best Picks Elite 4K Monitor Showdown</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-samsung-galaxy-a25-5g-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Samsung Galaxy A25 5G Phone Hassle-Free</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/too-old-for-ios-time-for-an-update/"><u>Too Old for iOS: Time for an Update?</u></a></li>
 </ul></div>
 

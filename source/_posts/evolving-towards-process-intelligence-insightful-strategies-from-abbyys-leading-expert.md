@@ -1,7 +1,7 @@
 ---
 title: "Evolving Towards Process Intelligence: Insightful Strategies From ABBYY's Leading Expert"
-date: 2024-09-16T02:36:26.729Z
-updated: 2024-09-19T00:19:44.399Z
+date: 2024-09-18T16:05:17.322Z
+updated: 2024-09-23T16:28:05.434Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9b1d54d7ae73d83b91bdfdadbf959717f77a8b021abfc1f3482b428b18a9e6d1.jpg
@@ -15,11 +15,45 @@ thumbnail: https://thmb.techidaily.com/9b1d54d7ae73d83b91bdfdadbf959717f77a8b021
 
 English
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Featuring
 
 ![16 Wvda 198X198](https://static1.abbyy.com/abbyycommedia/35539/rwthaachen-logo-forspeakers-205x32.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![16 Wvda 198X198](https://static4.abbyy.com/abbyycommedia/25483/16-wvda-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Prof. Dr. ir. Wil van der Aalst
 
@@ -29,6 +63,13 @@ English
 
 ![28 Scottopitz 198X198](https://static4.abbyy.com/abbyycommedia/25613/28-scottopitz-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Scott Opitz
 
 Chief Marketing Officer, **ABBYY**
@@ -36,13 +77,6 @@ Chief Marketing Officer, **ABBYY**
 If you can’t measure it, you can’t improve it.
 
 _Peter Drucker_
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Overview
 
@@ -69,23 +103,9 @@ Watch now and gain insights to how continuous advances in process mining will he
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Thank you, enjoy your webinar!
 
 [![On Demand Thejourneyfromprocessminingtoprocessintelligence](https://static2.abbyy.com/abbyycommedia/28710/on-demand-thejourneyfromprocessminingtoprocessintelligence.jpg)](https://www.youtube.com/watch?v=SDNtalhhXFc) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
@@ -154,19 +174,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-mastering-audio-adjustment-on-youtube-devices/"><u>2024 Approved Mastering Audio Adjustment on YouTube Devices</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-ocr-rpa49/"><u>伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-presente-ses-innovantes-technologies-ia-pour-lextraction-de-donnees-au-salon-banque-and-innovation-evenement-cle-2018/"><u>ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-advanced-language-translator-powered-by-ntt-docomo-features-ocr-for-multilingual-support/"><u>ABBYY's Advanced Language Translator - Powered by NTT DOCOMO, Features OCR for Multilingual Support</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-sdgs/"><u>ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatisierte-rechnungsbearbeitung-fur-energielieferanten-mit-branchenrelevanz-empfehlungen-von-abbyy/"><u>Automatisierte Rechnungsbearbeitung Für Energielieferanten Mit Branchenrelevanz – Empfehlungen Von ABBYY</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-honor-90-lite-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Honor 90 Lite is off? | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/expert-tips-for-a-smoother-battlefield-2042-experience-dealing-with-frame-rate-problems/"><u>Expert Tips for a Smoother Battlefield 2042 Experience - Dealing with Frame Rate Problems</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/how-to-watch-record-and-edit-football-matches-for-free/"><u>How to Watch, Record, and Edit Football Matches for Free</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-5-solutions-for-oppo-a79-5g-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Oppo A79 5G Unlock Without Password</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-free-7-best-apps-to-go-live-on-youtube-from-iphone-or-android/"><u>In 2024, FREE 7 Best Apps to Go Live on YouTube From iPhone or Android</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-peering-through-the-printer-one-persons-3dr-story/"><u>In 2024, Peering Through the Printer One Person’s '3DR' Story</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-top-alternative-movies-to-watch-ranked-7/"><u>In 2024, Top Alternative Movies to Watch, Ranked #7</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-6-revolutionary-traits-of-snapchats-my-ai/"><u>The 6 Revolutionary Traits of Snapchat's My AI</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-spin-and-share-easy-iphone-filmmaking-techniques/"><u>[New] 2024 Approved Spin and Share Easy iPhone Filmmaking Techniques</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-professional-recordings-ensuring-flawless-gameplay-footage-of-roblox-on-macs/"><u>[New] In 2024, Professional Recordings Ensuring Flawless Gameplay Footage of Roblox on Macs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eign-in-the-views-youtube-thumbnail-size-and-ratios/"><u>[New] Reign in the Views Youtube Thumbnail Size & Ratios</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-streamline-your-twitterscape-with-these-pc-tips/"><u>[New] Streamline Your Twitterscape with These PC Tips</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-exploring-virtual-landscapes-with-android-vr360/"><u>[Updated] 2024 Approved Exploring Virtual Landscapes with Android (VR/360)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-perfect-method-for-saving-camera-images-on-snapchat/"><u>[Updated] In 2024, The Perfect Method for Saving Camera Images on Snapchat</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-cutting-edge-analytics/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Cutting-Edge Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-drive-better-conversions-with-smart-traffic/"><u>Cookiebot-Enhanced: Drive Better Conversions with Smart Traffic</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/drive-engagement-using-the-advanced-capabilities-of-cookiebot/"><u>Drive Engagement Using the Advanced Capabilities of Cookiebot</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/empowering-websites-with-cookiebot-technology-for-enhanced-user-experience/"><u>Empowering Websites with Cookiebot Technology for Enhanced User Experience</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-digital-engagement-with-cookiebot-technology/"><u>Enhanced Digital Engagement with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-user-experience-with-automated-data-gathering-the-power-of-cookiebot-technology/"><u>Enhanced User Experience with Automated Data Gathering: The Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-insurance-risk-assessment-via-automated-data-centric-methods/"><u>Enhancing Insurance Risk Assessment via Automated, Data-Centric Methods</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-kyc-compliance-in-finance-with-ai-and-ml-techniques-download-our-comprehensive-guide/"><u>Enhancing KYC Compliance in Finance with AI & ML Techniques - Download Our Comprehensive Guide</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-online-experience-through-cookiebot-driven-analytics/"><u>Enhancing Online Experience Through Cookiebot-Driven Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-through-cookiebot-technology/"><u>Enhancing Website Analytics Through Cookiebot Technology</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-restore-voice-chat-functionality-in-phasmophobia-solved/"><u>How to Restore Voice Chat Functionality in Phasmophobia (Solved)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-the-apple-iphone-8-plus-sim-lock-4-easy-methods-by-drfone-ios/"><u>How To Unlock The Apple iPhone 8 Plus SIM Lock 4 Easy Methods</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unlocking-viral-potential-in-instagram-videos/"><u>Unlocking Viral Potential in Instagram Videos</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/vod-vod/"><u>VODレコード作成ガイド - ベストなVOD再生デバイスと使い方</u></a></li>
 </ul></div>
 

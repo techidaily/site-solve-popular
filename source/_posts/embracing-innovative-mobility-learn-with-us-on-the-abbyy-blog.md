@@ -1,7 +1,7 @@
 ---
 title: Embracing Innovative Mobility - Learn with Us on the ABBYY Blog
-date: 2024-09-15T19:18:58.478Z
-updated: 2024-09-18T16:07:05.713Z
+date: 2024-09-16T17:43:14.723Z
+updated: 2024-09-23T17:14:00.583Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c3e502f20e7efdaa79fe7247c347cba062451d0a182bc95c04756bb4182724ea.jpg
@@ -25,9 +25,23 @@ There are four areas where digital initiatives will have an immediate impact.
 
 Customer engagement applications are now an integral part of our daily life and can unlock exponential growth for the transportation industry. When tightly integrated into backend systems of record (SOR) they become strategic tools for enhancing experiences in customer onboarding, trace and tracking, omnichannel invoice validation and processing. By deploying applications for planning routes, tracing schedule or delivering information in real-time, transport companies can improve customer engagement and boost revenue.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Guide your digital journey
 
 If you have invested in your digital initiatives, you probably expect your ROI in the form of speed of execution and agility to reduce existing business latencies and inefficiencies. However, documents like bills of lading, customs declarations, claims documents, proof of delivery, driver logs, catering and fuel receipts, carrier invoices and expenses still drive and support most 3PL business processes. Drawing on the use of the latest document processing technologies like _Intelligent Capture,_ as well as increasing efficiency through cloud-based solutions, are essential to the success of digitization of transport. Even if a relatively small percentage of logistic data is still locked in paper, it slows down the workflow process. Repetitive and mundane tasks like scanning, tracking and tracing or monitoring shipment schedules, invoicing validation and credit collections can complicate the digital efforts and drive away customers.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Improve Workflow Transparency
 
@@ -36,10 +50,10 @@ Having a digitized and efficient workflow will provide customers transparency in
 However, to have a dynamic workflow, intelligent capture is needed to automate the process of classifying document types. Auto-classification of document types into classes and subclasses delivers a tremendous business value. It reduces the cognitive tasks and burden on workers, thereby minimizing errors and operational labor costs, improving worker satisfaction and accelerating the transaction.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Gain Context from Data
@@ -51,10 +65,16 @@ Digital transformation in needed in the transportation industry to evolve your o
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -120,15 +140,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-effective-strategies-for-podcast-on-insta-story-and-posts/"><u>[New] In 2024, Effective Strategies for Podcast on Insta Story & Posts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-elevates-mariko-maeda-to-leadership-role-president-and-representative-director-for-strengthening-the-japanese-market-presence/"><u>ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-insights-sync-your-wireless-headset-with-ease-and-keep-passwords-protected/"><u>ABBYY Insights: Sync Your Wireless Headset with Ease and Keep Passwords Protected</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-automatisierte-intelligenz-innovative-losungen-auf-der-expo-fur-dienstleistungsverlagerung-und-konsolidierung/"><u>ABBYY-Automatisierte Intelligenz: Innovative Lösungen Auf Der Expo Für Dienstleistungsverlagerung Und Konsolidierung</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/gratuito-online-converter-de-audio-para-mp3-wav-e-m4a-software-livre-e-gratuito-de-movavi/"><u>Gratuito Online: Converter De Audio Para MP3, WAV E M4A - Software Livre E Gratuito De Movavi</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-do-you-unlock-your-iphone-13-pro-learn-all-4-methods-drfone-by-drfone-ios/"><u>How Do You Unlock your iPhone 13 Pro? Learn All 4 Methods | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-most-reliable-zero-price-online-photo-editors-guide/"><u>The Most Reliable Zero-Price Online Photo Editors Guide</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-9-realme-narzo-60-pro-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Realme Narzo 60 Pro 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-how-to-eliminate-sound-fluctuations-on-windows-11windows-7-systems/"><u>Troubleshooting Guide: How to Eliminate Sound Fluctuations on Windows 11/Windows 7 Systems</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-premiere-pro-slow-playback-issues-finding-the-best-solutions-for-2024/"><u>Updated Premiere Pro Slow Playback Issues Finding The Best Solutions for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-pros-choice-top-laptop-recording-tools-reviewed/"><u>2024 Approved Pro's Choice Top Laptop Recording Tools Reviewed</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyyabbyy-proof-of-identity/"><u>ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/free-but-worth-it-exploring-the-top-reasons-to-stick-with-chatgpt-plus-despite-available-gpt-4/"><u>Free but Worth It: Exploring the Top Reasons to Stick With ChatGPT Plus Despite Available GPT-4</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-oppo-reno-9a-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Oppo Reno 9A PC | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-streamline-your-way-to-a-thriving-biz-youtube-channel/"><u>In 2024, Streamline Your Way to a Thriving Biz YouTube Channel</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/munchen-nutzt-abbyy-fur-die-modernisierung-und-digitale-speicherung-von-baurechnungen/"><u>München Nutzt ABBYY Für Die Modernisierung Und Digitale Speicherung Von Baurechnungen</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/understanding-the-legal-framework-abbyys-cloud-product-terms-end-to-end-privacy-standards-and-gdpr-provisions-explained/"><u>Understanding the Legal Framework: ABBYY's Cloud Product Terms, End-to-End Privacy Standards & GDPR Provisions Explained</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unleash-dynamic-user-experiences-with-cookiebot-technology/"><u>Unleash Dynamic User Experiences with Cookiebot Technology</u></a></li>
 </ul></div>
 

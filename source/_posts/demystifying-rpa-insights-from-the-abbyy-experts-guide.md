@@ -1,7 +1,7 @@
 ---
 title: "Demystifying RPA: Insights From the ABBYY Expert's Guide"
-date: 2024-09-13T23:12:28.421Z
-updated: 2024-09-19T02:33:50.194Z
+date: 2024-09-19T16:09:21.120Z
+updated: 2024-09-23T18:03:15.029Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f74f161f0523579dd71e4de3d10404ac967ce66d01905429c873797c52e328b9.jpg
@@ -20,6 +20,13 @@ April 19, 2018
 ![What is RPA? Understanding Robotic Process Automation | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25283/9134e_blog_understanding-robotic-process-automation_blog_934x400.png) 
 
 All the rave these days is around artificial intelligence (AI) as the technology continues to shake up the C-suite while gaining a seat at the table. For C-suite executives however, robotic process automation (RPA) is panning out as the most exciting tool in their digital transformation toolbox. With new compliance regulations looming large, organizations need RPA to help unlock the hidden value in both structured and unstructured documents. Highly regulated industries that control large volume of data and continuously strive for improvement stand to gain most from cognitive automation, which brings intelligence to RPA.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What is RPA?
 
@@ -47,7 +54,21 @@ This blog is an abridged version of an article (The Impact of RPA on GDPR) that 
 
 ![Anthony Macciola ABBYY](https://static4.abbyy.com/abbyycommedia/25717/anthonymacciola-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Anthony Macciola
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -112,27 +133,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-role-of-motion-leveraging-fb-ads-for-outstanding-roi/"><u>[New] 2024 Approved The Role of Motion Leveraging FB Ads for Outstanding ROI</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-maximizing-performance-optimal-settings-for-logitech-webcam/"><u>[Updated] In 2024, Maximizing Performance Optimal Settings for Logitech Webcam</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-superior-visual-treatment-applying-filters-to-videos/"><u>2024 Approved Superior Visual Treatment Applying Filters to Videos</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-unique-14-motion-graphics-showcasing-text/"><u>2024 Approved Unique 14 Motion Graphics Showcasing Text</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/discovering-abbyy-teams-of-athletes-more-than-just-their-profession/"><u>Discovering ABBYY Teams of Athletes: More than Just Their Profession</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effortless-bill-settlement-with-abbyy-enabled-mobile-banking-application/"><u>Effortless Bill Settlement with ABBYY-Enabled Mobile Banking Application</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effortless-business-automation-harnessing-the-power-of-zero-coding-ai-tools/"><u>Effortless Business Automation: Harnessing the Power of Zero-Coding AI Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-digital-marketing-with-the-cookiebot-advantage/"><u>Enhance Your Digital Marketing with the Cookiebot Advantage</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-site-performance-with-the-help-of-cookiebot-technology/"><u>Enhanced Site Performance with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-business-results-three-key-strategies-with-ai-and-smart-automation/"><u>Enhancing Business Results: Three Key Strategies with AI & Smart Automation</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-advanced-audience-engagement-using-smart-tracking-cookiebot-technology/"><u>Experience Advanced Audience Engagement Using Smart Tracking - Cookiebot Technology</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-enable-the-hidden-taskbar-search-in-windows-11/"><u>How to Enable the Hidden Taskbar Search in Windows 11</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-infinix-zero-5g-2023-turbo-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Infinix Zero 5G 2023 Turbo? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Tecno Camon 20 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/top-10-youtube-rippers-for-media-conversion-for-2024/"><u>Top 10 YouTube Rippers for Media Conversion for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ips-for-successful-youtube-audios/"><u>[New] Tips for Successful Youtube Audios</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-superior-asmr-audio-with-top-recorder-mics/"><u>[New] Unlock Superior ASMR Audio with Top Recorder Mics</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-utilizing-instagram-filters-to-elevate-your-photos-for-2024/"><u>[New] Utilizing Instagram Filters to Elevate Your Photos for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-best-church-live-streaming-services-uncovered/"><u>2024 Approved Best Church Live Streaming Services Uncovered</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-elevates-mariko-maeda-to-leadership-role-president-and-representative-director-for-strengthening-the-japanese-market-presence/"><u>ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-automatisierte-intelligenz-innovative-losungen-auf-der-expo-fur-dienstleistungsverlagerung-und-konsolidierung/"><u>ABBYY-Automatisierte Intelligenz: Innovative Lösungen Auf Der Expo Für Dienstleistungsverlagerung Und Konsolidierung</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724313274377-abbyy/"><u>ABBYYチェッカリスト - 金融市場で勝ち抜くための強化戦略</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/expert-recommendation-why-this-is-the-premier-dvd-to-avi-converter-for-pc-users/"><u>Expert Recommendation: Why This Is the Premier DVD to Avi Converter for PC Users !</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-resolve-logitech-c615-driver-problems-swiftly-and-effectively/"><u>How to Resolve Logitech C615 Driver Problems Swiftly and Effectively</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/leveraging-gpt-to-enrich-your-imaginative-dungeon-quests/"><u>Leveraging GPT to Enrich Your Imaginative Dungeon Quests</u></a></li>
+<li><a href="https://driver-install.techidaily.com/optimize-windows-10-lenovo-thinks-driver-update/"><u>Optimize Windows 10: Lenovo Thinks Driver Update</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/robert-youngjohns-steering-vision-as-abbyys-esteemed-board-chair/"><u>Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

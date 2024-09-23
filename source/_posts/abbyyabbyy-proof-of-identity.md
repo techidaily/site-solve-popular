@@ -1,7 +1,7 @@
 ---
 title: ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内
-date: 2024-09-17T22:39:28.477Z
-updated: 2024-09-19T00:50:17.608Z
+date: 2024-09-21T16:52:51.940Z
+updated: 2024-09-23T16:34:46.909Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d9925e82a959f50569bbd42483d903b11385c17bd02f16f205258c110d37af55.jpg
@@ -47,6 +47,13 @@ ABBYY Proof of Identityの詳細は、[こちら](https://tools.techidaily.com/a
 
 _1 Gartner、「Buyer’s Guide for Identity Proofing（身元保証のためのバイヤーズガイド）」（2021年4月7日発行）_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYYについて
 
 ABBYYはインテリジェント・オートメーションを推進するリーディング・カンパニーです。オートメーション・プラットフォームの原動力となるテクノロジーを提供することにより、人々の働き方やビジネス加速の方法に新しいビジョンをもたらしています。ABBYYのソリューションは、企業データを変換し、よりスマートかつ迅速な業務の遂行に必要なインサイトを提供します。 
@@ -58,6 +65,13 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 詳細は[www.abbyy.com/ja/company/about-us/](https://tools.techidaily.com/abbyy/products/)をご覧ください。
 
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 報道関係者お問い合わせ先
 
@@ -83,27 +97,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-explosive-entertainment-for-little-ones-for-2024/"><u>[Updated] Explosive Entertainment for Little Ones for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-advanced-techniques-for-title-artistry-in-adobe-ae/"><u>2024 Approved Advanced Techniques for Title Artistry in Adobe AE</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Lava Storm 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-motorola-edge-40-pro-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Motorola Edge 40 Pro Bootloader Easily</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-quick-tip-crafting-perfect-insta-collages/"><u>In 2024, Quick Tip Crafting Perfect Insta Collages</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-poco-x5-pro-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Poco X5 Pro Location | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-enhancing-your-sites-visibility/"><u>Optimized with Cookiebot Technology: Enhancing Your Site's Visibility</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-the-latest-from-cookiebot-enhance-your-websites-analytics-today/"><u>Optimized with the Latest From Cookiebot: Enhance Your Website's Analytics Today!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-microsoft-sharepoint-workflows-with-cutting-edge-ocr-capabilities-from-abbyy-experts/"><u>Optimizing Microsoft SharePoint Workflows with Cutting-Edge OCR Capabilities From ABBYY Experts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-web-experiences-with-advanced-cookiebot-technology/"><u>Optimizing Web Experiences with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/peak-matrix-2019-abbyy-stands-out-in-everest-groups-rankings-of-leading-idp-tools-and-applications/"><u>Peak Matrix™ 2019: ABBYY Stands Out in Everest Group's Rankings of Leading IDP Tools and Applications</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/protect-your-data-understanding-the-abbyy-cloud-agreement-for-gdpr-adherence/"><u>Protect Your Data: Understanding the ABBYY Cloud Agreement for GDPR Adherence</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/secrets-for-hiring-top-notch-video-professionals/"><u>Secrets for Hiring Top-Notch Video Professionals</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/the-problems-behind-us-play-games-and-stream-sound-on-discord-effectively/"><u>The Problem's Behind Us! Play Games and Stream Sound on Discord Effectively.</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-lava-agni-2-5g-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Lava Agni 2 5G Phone Network-Ready</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-champions-list-best-call-alert-tunes-for-iphones/"><u>[New] Champion's List Best Call Alert Tunes for iPhones</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-from-concept-to-reality-an-elaborate-breakdown-of-toolwiz-photosapp-2023-edition-for-2024/"><u>[New] From Concept to Reality An Elaborate Breakdown of Toolwiz PhotosApp, 2023 Edition for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-6-superior-apps-for-effortless-mac-video-grabbing/"><u>[Updated] 6 Superior Apps for Effortless Mac Video Grabbing</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-chilly-cinematography-comprehensive-ice-cream-monitoring-tutorial/"><u>2024 Approved Chilly Cinematography Comprehensive Ice Cream Monitoring Tutorial</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/facebooks-micro-video-moment-a-deep-dive-into-2023-developments-for-2024/"><u>Facebook's Micro-Video Moment A Deep Dive Into 2023 Developments for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-opening-markets-masterful-strategy-plots/"><u>In 2024, Opening Markets Masterful Strategy Plots</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-revamping-your-mobile-melodies-an-expert-iphone-ringtone-guide/"><u>In 2024, Revamping Your Mobile Melodies An Expert iPhone Ringtone Guide</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leveraging-cutting-edge-tracking-tools-for-enhanced-performance-and-engagement/"><u>Leveraging Cutting-Edge Tracking Tools for Enhanced Performance and Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-initial-paperwork-through-vantage-solutions/"><u>Mastering the Art of Initial Paperwork Through Vantage Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/navigating-privacy-laws-with-abbyys-gdpr-ready-data-processing-addendum/"><u>Navigating Privacy Laws with ABBYY's GDPR-Ready Data Processing Addendum</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-free-video-stabilization-made-easy-top-10-online-tools-for-2024/"><u>New Free Video Stabilization Made Easy Top 10 Online Tools for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-bots-boosting-your-sites-performance/"><u>Optimized with Automated Bots: Boosting Your Site's Performance</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/revolutionizing-supply-chain-management-with-cutting-edge-tech-insights-from-an-abbyy-authority/"><u>Revolutionizing Supply Chain Management with Cutting-Edge Tech: Insights From an ABBYY Authority</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/revolutionizing-team-dynamics-exploring-ais-role-in-reshaping-todays-work-environment-insights-from-abbyy/"><u>Revolutionizing Team Dynamics: Exploring AI's Role in Reshaping Today's Work Environment - Insights From ABBYY</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

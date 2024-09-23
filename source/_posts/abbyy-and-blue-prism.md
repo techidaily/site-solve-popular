@@ -1,7 +1,7 @@
 ---
 title: "ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める"
-date: 2024-09-15T01:25:00.444Z
-updated: 2024-09-18T18:22:05.189Z
+date: 2024-09-17T17:41:57.912Z
+updated: 2024-09-23T17:48:15.348Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/560da63c54300a3a876ba2cfdab00c7431c7174d8c1f2c53836ffd296ae56332.jpg
@@ -16,6 +16,13 @@ thumbnail: https://thmb.techidaily.com/560da63c54300a3a876ba2cfdab00c7431c7174d8
 10月7日, 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## ABBYY TimelineをBlue Prism Captureに統合し、  
 包括的なプロセスとタスク検出を標準機能として提供
@@ -95,23 +102,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-the-newbies-roadmap-to-understanding-av1-for-2024/"><u>[New] The Newbie’s Roadmap to Understanding AV1 for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-step-by-step-placing-titles-on-video-clips-with-windows-photos/"><u>2024 Approved Step-by-Step Placing Titles on Video Clips with Windows Photos</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-xiaomi-redmi-note-13-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Xiaomi Redmi Note 13 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-traffic-with-cookiebot-powerful-site-engagement-tools/"><u>Boost Traffic with Cookiebot - Powerful Site Engagement Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-engagement-with-cookiebot-technology-for-tailored-content-delivery/"><u>Boosting Engagement with Cookiebot Technology for Tailored Content Delivery</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/combining-power-of-abbyy-with-alteryx-for-enhanced-data-management-and-process-automation-solutions/"><u>Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-analytics-unleashing-website-personalization-and-targeting/"><u>Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting</u></a></li>
-<li><a href="https://win-able.techidaily.com/fifa-22-troubleshooting-guide-stop-your-game-from-crashing/"><u>FIFA 22 Troubleshooting Guide - Stop Your Game From Crashing</u></a></li>
-<li><a href="https://techidaily.com/hard-reset-realme-c33-2023-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Realme C33 2023 in 3 Efficient Ways | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/step-by-step-guide-transforming-avi-speeches-into-high-quality-wav-format/"><u>Step-by-Step Guide: Transforming AVI Speeches Into High-Quality WAV Format</u></a></li>
-<li><a href="https://win-blog.techidaily.com/top-strategies-for-resolving-2024s-finale-launch-problems/"><u>Top Strategies for Resolving 2024'S Finale Launch Problems</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-method-for-changing-your-instagram-tone-for-2024/"><u>[New] Step-By-Step Method for Changing Your Instagram Tone for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-essential-guide-inserting-text-on-pcmac-photos/"><u>[Updated] In 2024, Essential Guide Inserting Text on PC/Mac Photos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-integrating-multimedia-elements-for-engaging-facebook-slideshows/"><u>[Updated] Integrating Multimedia Elements for Engaging Facebook Slideshows</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-europe-201/"><u>AI Europe 201</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ameliorer-les-resultats-de-la-robotique-de-processus-assistee-par-ordinateur-rpa-analyse-et-techniques-avancees-chez-abbyy/"><u>Améliorer Les Résultats De La Robotique De Processus Assistée Par Ordinateur (RPA) - Analyse Et Techniques Avancées Chez ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/at-leading-annual-summit-abbyy-showcases-advanced-ml-and-ai-technologies-for-future-success/"><u>At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-website-performance-with-cookiebot-integration-the-key-to-successful-seo-strategies/"><u>Boost Website Performance with Cookiebot Integration - The Key to Successful SEO Strategies</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-automation-enhancing-your-digital-marketing-efforts/"><u>Cookiebot-Driven Automation: Enhancing Your Digital Marketing Efforts</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-solutions-enhanced-site-traffic-and-conversion/"><u>Cookiebot-Driven Solutions | Enhanced Site Traffic & Conversion</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-websites-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's Analytics & Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-boosting-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Boosting Your Site with Advanced Tracking Technology</u></a></li>
+<li><a href="https://discover-data.techidaily.com/download-your-favorite-itunes-tv-shows-as-high-quality-movies-with-ittf-converter/"><u>Download Your Favorite iTunes TV Shows as High-Quality Movies with ITTF Converter</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Xiaomi Redmi K70? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-from-play-to-pause-save-games-via-obs/"><u>In 2024, From Play to Pause Save Games via OBS</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-realme-gt-5-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Realme GT 5 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/why-does-imovie-enforce-dimensions/"><u>Why Does iMovie Enforce Dimensions?</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
