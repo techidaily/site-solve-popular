@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled Analytics: Elevate Your Site's User Experience"
-date: 2024-09-13T18:37:00.667Z
-updated: 2024-09-19T00:20:55.736Z
+date: 2024-09-21T07:11:20.515Z
+updated: 2024-09-27T16:33:42.281Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/756e6cbc4b4a2e3ac30671657870528bb336d9b2f0f8b2cf5d7bebdde4893059.jpg
@@ -25,9 +25,23 @@ BPO and Shared Services | Document Processing
 
 [![Costain Transforms Its Finance Department Using ABBYY Content Intelligence](https://static5.abbyy.com/abbyycommedia/37723/costain-case-study-intelligent-document-processing-en_tn_556x303.jpg)](https://www.youtube.com/watch?v=w708adcpE-A) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Customer Overview
 
 ![Costain Group PLC](https://static1.abbyy.com/abbyycommedia/25139/costain-logo.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name         | Costain Group PLC                           |
 | ------------ | ------------------------------------------- |
@@ -85,9 +99,23 @@ Integration of ABBYY Intelligent Document Processing platform
 
 [![Learn more about ABBYY Vantage](https://static2.abbyy.com/abbyycommedia/24337/mailroom_automation_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static5.abbyy.com/abbyycommedia/37726/costain-case-study-intelligent-document-processing-en_tn_360x162.jpg)](https://static3.abbyy.com/abbyycommedia/37648/costain-case-study-intelligent-document-processing-en.pdf "PDF Version") [PDF Version](https://static3.abbyy.com/abbyycommedia/37648/costain-case-study-intelligent-document-processing-en.pdf "PDF Version") 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Read the document](https://static3.abbyy.com/abbyycommedia/37648/costain-case-study-intelligent-document-processing-en.pdf "PDF Version") 
 
@@ -114,12 +142,24 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-elevating-your-audacity-sound-capture-game/"><u>[New] 2024 Approved Elevating Your Audacity Sound Capture Game</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-no-stress-just-peaceful-pc-gaming-for-2024/"><u>[New] No Stress, Just Peaceful PC Gaming for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-crest-of-crafts-review-pinnacle-studio-evaluation-for-2024/"><u>[Updated] Crest of Crafts Review Pinnacle Studio Evaluation for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-visionvoice-tips-for-perfectly-sized-insta-posts/"><u>[Updated] In 2024, VisionVoice Tips for Perfectly Sized Insta Posts</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-mac-users-guide-to-recording-and-reviewing-educational-talks/"><u>[Updated] Mac Users' Guide to Recording and Reviewing Educational Talks</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/converti-i-tuoi-file-avi-in-mp3-senza-costi-guida-di-conversione-online-gratuita-con-movavi/"><u>Converti I Tuoi File AVI in MP3 Senza Costi: Guida Di Conversione Online Gratuita Con Movavi</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-efficiency-in-financial-transactions-with-abbyys-innovative-automation-technology/"><u>Enhancing Efficiency in Financial Transactions with ABBYY's Innovative Automation Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-tracking-the-power-behind-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Tracking: The Power Behind Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/evaluierung-von-volkswagens-infotainmentsystemen-mit-hilfe-der-software-von-abbyy/"><u>Evaluierung Von Volkswagens Infotainmentsystemen Mit Hilfe Der Software Von ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/exploring-tomorrows-job-landscape-with-rpa-insights-from-abbyys-timeline-infobook/"><u>Exploring Tomorrow's Job Landscape with RPA: Insights From ABBYY's Timeline Infobook</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-remove-apple-iphone-11-pro-sim-lock-by-drfone-ios/"><u>How to Remove Apple iPhone 11 Pro SIM Lock?</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovative-ai-driven-document-handling-for-modern-banking-systems/"><u>Innovative AI-Driven Document Handling for Modern Banking Systems</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leveraging-the-efficiency-of-cookiebot-technology-for-seamless-web-tracking/"><u>Leveraging the Efficiency of Cookiebot Technology for Seamless Web Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/online-marketplace-exceeds-growth-targets-and-boosts-operational-productivity-with-cutting-edge-invoice-management-technology/"><u>Online Marketplace Exceeds Growth Targets and Boosts Operational Productivity with Cutting-Edge Invoice Management Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/securing-your-digital-footprint-counteracting-textgrabber-threats-and-improving-user-mobility-insights-for-abbyy-readers/"><u>Securing Your Digital Footprint: Counteracting TextGrabber Threats & Improving User Mobility | Insights for ABBYY Readers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-5-mkv-players-for-mac-for-2024/"><u>Top 5 MKV Players for Mac for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-steps-for-stabilizing-armored-core-6-rubicons-flames-on-windows-pc-edition/"><u>Troubleshooting Steps for Stabilizing Armored Core 6: Rubicon's Flames on Windows - PC Edition</u></a></li>
+</ul></div>
 

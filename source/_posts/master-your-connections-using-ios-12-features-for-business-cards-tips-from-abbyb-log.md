@@ -1,7 +1,7 @@
 ---
 title: Master Your Connections Using iOS 12 Features for Business Cards - Tips From ABBYB Log
-date: 2024-09-16T18:08:01.099Z
-updated: 2024-09-23T18:19:54.886Z
+date: 2024-09-26T06:25:06.495Z
+updated: 2024-09-28T01:42:53.348Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c55765d4297ec3f7740baed77892bf0fb723d7f4075e0073128d68c9a2027591.jpg
@@ -172,6 +172,20 @@ Now developers can implement in their apps a new AI response system powered by G
 ![What’s New in Android 9.0 aka Pie](https://static1.abbyy.com/abbyycommedia/31874/21-300x412.png)  
 ![What’s New in Android 9.0 Pie](https://static1.abbyy.com/abbyycommedia/31875/22-300x412.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Gesture navigation**
 
 Now users can interact with their Android device with gestures. Gestures can be used to open the list of recent apps or the list of all installed apps. Google hopes that developers will readily implement gestures in their apps.
@@ -190,6 +204,13 @@ Android Pie phones will learn to save their batteries sparingly. The system will
 
 For more information about the new features in Android Pie, please [see the official Android website](https://www.android.com/versions/pie-9-0/). The supported devices are listed [here](https://www.mobileheadlines.net/android-pie-9-0/).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **ABBYY Tip: Storing Your Business Cards the Smart Way**
 
 If you are often visit conferences or trade shows or if you are an event organizer yourself, you will have lots and lots of business cards from people you meet there. We have produced a small and but very instructive video to share some tips on how you can store and manage your business cards on your phone.Click here to see the tutorial:
@@ -203,20 +224,13 @@ This is an organizer app for you and your other half. When you create an account
 ![Couple organizer app](https://static1.abbyy.com/abbyycommedia/31876/23-300x549.png)  
 ![Couple organizer Merge](https://static1.abbyy.com/abbyycommedia/31877/24-300x551.png)  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Merge app for couples](https://static1.abbyy.com/abbyycommedia/31878/25-300x552.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can create tasks and keep a budget. Now one will be left behind.
@@ -230,13 +244,6 @@ Available on [iOS](https://itunes.apple.com/us/app/merge-to-do-list-app-for-coup
 _By Sonya Oronova, Junior Project Manager_ 
 
 ![Sonya Oronova ABBYY](https://static1.abbyy.com/abbyycommedia/31880/27-768x576.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 There lots of videos and online tutorials on how to organize business meetings properly.
 
@@ -261,13 +268,6 @@ See you next Monday
 P.S. You can find the previous issue of this newsletter [here](https://tools.techidaily.com/abbyy/products/).
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -330,5 +330,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-best-8-concealed-video-downloading-software-of-2023/"><u>[Updated] 2024 Approved Best 8 Concealed Video Downloading Software of 2023</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-revolutionize-your-photos-with-these-best-grid-makers-for-ig-for-2024/"><u>[Updated] Revolutionize Your Photos with These Best Grid Makers for IG for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ameliorer-les-resultats-de-la-robotique-de-processus-assistee-par-ordinateur-rpa-analyse-et-techniques-avancees-chez-abbyy/"><u>Améliorer Les Résultats De La Robotique De Processus Assistée Par Ordinateur (RPA) - Analyse Et Techniques Avancées Chez ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/at-leading-annual-summit-abbyy-showcases-advanced-ml-and-ai-technologies-for-future-success/"><u>At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-website-performance-with-cookiebot-integration-the-key-to-successful-seo-strategies/"><u>Boost Website Performance with Cookiebot Integration - The Key to Successful SEO Strategies</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-automation-enhancing-your-digital-marketing-efforts/"><u>Cookiebot-Driven Automation: Enhancing Your Digital Marketing Efforts</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-solutions-enhanced-site-traffic-and-conversion/"><u>Cookiebot-Driven Solutions | Enhanced Site Traffic & Conversion</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-samsung-galaxy-a15-5g-by-fonelab-android-recover-messages/"><u>How To Restore Missing Messages Files from Samsung Galaxy A15 5G</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-cross-platform-iptv-adaptability/"><u>In 2024, Cross-Platform IPTV Adaptability</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-oppo-a2-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Oppo A2 Devices | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-infinix-note-30-vip-racing-edition-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Infinix Note 30 VIP Racing Edition Phone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-comprehensive-guide-to-attractive-and-engaging-instagram-puzzle-feeds-for-2024/"><u>The Comprehensive Guide to Attractive and Engaging Instagram Puzzle Feeds for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/troubleshooting-made-easy-replacing-outdated-sharp-printer-drivers-on-a-windows-system/"><u>Troubleshooting Made Easy: Replacing Outdated Sharp Printer Drivers on a Windows System</u></a></li>
+</ul></div>
 

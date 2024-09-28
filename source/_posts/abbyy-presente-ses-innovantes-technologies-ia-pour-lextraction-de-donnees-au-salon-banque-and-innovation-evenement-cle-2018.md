@@ -1,7 +1,7 @@
 ---
 title: ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018
-date: 2024-09-22T17:59:41.258Z
-updated: 2024-09-23T16:59:22.935Z
+date: 2024-09-27T03:18:03.430Z
+updated: 2024-09-28T06:10:46.227Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0f61a09c67b9e7dbbff5f451.jpg
@@ -66,12 +66,30 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-blades-visual-journey-from-standard-to-stunning-4k/"><u>[New] Blade's Visual Journey From Standard to Stunning 4K</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-empowering-learning-through-educational-videos-on-youtube-for-2024/"><u>[Updated] Empowering Learning Through Educational Videos on YouTube for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-how-to-seamlessly-add-vimeo-videos-to-insta-feed-for-2024/"><u>[Updated] How to Seamlessly Add Vimeo Videos to Insta Feed for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-anthony-macciola-as-their-latest-appointment-chief-innovation-officer/"><u>ABBYY Welcomes Anthony Macciola as Their Latest Appointment: Chief Innovation Officer</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automated-marketing-mastery-with-cookiebot-technology/"><u>Automated Marketing Mastery with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-ihre-firmenproduktivitat-mit-der-digitalisierung-vernichtet-den-papier-aktenkeller/"><u>Boost Ihre Firmenproduktivität Mit Der Digitalisierung - Vernichtet Den Papier-Aktenkeller!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-your-site-with-cookiebots-powerful-analytics/"><u>Boost Your Site with Cookiebot's Powerful Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-your-traffic-with-cookiebots-powerful-tracking-technology/"><u>Boost Your Traffic with Cookiebot's Powerful Tracking Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/breaking-down-abbyy-omzets-successful-year-of-2abbreviation-benelux-metrics-reflect-a-23-upsurge-in-2019/"><u>Breaking Down ABBYY OMZET's Successful Year of 2Abbreviation; Benelux Metrics Reflect a 23% Upsurge in 2019</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-unlocking-advanced-audience-targeting-features/"><u>Cookiebot-Driven Insights: Unlocking Advanced Audience Targeting Features</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabling-iphone-15-pro-max-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling iPhone 15 Pro Max Parental Restrictions With/Without Password | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/does-vivo-v30-pro-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Vivo V30 Pro Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-add-narration-and-voiceovers-to-your-video-for-2024/"><u>How to Add Narration and Voiceovers to Your Video for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-realme-gt-5-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from Realme GT 5.</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/monetization-mastery-guide-choosing-the-right-platform-for-2024/"><u>Monetization Mastery Guide Choosing the Right Platform for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-your-windows-11-computer-with-the-most-recent-ch340g-drivers-available/"><u>Update Your Windows 11 Computer with the Most Recent CH340g Drivers Available</u></a></li>
+</ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

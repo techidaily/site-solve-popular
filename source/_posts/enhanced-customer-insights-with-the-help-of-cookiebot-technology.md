@@ -1,7 +1,7 @@
 ---
 title: Enhanced Customer Insights with the Help of Cookiebot Technology
-date: 2024-09-20T16:48:53.767Z
-updated: 2024-09-23T18:19:44.309Z
+date: 2024-09-26T17:52:04.937Z
+updated: 2024-09-27T19:34:01.699Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a23b6166dff1d71405deccff3c580ba47c280d1fae23b982db1e3d6f2479cd12.jpg
@@ -30,15 +30,22 @@ For organizations to leverage these powerful tools it is vital that they speak t
 However, the content needs to be transformed into more than a mere digital facsimile but should also contain information structured in a way that these enabling technologies can both understand and, more importantly, act upon.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Content Intelligence
 
 In order to do this, it is first necessary to classify the nature of the content, i.e. determine what it represents and, therefore, identify the context of the information it contains. This can be achieved by _Content Intelligence_ through utilization of AI algorithms capable of automating this time-consuming activity.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## AI-based Classification and Extraction
 
@@ -58,6 +65,13 @@ This ensures that the accuracy of the information extracted is maintained at an 
 
 What this all means is, that the original content, through _Content_ _Intelligence,_ is now able to speak the right language to technologies such as BPM, RPA and IoT.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Example: Setting Up E-Bill Payment
 
 One of the advantages of web-based banking, is the ability of customers to take control of banking transactions that used require talking to a representative of the bank.
@@ -65,13 +79,6 @@ One of the advantages of web-based banking, is the ability of customers to take 
 If a customer wishes to set up an automatic payment to, for example, their Electricity provider, they need to enter a variety of information regarding the provider and their account information.
 
 The customer can use their Electricity Bill to initiate and automate the setup of an electronic bill payment.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Paperless Billing
 
@@ -85,13 +92,6 @@ Once the bank, receives the email, FlexiCapture processes the attachment, automa
 
 This extracted information is passed to an RPA application to configure the automated payment and await final activation. Given that the request came in via email, the customer is notified via their Customer Banking Portal and is prompted to confirm the activation of the automatic payment.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Paper-based Billing
 
 Not all customers of vendors avail themselves of paperless billing. Consequently, a mechanism is required to automatically extract information from a paper bill in a manner that enhance the total customer experience.
@@ -100,13 +100,6 @@ In this use case, customer can capture the paper bill directly from their mobile
 
 ![Talking to robots 3](https://static1.abbyy.com/abbyycommedia/25295/talking-to-robots-abbyy-blog-3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _Figure 3 - Setting up e-Billing via Mobile Banking App using paper-based bill_
 
 FlexiCapture processes the attachment, automatically identifying the document as a utility bill and extracting the necessary billing information, including the utility company’s customer account number along with account number of where the payment needs to be made to.
@@ -114,6 +107,13 @@ FlexiCapture processes the attachment, automatically identifying the document as
 This extracted information is passed to an RPA application to configure the automated payment and activates it, given that the request already originated via the customer’s bank app.
 
 The activated automated payment is then displayed in the customer banking portal.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Accelerate Digital Transformation by Speaking the Right Language
 
@@ -184,5 +184,18 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-ultimate-screen-recorder-features-for-pcmac-for-2024/"><u>[New] Ultimate Screen Recorder Features for PC/Mac for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-best-practices-in-photo-captioning-tools/"><u>[Updated] Best Practices in Photo Captioning Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortless-bill-settlement-with-abbyy-enabled-mobile-banking-application/"><u>Effortless Bill Settlement with ABBYY-Enabled Mobile Banking Application</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortless-business-automation-harnessing-the-power-of-zero-coding-ai-tools/"><u>Effortless Business Automation: Harnessing the Power of Zero-Coding AI Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-digital-marketing-with-the-cookiebot-advantage/"><u>Enhance Your Digital Marketing with the Cookiebot Advantage</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-site-performance-with-the-help-of-cookiebot-technology/"><u>Enhanced Site Performance with the Help of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-business-results-three-key-strategies-with-ai-and-smart-automation/"><u>Enhancing Business Results: Three Key Strategies with AI & Smart Automation</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/guide-to-overcome-halo-4s-ue4-catastrophic-crash-issue-update/"><u>Guide to Overcome Halo 4'S UE4 Catastrophic Crash Issue Update</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-apple-iphone-15-to-enjoy-more-fun-drfone-by-drfone-virtual-ios/"><u>In 2024, Change Location on Yik Yak For your Apple iPhone 15 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-oppo-reno-10-pro-5g-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Oppo Reno 10 Pro 5G Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/simple-steps-for-restoring-damaged-avi-and-mkv-files/"><u>Simple Steps for Restoring Damaged AVI & MKV Files</u></a></li>
+</ul></div>
 

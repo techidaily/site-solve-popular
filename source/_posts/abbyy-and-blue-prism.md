@@ -1,7 +1,7 @@
 ---
 title: "ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める"
-date: 2024-09-17T17:41:57.912Z
-updated: 2024-09-23T17:48:15.348Z
+date: 2024-09-23T01:47:15.953Z
+updated: 2024-09-28T02:12:33.219Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/560da63c54300a3a876ba2cfdab00c7431c7174d8c1f2c53836ffd296ae56332.jpg
@@ -18,10 +18,10 @@ thumbnail: https://thmb.techidaily.com/560da63c54300a3a876ba2cfdab00c7431c7174d8
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY TimelineをBlue Prism Captureに統合し、  
@@ -100,5 +100,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-completely-erase-your-connection-with-youtube-shorts-for-2024/"><u>[New] Completely Erase Your Connection with YouTube Shorts for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-art-of-visual-excellence-leveraging-enhancer-22/"><u>[New] In 2024, The Art of Visual Excellence - Leveraging Enhancer 2.2</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/2024-approved-best-5-ai-powered-script-to-video-makers/"><u>2024 Approved Best 5 AI-Powered Script to Video Makers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/adding-emotion-and-context-narration-for-videos/"><u>Adding Emotion and Context Narration for Videos</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/differences-between-robotic-process-automation-rpa-and-intelligent-process-automation-ipa/"><u>Differences Between Robotic Process Automation (RPA) and Intelligent Process Automation (IPA)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/digital-footprint-and-interactive-iconography-honors-for-2024/"><u>Digital Footprint and Interactive Iconography Honors for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/digitale-revolution-mit-5-leitsatzen-expertenchecklisten-von-abbyy-jetzt-verfugbar-machen/"><u>Digitale Revolution Mit 5 Leitsätzen: Expertenchecklisten Von ABBYY Jetzt Verfügbar Machen!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/easy-routines-for-screen-recording-in-gaming-for-2024/"><u>Easy Routines for Screen Recording in Gaming for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effiziente-automationstechnologien-im-versicherungssektor/"><u>Effiziente Automa­tionstechnologien Im Versicherungssektor</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-your-digital-presence-using-cookiebots-advanced-solutions/"><u>Elevate Your Digital Presence Using Cookiebot's Advanced Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-user-experience-with-our-cookiebot-integration-solutions/"><u>Enhance User Experience with Our Cookiebot Integration Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-customer-insights-with-the-help-of-cookiebot-technology/"><u>Enhanced Customer Insights with the Help of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-marketing-precision-via-cookiebot-driven-insights/"><u>Enhanced Marketing Precision via Cookiebot-Driven Insights</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-ocr-solutions-boost-efficiency-in-top-tier-construction-information-firm/"><u>Enhanced OCR Solutions Boost Efficiency in Top-Tier Construction Information Firm</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-personalization-with-the-support-of-cookiebot-technology/"><u>Enhanced Personalization with the Support of Cookiebot Technology</u></a></li>
+<li><a href="https://techtrends.techidaily.com/fixing-the-error-when-your-system-cant-find-jvmdll-comprehnensive-solutions-and-tips/"><u>Fixing the Error: When Your System Can't Find JVM.dll - Comprehnensive Solutions and Tips</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-correctly-address-and-fix-this-disc-cannot-be-read-in-vudu-streaming-system/"><u>How to Correctly Address and Fix 'This Disc Cannot Be Read' In VUDU Streaming System</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-top-5-best-free-online-video-mergers-you-should-try/"><u>New 2024 Approved Top 5 Best Free Online Video Mergers You Should Try</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/smooth-switching-of-iphone-screen-orientation-for-optimal-full-screen-video-experience/"><u>Smooth Switching of iPhone Screen Orientation for Optimal Full-Screen Video Experience</u></a></li>
+</ul></div>
 

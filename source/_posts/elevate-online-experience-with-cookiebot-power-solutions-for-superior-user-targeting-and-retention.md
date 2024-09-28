@@ -1,7 +1,7 @@
 ---
 title: Elevate Online Experience with Cookiebot Power Solutions for Superior User Targeting and Retention
-date: 2024-09-20T16:44:08.441Z
-updated: 2024-09-23T17:11:59.342Z
+date: 2024-09-25T17:06:57.153Z
+updated: 2024-09-28T04:34:51.430Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4c64599e932018a17c352685488bbe982ee82f5fc1c73b73894ec43a1b1c5c03.jpg
@@ -25,16 +25,16 @@ Gesundheitswesen und Pharmazie | Digitale Archivierung
 
 ![](https://static1.abbyy.com/abbyycommedia/15248/4208e_images_cs_bankstream556x303.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Über den Kunden
 
 ![Boehringer Ingelheim](https://static5.abbyy.com/abbyycommedia/16276/boeringer-ingelheim-155x69.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name        | Boehringer Ingelheim                                                |
 | ----------- | ------------------------------------------------------------------- |
@@ -85,22 +85,15 @@ Die Installation bei Boehringer Ingelheim umfasst einen ABBYY Recognition Server
 
 [![ABBYY Recognition Server wird jetzt ABBYY FineReader Server genannt](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) ") [ABBYY Recognition Server (jetzt FineReader Server genannt)](https://tools.techidaily.com/abbyy/products/) ") 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) ") 
 
 [![10-Healthcare](https://static2.abbyy.com/abbyycommedia/14360/10-healthcare.jpg)](https://tools.techidaily.com/abbyy/products/) [Gesundheitswesen](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
@@ -108,10 +101,10 @@ Die Installation bei Boehringer Ingelheim umfasst einen ABBYY Recognition Server
 [![cs-fraunhofernzz-360x162](https://static3.abbyy.com/abbyycommedia/17083/cs-fraunhofernzz-360x162.jpg)](https://static3.abbyy.com/abbyycommedia/6139/fallstudie-boehringer-ingelheim-healthcare-de.pdf "PDF-Version") [PDF-Version](https://static3.abbyy.com/abbyycommedia/6139/fallstudie-boehringer-ingelheim-healthcare-de.pdf "PDF-Version") 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Zum Dokument](https://static3.abbyy.com/abbyycommedia/6139/fallstudie-boehringer-ingelheim-healthcare-de.pdf "PDF-Version") 
@@ -123,6 +116,13 @@ Teilen  True ?  : ""
 [Mehr über ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Alle ABBYY-Niederlassungen](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
@@ -143,5 +143,19 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-avoiding-pitfalls-understanding-youtube-standards/"><u>[New] 2024 Approved Avoiding Pitfalls Understanding YouTube Standards</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-essential-techniques-for-saving-lol-games-for-2024/"><u>[New] Essential Techniques for Saving LOL Games for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-exclusive-guide-to-the-best-chrome-extensions-for-fb-videos-for-2024/"><u>[New] Exclusive Guide to the Best Chrome Extensions for FB Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-affordable-reliable-a-list-of-the-best-free-mobile-streamers/"><u>[New] In 2024, Affordable, Reliable A List of the Best Free Mobile Streamers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-controlling-youtubes-playback-speed-mobile-and-pc/"><u>[Updated] In 2024, Controlling YouTube's Playback Speed - Mobile and PC</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-user-experience-enhancement/"><u>Cookiebot-Enabled User Experience Enhancement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-cutting-edge-analytics/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Cutting-Edge Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-drive-better-conversions-with-smart-traffic/"><u>Cookiebot-Enhanced: Drive Better Conversions with Smart Traffic</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/drive-engagement-using-the-advanced-capabilities-of-cookiebot/"><u>Drive Engagement Using the Advanced Capabilities of Cookiebot</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/empowering-websites-with-cookiebot-technology-for-enhanced-user-experience/"><u>Empowering Websites with Cookiebot Technology for Enhanced User Experience</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/evaluating-the-security-of-chatgpt-extensions/"><u>Evaluating the Security of ChatGPT Extensions</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/understanding-car-speaker-problems-and-how-to-fix-them/"><u>Understanding Car Speaker Problems and How to Fix Them</u></a></li>
+</ul></div>
 
