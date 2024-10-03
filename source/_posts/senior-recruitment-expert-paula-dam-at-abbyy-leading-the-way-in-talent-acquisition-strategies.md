@@ -1,7 +1,7 @@
 ---
 title: "Senior Recruitment Expert Paula Dam at ABBYY: Leading the Way in Talent Acquisition Strategies"
-date: 2024-09-15T17:58:00.300Z
-updated: 2024-09-18T23:21:22.851Z
+date: 2024-09-27T16:40:29.328Z
+updated: 2024-10-02T16:36:30.027Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8d42a5be41c7b4a2ee5933ca8170ed38361404ba710cadb2872cd630ac7e122c.jpg
@@ -29,6 +29,19 @@ I am the Senior Talent Acquisition Partner at ABBYY’s regional Asia-Pacific (A
 
 What I like about my job is engaging with different candidates across the region, building a network and relationship with external stakeholders as well as the internal stakeholders, and more importantly, finding the right talent for our teams!
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What does a typical day look like for you at ABBYY?
 
 The most important thing I do to start my day is to practice Vipassana meditation for 30-45 minutes which helps me to have a strong and healthy mind throughout the day.
@@ -39,31 +52,24 @@ In the evening, I have a catch-up meeting with my manager, Talent Acquisition (T
 
 ![](https://static1.abbyy.com/abbyycommedia/37164/meet-paula-dam-1.png?width=750&height=570)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What was your previous experience before ABBYY?
 
 I have more than 10 years of experience in recruitment, working on the agency side as a headhunter before moving to in-house recruitment in 2021\. In the last six years, my recruitment focus has been in the technology space, taking care of the recruitment for both technical and commercial roles in tech across the APAC region.
 
 Prior to joining ABBYY, I worked for Everbridge, a Software-as-a-Service (SaaS) based company specializing in critical event management and mass warning alerts. There, I was the recruiter for all hiring across the APJ region.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What attracted you to ABBYY, what made you join?
 
 The reason I accepted the offer from ABBYY was due to the company’s stance on flexible working. Thanks to my manager, Steve Bettini and ABBYY, I have a remote working agreement which allows me to manage my work-life balance. Another factor for joining the company was being the first TA partner in Asia. I could see my potential career growth in the future with ABBYY!
 
 ![](https://static1.abbyy.com/abbyycommedia/37165/meet-paula-dam-2.png?width=750&height=570)
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What keeps you going, and what are some highlights of your journey with ABBYY so far?
 
@@ -77,13 +83,6 @@ I am blessed to be part of ABBYY and surrounded by great leaders in the region, 
 
 ![](https://static1.abbyy.com/abbyycommedia/37166/meet-paula-dam-3.png?width=750&height=570)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Your top advice to someone joining ABBYY, and for someone joining ABBYY in a similar role?
 
 If you are someone who likes challenges, wants to make a change, and create something new, ABBYY will give you that opportunity. It’s a place where you will enjoy taking the initiative and figuring out new ways to work as if this is your own business. You are part of ABBYY and ABBYY is part of you.
@@ -91,10 +90,10 @@ If you are someone who likes challenges, wants to make a change, and create some
 ABBYY has more than 30 years in the business yet, in many ways, it maintains a startup mentality. Your experience and ideas will be somehow utilized, and you’ll be a great contribution to our organization. It’s an adult working environment. You just need some principal guidelines, and then you can ride the boat as a ‘captain’ in your field.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### We know that you are living an active lifestyle. Tell us more about it, how do you spend your free time?
@@ -114,15 +113,28 @@ I don’t really believe in wishes coming true or hypotheses. If you want someth
 ![](https://static1.abbyy.com/abbyycommedia/37167/meet-paula-dam-4.png?width=750&height=570)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What is your definition of work-life balance?
 
 It’s when I am excited about starting work in the morning, continue to enjoy it during the day and at the same time have my personal life fulfilled. It's when I am going to sleep happily knowing that I have had a fulfilled and meaningful, yet challenging day!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Lastly, could you recommend us a book/movie/series/ or activity you have recently discovered or are enjoying at the moment? What’s so great about it?
 
@@ -136,6 +148,13 @@ There are two books I recommend:
 * _The Art of Communicating_ by Thich Nhat Hanh
 
 Both books can be easily found on the internet and if you prefer audiobooks, they are available for free on YouTube!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Interested in joining the ABBYY team? Please check the vacancies below and apply!
 
@@ -214,5 +233,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-strategies-for-smooth-clear-sound-in-zoom-powered-podcasts/"><u>[New] 2024 Approved Strategies for Smooth, Clear Sound in Zoom-Powered Podcasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-immerse-in-world-heritage-through-vr/"><u>[New] Immerse in World Heritage Through VR</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-top-10-windows-11-webcam-capturers-for-2024/"><u>[Updated] Top 10 Windows 11 Webcam Capturers for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/6-proven-ways-to-unlock-oppo-a78-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Oppo A78 Phone When You Forget the Password</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-dominates-2022-spark-matrix-rankings-by-quadrant-knowledge-solutions-for-advanced-document-analysis/"><u>ABBYY Dominates 2022 SPARK Matrix Rankings by Quadrant Knowledge Solutions for Advanced Document Analysis</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-leadership-in-customer-excellence-meet-larysa-lototska/"><u>ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyyocr/"><u>ABBYY組み込みOCR採用：東芝テックの新シリーズ印刷機</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-asteriaflexicapture-cloud/"><u>ABBYYブログで紹介! ASTERIAとFlexiCapture Cloudに対応した高度な画面分析テンプレート - 最新技術の解説</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-strategy-shifts-global-economys-influence-explored-in-comprehensive-intelligence-automation-overview/"><u>AI Strategy Shifts: Global Economy's Influence Explored in Comprehensive Intelligence Automation Overview</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-conversions-using-the-latest-cookiebot-technology-features/"><u>Boost Conversions Using the Latest Cookiebot Technology Features</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/cure-for-the-vanished-watch-video-icon-2023-edition-for-2024/"><u>Cure for the Vanished Watch Video Icon, 2023 Edition for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-leverage-smart-organization-in-mematic/"><u>In 2024, Leverage Smart Organization in Mematic</u></a></li>
+<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-from-your-iphone-13-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled From your iPhone 13? How to Fix</u></a></li>
+</ul></div>
 

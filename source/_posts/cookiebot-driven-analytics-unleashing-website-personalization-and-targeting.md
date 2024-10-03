@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting"
-date: 2024-09-26T03:31:45.167Z
-updated: 2024-09-28T02:30:34.246Z
+date: 2024-10-01T08:07:56.935Z
+updated: 2024-10-03T04:29:00.163Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/876e753e27077574ad25291cd756f73dd324e0088d395c4f6b7d4b1f29dc8396.jpg
@@ -27,6 +27,19 @@ thumbnail: https://thmb.techidaily.com/876e753e27077574ad25291cd756f73dd324e0088
 
 [記事はこちら](https://innotechtoday.com/are-business-analysts-ready-for-the-new-digital-era/)
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Onboarding Your Digital Workforce - デジタル労働力（例えばRPA）の導入活動
 
 昨年、RPAは爆発的に需要が増加しましたが、多くの企業は依然としてたくさんのRPAプロジェクトが当初考えていたように機能せず失敗していることに気づきました。 私たちは、デジタルワーカー（RPA）を適切に導入し、彼らのパフォーマンスを注意深く監視して、デジタルワーカー（RPA）が最大限に活用されていることを確認する必要があることを学びました。 Chief Executiveでは、弊社CEOより、デジタルワーカー(RPA)がしっかりと仕事をこなしているかを確認する方法について語られています。
@@ -34,10 +47,10 @@ thumbnail: https://thmb.techidaily.com/876e753e27077574ad25291cd756f73dd324e0088
 [記事はこちら](https://chiefexecutive.net/onboarding-your-digital-workforce/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Coronavirus Pandemic Reveals the Need for a Broader Digital Front Door - 新型コロナ感染流行は、より幅広いデジタルの導線、入り口の必要性を明らかにしました
@@ -50,13 +63,6 @@ thumbnail: https://thmb.techidaily.com/876e753e27077574ad25291cd756f73dd324e0088
 
 **_ABBYY Timeline は、ヘルスケアを提供されている方々に、継続的な運用上の洞察を提供するクラウドベースのプラットフォームです。 詳細は [こちら](https://tools.techidaily.com/abbyy/products/)。なお、ABBYY Timelineの[体験版申し込み](https://tools.techidaily.com/abbyy/products/)も承っております。日本語UIもサポートしております。_**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. AI and Automation Enabling Remote Working During the COVID-19 Crisis - 新型コロナ感染危機の際にテレワークを可能にしたAIそして自動化
 
 Enterprise Talkでは、ABBYYのAIエバンジェリストであるIvan Yamschikovが、CIOが現在の状況を乗り切るために必要なDX（デジタルトランスフォーメーション）についてインタビューしています。例えば、「時代の先を行くリーダーがどのように皆を先導するか、テレワークの際の従業員の生産性とパフォーマンスをどのように監視するか。 自動化への投資とこれが新型コロナ感染危機を乗り切る組織の能力にどのように直接関連しているのか。 企業が、従業員に権限を与えて自己責任を持つことができるようにし、プロセスがどこで壊れているかを発見させ、将来どのように早く立ち直らせるか。 」などです。
@@ -64,10 +70,10 @@ Enterprise Talkでは、ABBYYのAIエバンジェリストであるIvan Yamschik
 [記事はこちら](https://enterprisetalk.com/interview/ai-and-automation-enabling-remote-working-during-the-covid-19-crisis/)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Will COVID-19 Change Opinions About Automation Adoption? - 新型コロナ感染流行は自動化の採用に関して影響を与えますか？
@@ -76,16 +82,16 @@ ITProTodayでは、新型コロナ感染流行が続く中、この通常では�
 
 [記事はこちら](https://www.itprotoday.com/artificial-intelligence/will-covid-19-change-opinions-about-automation-adoption)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\. Knowing WFH Preferences Key to Employee Recruitment and Retention - 在宅勤務の好みを知ることは従業員の採用と離職防止の鍵となることでしょう
 
 ![work from home family](https://static1.abbyy.com/abbyycommedia/31774/6_gettyimages-1207391933.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 組織は、どんなタイプの作業環境がモチベーション、生産性、および作業満足度を得られるかについて、従業員の好みに耳を傾け、理解することで、従業員が従事する職場文化を作り出すことができます。これは、混乱や根本的な変化のときに特に重要です。 ReadWriteのコラムでは、新しい時代の仕事をリードするために、機敏で迅速に適応でき、従業員のやる気を引き出し、最高の人材を引き付ける魅力的な職場環境を構築できる組織が、どのようにして良いポジションに立てるかをお話しています。
 
@@ -103,16 +109,16 @@ ITProTodayでは、新型コロナ感染流行が続く中、この通常では�
 
 ![working from home](https://static1.abbyy.com/abbyycommedia/31775/7_gettyimages-1215346013.jpg)このフォーブスの記事では、企業のセンターオブエクセレンス（CoE、組織横断的専門チーム）内の意思決定者が、DX導入から実際に影響を与えるために、適切な機能を備えたスキルアップしたデジタルワーカーと自動化プラットフォームをどのように検討する必要があるかについて説明しています。
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [記事はこちら](https://www.forbes.com/sites/forbestechcouncil/2020/09/09/its-time-to-upskill-your-digital-workforce/#6f44f0ab15b8)
 
 **非構造的文書の処理にはABBYY FlexiCaptureが最適です。詳しくは[こちら](https://tools.techidaily.com/abbyy/products/)。**
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9\. How Task Mining Can Turbocharge Your Productivity - タスクマイニングによってどのように生産性を上げることができるのか？
 
@@ -197,16 +203,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-peeling-layers-to-originality-a-guide-for-instagram-photo-search/"><u>[New] Peeling Layers to Originality A Guide for Instagram Photo Search</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-tegakiflexicaptureocr-abbyy/"><u>「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-open-source-neoml-bibliothek-erlebt-einen-sprung-nach-vorn-mit-python-integration-und-beispielloser-geschwindigkeit/"><u>ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-perspective-on-synergizing-with-ai-for-enhanced-team-performance/"><u>ABBYY's Perspective on Synergizing with AI for Enhanced Team Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/advanced-insights-exploring-beyond-business-analytics-and-process-analysis-ebook-by-abbyy/"><u>Advanced Insights: Exploring Beyond Business Analytics and Process Analysis eBook by ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatische-dokumentverarbeitung-in-wilmington-mit-abbyy-software/"><u>Automatische Dokumentverarbeitung in Wilmington Mit ABBYY Software</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-strategies-for-adjusting-music-tempo-on-spotify-app/"><u>In 2024, Strategies for Adjusting Music Tempo on Spotify App</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/prelude-playlists-navigating-auditory-sources-for-podcasts/"><u>Prelude Playlists Navigating Auditory Sources for Podcasts</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/strategic-placements-for-elevating-youtube-videos-for-2024/"><u>Strategic Placements for Elevating YouTube Videos for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-art-of-background-blur-in-modern-photography/"><u>The Art of Background Blur in Modern Photography</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-battle-apple-watch-s9-vs-fitbit-charge-6-which-smartwatch-triumphs/"><u>The Ultimate Battle – Apple Watch S9 vs Fitbit Charge 6: Which Smartwatch Triumphs?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unbeatable-wingspan-top-10-durable-aerial-vehicles/"><u>[New] 2024 Approved Unbeatable Wingspan Top 10 Durable Aerial Vehicles</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-breaking-through-boundaries-optimizing-videos-for-maximum-traction/"><u>[New] Breaking Through Boundaries Optimizing Videos for Maximum Traction</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-the-art-of-preserving-instagram-live-moments/"><u>[New] In 2024, Mastering the Art of Preserving Instagram Live Moments</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-validate-video-rights-a-guide-to-pre-uploading-on-tiktok/"><u>[Updated] 2024 Approved Validate Video Rights A Guide to Pre-Uploading on TikTok</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-start-chatting-in-real-time-learn-live-on-instagram-for-2024/"><u>[Updated] Start Chatting in Real-Time Learn Live on Instagram for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/evolving-towards-process-intelligence-insightful-strategies-from-abbyys-leading-expert/"><u>Evolving Towards Process Intelligence: Insightful Strategies From ABBYY's Leading Expert</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/exploring-artificial-intelligence-frontiers-at-abbyy-event-shaping-tomorrows-tech-landscape/"><u>Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-customization-and-seo-success/"><u>Harnessing the Power of Cookiebot for Advanced Site Customization and SEO Success</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-xiaomi-redmi-12-5g-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Xiaomi Redmi 12 5G If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-xiaomi-redmi-a2plus-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Xiaomi Redmi A2+ | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovative-herangehensweisen-an-die-prozessanalytik-ein-detaillierter-vergleich-zwischen-den-fuhrenden-methoden-pdf-abbyy/"><u>Innovative Herangehensweisen an Die Prozessanalytik: Ein Detaillierter Vergleich Zwischen Den Führenden Methoden (PDF) - ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovative-strategies-needed-adapting-trade-finance-for-emerging-market-hurdles/"><u>Innovative Strategies Needed: Adapting Trade Finance for Emerging Market Hurdles</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/integrity-and-ethics/"><u>Integrity and Ethics</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/redundancy-and-reliability-features-ensure-that-the-system-activates-in-an-emergency-and-alerts-first-responders-promptly/"><u>Redundancy and Reliability Features Ensure that the System Activates in an Emergency and Alerts First Responders Promptly.</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/spread-the-word-about-our-favorite-no-cost-av-converter-software-for-easy-sharing/"><u>Spread the Word About Our Favorite No-Cost AV Converter Software for Easy Sharing</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/unlock-your-dvds-converting-physical-media-to-digital-files-for-2024/"><u>Unlock Your DVDs Converting Physical Media to Digital Files for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: 高度な文書処理技術と組み合わせた、SAP Intelligent RPA にABBYYを統合する方法 | ABBYYの技術解説
-date: 2024-09-24T16:30:02.864Z
-updated: 2024-09-27T17:21:11.176Z
+date: 2024-09-30T02:20:07.647Z
+updated: 2024-10-03T09:34:03.203Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9d3857853f9f78dd8e108c028d0a318d22b529786459d21ef8b234658302fc85.jpg
@@ -46,10 +46,10 @@ thumbnail: https://thmb.techidaily.com/9d3857853f9f78dd8e108c028d0a318d22b529786
 「RPAと組み合わせて使用されるAIテクノロジ - 機械学習（ML）、自然言語処理（NLP）、コンピュータービジョンを含む - は、スタンドアロンRPAによって達成可能なものよりもはるかに大きなビジネス上の利点を引き出す可能性があります。 この組み合わせは、プロセスの業務処理的な部分だけでなく、判断力が必要とされる部分も自動化するのに役立ちます。」
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **インテリジェントな文書処理のリーダーであるABBYY**
@@ -59,10 +59,10 @@ ABBYYのインテリジェント文書処理プラットフォームは、最近
 ABBYYのインテリジェント文書処理プラットフォームとSAP Intelligent RPAを組み合わせると、ABBYYのコンテンツインテリジェンステクノロジーとソリューションは、コンテンツ中心のプロセスの自動化を支援するために必要なコグニティブスキルを提供します。 コンテンツインテリジェンスは、高度なビジネス上の意思決定に必要なスキルと理解を新しいデジタルワーカーに提供することで、企業の働き方を変え始めており、今後の主流になっていくでしょう。
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **次のステップとして**
@@ -78,16 +78,16 @@ ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせ�
 [OCR（文字認識）](https://tools.techidaily.com/abbyy/products/) [コンテンツの理解](https://tools.techidaily.com/abbyy/products/) [AI OCR](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -153,19 +153,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-clearer-connections-a-comprehensive-guide-to-crop-and-share-on-instagram/"><u>[Updated] In 2024, Clearer Connections A Comprehensive Guide to Crop and Share on Instagram</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-redefine-your-viewing-experience-without-xplit/"><u>2024 Approved Redefine Your Viewing Experience Without Xplit</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-boosting-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Boosting Your Site with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-the-backbone-of-personalized-web-interactions/"><u>Cookiebot: The Backbone of Personalized Web Interactions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-the-efficient-and-smart-powering-behind-your-web-analytics/"><u>Cookiebot: The Efficient and Smart Powering Behind Your Web Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cut-invoice-processing-time-in-half-using-norco-technology/"><u>Cut Invoice Processing Time in Half Using Norco Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/detailed-privacy-and-protection-overview-your-guide-to-enhanced-security-measures/"><u>Detailed Privacy and Protection Overview: Your Guide to Enhanced Security Measures</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/effortless-amd-smbus-driver-downloading-and-updating-process/"><u>Effortless AMD SMBus Driver Downloading and Updating Process</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/master-your-screen-time-using-facetime-on-android-for-2024/"><u>Master Your Screen Time Using FaceTime on Android for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/mastering-the-art-of-vlog-script-creation-for-2024/"><u>Mastering the Art of Vlog Script Creation for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-tech-trio-talks-blizzard-microsoft-and-ai-redefining-creativity-in-digital-realms-podcast-episode/"><u>The Tech Trio Talks: Blizzard, Microsoft & AI - Redefining Creativity in Digital Realms [Podcast Episode]</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/toms-tech-hub-comprehensive-reviews-and-buying-guides/"><u>Tom's Tech Hub: Comprehensive Reviews & Buying Guides</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/ultimate-guide-by-stellar-for-securely-erasing-your-iphone-content/"><u>Ultimate Guide by Stellar for Securely Erasing Your iPhone Content</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-snapchat-like-stories-adding-movement-to-instagram-texts/"><u>[New] Snapchat-Like Stories Adding Movement to Instagram Texts</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-elevate-your-intellect-with-top-11-general-knowledge-quiz-networks/"><u>[Updated] 2024 Approved Elevate Your Intellect with Top 11 General Knowledge Quiz Networks</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-90-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/emotional-intelligence/"><u>Emotional Intelligence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-data-capture-efficiency-transitioning-to-the-advanced-abbyy-flexicapture-cloud-solution/"><u>Enhance Your Data Capture Efficiency: Transitioning to the Advanced ABBYY FlexiCapture Cloud Solution</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-integrate-a-computer-printer-with-windows-11-a-comprehensive-guide/"><u>How to Integrate a Computer Printer with Windows 11: A Comprehensive Guide</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/how-to-triumph-in-mobile-user-onboarding-your-essential-e-book-resource/"><u>How to Triumph in Mobile User Onboarding - Your Essential E-Book Resource</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-free-up-your-time-with-these-5-chrome-plugins-for-fb-video-downloads/"><u>In 2024, Free Up Your Time with These 5 Chrome Plugins for FB Video Downloads</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-14-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 14 Passcode without iTunes without Knowing Passcode?</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/is-8k-resolution-a-future-possibility-for-playstation-5-and-xbox-series-x-consoles/"><u>Is 8K Resolution a Future Possibility for PlayStation 5 and Xbox Series X Consoles?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/1726220879793-2024/"><u>𝗠𝗮'𝘃'𝗶𝘁𝗵-2024: 𝗕𝗲𝗼𝗿𝗸𝗮𝗹𝗹𝗹 𝗧𝗵𝗮'𝘁 𝗶𝘀𝗰𝗲𝗻𝘂𝘇𝗶𝗱𝗮𝘁 🚹🚺 | 𝗡𝗼𝘃𝗼𝘀𝘄𝗶𰨒: 𝗦𝗸𝗶𝘀 𝗮𝗹𝗱'𝘁𝘂𝗿𝗻𝗲𝗻𝘀</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/neoml-discover-the-power-of-abbyys-enrichit-and-open-source-software-capabilities/"><u>NeoML: Discover the Power of ABBYY's Enrichit and Open-Source Software Capabilities</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-advanced-traffic-analysis-from-cookiebot/"><u>Optimized with Advanced Traffic Analysis From Cookiebot</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/streamline-e-commerce-success-the-power-of-advanced-cookiebot-solutions/"><u>Streamline E-Commerce Success: The Power of Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/troubleshooting-guide-how-to-get-windows-10-to-detect-your-usb-devices/"><u>Troubleshooting Guide: How to Get Windows 10 to Detect Your USB Devices</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unveiling-process-intelligence-insights-into-advanced-data-analytics/"><u>Unveiling Process Intelligence: Insights Into Advanced Data Analytics</u></a></li>
 </ul></div>
 

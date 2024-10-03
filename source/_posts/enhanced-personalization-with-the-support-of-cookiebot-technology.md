@@ -1,7 +1,7 @@
 ---
 title: Enhanced Personalization with the Support of Cookiebot Technology
-date: 2024-09-21T08:01:21.031Z
-updated: 2024-09-28T04:53:08.447Z
+date: 2024-09-29T00:57:46.115Z
+updated: 2024-10-03T00:34:48.782Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bb47cd4fd3c3317200fd6a0408edf3404c84e0ce2b2a16adf3218bdf1eaafd6a.jpg
@@ -18,6 +18,13 @@ October 06, 2021
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
 ![Blueprism News 848X444](https://static4.abbyy.com/abbyycommedia/34371/blueprism-news-848x444.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### _Blue Prism integrates ABBYY Timeline within Blue Prism Capture to offer complete process and task discovery as a standard capability_
 
@@ -48,16 +55,10 @@ Any organization navigating digital transformation will find this new offering e
 [Learn more about](https://www.blueprism.com/products/blue-prism-process-intelligence/?utm%5Fsource=prnewswire&utm%5Fmedium=press-release&utm%5Fcampaign=gl-product-2021-q4-10-1-blue-prism-process-intelligence) Blue Prism Process Intelligence Powered by ABBYY Timeline.
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About Blue Prism
@@ -66,13 +67,6 @@ Blue Prism is a global leader in enterprise robotic process automation (RPA) and
 
 © 2021 Blue Prism Limited. “Blue Prism”, the “Blue Prism” logo and Prism device are either trademarks or registered trademarks of Blue Prism Limited and its affiliates. All Rights Reserved. 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### About ABBYY
 
 ABBYY empowers organizations to gain a complete understanding of their business processes and the content that fuels them with its Digital Intelligence platform. ABBYY technologies are used by more than 5,000 companies, including many of the Fortune 500, and are recognized for their leadership in Intelligent Document Processing (IDP) and Process Discovery & Mining for driving significant impact where it matters most: customer experience, effectiveness, profitability, and competitive advantage. ABBYY is a global company with offices in 14 countries. For more information, visit [www.abbyy.com](https://tools.techidaily.com/abbyy/products/) and follow us on LinkedIn, Twitter, and Facebook.
@@ -80,22 +74,15 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies, and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Media contacts:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Paul Taylor 
 
@@ -104,6 +91,13 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 [paul.taylor@blueprism.com](https://tools.techidaily.com/abbyy/products/)
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Gina Ray, APR
 
@@ -128,18 +122,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-all-inclusive-guide-what-is-googles-podcast-service-for-2024/"><u>[Updated] All-Inclusive Guide What Is Google's Podcast Service for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Realme 12+ 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-create-edges-of-images-with-rotational-softness-blend-psx/"><u>In 2024, Create Edges of Images with Rotational Softness Blend PSX</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-expert-recommended-video-animation-apps-for-mobile/"><u>New 2024 Approved Expert-Recommended Video Animation Apps for Mobile</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-enhancing-your-sites-visibility/"><u>Optimized with Cookiebot Technology: Enhancing Your Site's Visibility</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-the-latest-from-cookiebot-enhance-your-websites-analytics-today/"><u>Optimized with the Latest From Cookiebot: Enhance Your Website's Analytics Today!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-microsoft-sharepoint-workflows-with-cutting-edge-ocr-capabilities-from-abbyy-experts/"><u>Optimizing Microsoft SharePoint Workflows with Cutting-Edge OCR Capabilities From ABBYY Experts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-web-experiences-with-advanced-cookiebot-technology/"><u>Optimizing Web Experiences with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/peak-matrix-2019-abbyy-stands-out-in-everest-groups-rankings-of-leading-idp-tools-and-applications/"><u>Peak Matrix™ 2019: ABBYY Stands Out in Everest Group's Rankings of Leading IDP Tools and Applications</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/protect-your-data-understanding-the-abbyy-cloud-agreement-for-gdpr-adherence/"><u>Protect Your Data: Understanding the ABBYY Cloud Agreement for GDPR Adherence</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-chatgpts-maximum-response-tokens-how-to-optimize-usage/"><u>Understanding ChatGPT's Maximum Response Tokens: How to Optimize Usage</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/update-your-usb-to-serial-communication-ch340g-drivers-for-windows-11/"><u>Update Your USB-to-Serial Communication: CH340g Drivers for Windows 11</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/updated-best-live-chat-apps-to-try-with-shopify-for-2024/"><u>Updated Best Live Chat Apps To Try With Shopify for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-ice-arena-intensity-the-fastest-moments-in-olympics-for-2024/"><u>[New] Ice Arena Intensity The Fastest Moments in Olympics for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-prime-drone-selections-to-enhance-gopro-videos/"><u>[New] Prime Drone Selections to Enhance GoPro Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-the-timeless-tale-of-roguelike-and-roguelite/"><u>[Updated] The Timeless Tale of Roguelike and Roguelite</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-blissful-family-nights-the-top-10-classics-for-summertime/"><u>2024 Approved Blissful Family Nights The Top 10 Classics for Summertime</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-revolutionary-screen-technology-elite-4k-options-for-mac-enthusiasts/"><u>2024 Approved Revolutionary Screen Technology Elite 4K Options for Mac Enthusiasts</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/comment-un-logiciel-dabbyy-optimise-le-travail-des-cabinets-davocats-londoniens-pour-la-gestion-efficace-de-procedures-essentielles/"><u>Comment Un Logiciel D'ABBYY Optimise Le Travail Des Cabinets D’avocats Londoniens Pour La Gestion Efficace De Procédures Essentielles</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-elevate-your-sites-user-experience/"><u>Cookiebot-Enabled Analytics: Elevate Your Site's User Experience</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-user-experience-enhancement/"><u>Cookiebot-Enabled User Experience Enhancement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-cutting-edge-analytics/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Cutting-Edge Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-drive-better-conversions-with-smart-traffic/"><u>Cookiebot-Enhanced: Drive Better Conversions with Smart Traffic</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/1723199691235-immediate-solutions-to-tackle-dpc-watchdog-non-compliance-error-easily-and-fast/"><u>Immediate Solutions to Tackle DPC Watchdog Non-Compliance Error Easily and Fast</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-lava-blaze-curve-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Lava Blaze Curve 5G Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-student-vids-essential-histories-channel-list-for-2024/"><u>Top Student Vids Essential Histories Channel List for 2024</u></a></li>
 </ul></div>
 

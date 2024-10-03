@@ -1,7 +1,7 @@
 ---
 title: Integrity and Ethics
-date: 2024-09-24T05:19:10.410Z
-updated: 2024-09-28T01:03:17.140Z
+date: 2024-09-28T23:22:07.541Z
+updated: 2024-10-02T20:59:26.126Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2c97ca9c03a4b90ac808b47e7a1e56e2bf5202bf8ec2d002abc5e5f18888aaa6.jpg
@@ -34,10 +34,10 @@ _Gabrielle Lukianchuk, Chief Marketing Officer at ABBYY._
 Lukianchuk holds a Master of Business Administration, in Marketing, from California Lutheran University and a Bachelor of Arts in Music from California State University, Los Angeles. She is a passionate supporter of women's leadership in technology and diversity.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -51,16 +51,10 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Editorial Contact
@@ -68,10 +62,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -98,16 +92,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tech-renaissance.techidaily.com/ace-your-savings-with-microsofts-student-pricing-strategies/"><u>Ace Your Savings with Microsoft's Student Pricing Strategies!</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/best-practices-for-filming-and-sharing-immersive-content-on-fb/"><u>Best Practices for Filming and Sharing Immersive Content on FB</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/fast-and-easy-methods-for-downloading-extended-youtube-clip-playlists/"><u>Fast & Easy Methods for Downloading Extended YouTube Clip Playlists</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/get-abbyy-textgrabber-free-new-on-the-fly-translating-capabilities-for-android-devices/"><u>Get ABBYY TextGrabber Free: New On-the-Fly Translating Capabilities for Android Devices</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-youtube-earning-blueprint-achieving-bank-balances/"><u>In 2024, YouTube Earning Blueprint Achieving Bank Balances</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-enhanced-user-experience-websites-boosted-using-the-powerful-cookiebot-platform/"><u>Leverage Enhanced User Experience: Websites Boosted Using the Powerful Cookiebot Platform</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-cookiebot-technology-for-improved-website-engagement/"><u>Leveraging Cookiebot Technology for Improved Website Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/master-your-connections-using-ios-12-features-for-business-cards-tips-from-abbyb-log/"><u>Master Your Connections Using iOS 12 Features for Business Cards - Tips From ABBYB Log</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solution-steps-overcoming-pc-startup-issues-with-hitman-3/"><u>Solution Steps: Overcoming PC Startup Issues with Hitman 3</u></a></li>
-<li><a href="https://win11.techidaily.com/ten-strategies-to-keep-windows-safe-without-bitlocker-support/"><u>Ten Strategies to Keep Windows Safe without Bitlocker Support</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iuocreodoplusodgplusoctplusodpeodleodreodvoacgombqewmluaipuevptog44ki44ow44ot44o86kqn5a6a44ob44kn44od44kv44oq44k544oi44gn6kal44gk44gr44kl5paw44gx44ge5lql5qw25/"><u>キャッシュフロー最適化戦略: アブビー認定チェックリストで見つける新しい事業機会</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ownload-youtube-videos-to-mp4-without-breaching-laws/"><u>[New] Download YouTube Videos to MP4 without Breaching Laws</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-revisit-the-past-easy-access-to-fb-story-archive/"><u>[New] In 2024, Revisit the Past Easy Access to FB Story Archive</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-master-picks-for-commercial-cloud-space/"><u>[New] Master Picks for Commercial Cloud Space</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-unveiling-the-new-era-of-screen-capture-with-apeaksoft/"><u>[Updated] In 2024, Unveiling the New Era of Screen Capture with Apeaksoft</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-transforming-footage-editing-videos-seamlessly-on-windows-11-and-storyremix/"><u>[Updated] Transforming Footage Editing Videos Seamlessly on Windows 11 and StoryRemix</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-backs-humanity-project-in-pioneering-unbiased-ai-oversight-tools/"><u>ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-finereader-wesentliches-tool-in-der-dokumentenverarbeitung-und-analyse/"><u>ABBYY FineReader - Wesentliches Tool in Der Dokumentenverarbeitung Und Analyse</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312941231-abbyy-flexicapture/"><u>ABBYY FlexiCapture の正式日本市場発売開始</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-industry-pioneer-in-process-analytics-and-intelligent-data-extraction/"><u>ABBYY: Industry Pioneer in Process Analytics and Intelligent Data Extraction</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-open-source-neoml-bibliothek-erlebt-einen-sprung-nach-vorn-mit-python-integration-und-beispielloser-geschwindigkeit/"><u>ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-perspective-on-synergizing-with-ai-for-enhanced-team-performance/"><u>ABBYY's Perspective on Synergizing with AI for Enhanced Team Performance</u></a></li>
+<li><a href="https://games-able.techidaily.com/battle-of-the-titans-opera-gx-and-edge-in-browsers/"><u>Battle of the Titans: Opera GX and Edge in Browsers</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-newest-targus-displaylink-driver-software-for-windows-users-compatible-with-11-8-and-groovy-oldies-free-downloads/"><u>Get the Newest Targus DisplayLink Driver Software for Windows Users – Compatible with 11, 8 & Groovy Oldies - Free Downloads</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-collection-of-10-advanced-fcp-tools/"><u>In 2024, The Ultimate Collection of 10 Advanced FCP Tools</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-nokia-105-classic-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Nokia 105 Classic Phones</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-advanced-traffic-analysis-from-cookiebot/"><u>Optimized with Advanced Traffic Analysis From Cookiebot</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/streamline-e-commerce-success-the-power-of-advanced-cookiebot-solutions/"><u>Streamline E-Commerce Success: The Power of Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unveiling-process-intelligence-insights-into-advanced-data-analytics/"><u>Unveiling Process Intelligence: Insights Into Advanced Data Analytics</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-and-install-rtx-2070-super-gpu-drivers-comprehensive-steps-for-users-of-windows-operating-systems/"><u>Update & Install RTX 2070 Super GPU Drivers: Comprehensive Steps for Users of Windows Operating Systems</u></a></li>
 </ul></div>
 

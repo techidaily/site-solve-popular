@@ -1,7 +1,7 @@
 ---
 title: Emotional Intelligence
-date: 2024-09-13T19:40:08.406Z
-updated: 2024-09-19T00:44:19.918Z
+date: 2024-09-27T10:30:34.140Z
+updated: 2024-10-03T01:07:07.305Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898900fabab3b9425630194609.jpg
@@ -33,6 +33,13 @@ _Gabrielle Lukianchuk, Chief Marketing Officer at ABBYY._
 
 Lukianchuk holds a Master of Business Administration, in Marketing, from California Lutheran University and a Bachelor of Arts in Music from California State University, Los Angeles. She is a passionate supporter of women's leadership in technology and diversity.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### About ABBYY
 
 ABBYY powers intelligent automation. We reimagine the way people work and how companies accelerate business by delivering the intelligence that fuels automation platforms. Our solutions transform enterprise data and empower you with the insights you need to work smarter and faster. 
@@ -43,9 +50,29 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Gina Ray, APR
 
@@ -69,12 +96,23 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-full-guide-mastery-of-adobe-cloud-services-with-alternatives-analysis/"><u>[New] Full Guide Mastery of Adobe Cloud Services with Alternatives Analysis</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-a-leaders-list-of-8-online-havens-for-golden-3d-and-text/"><u>[Updated] A Leader's List of 8 Online Havens for Golden 3D & Text</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-reviewing-the-gopro-hero5-session-series/"><u>[Updated] Reviewing the GoPro Hero5 Session Series</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/forbes-insight-transitioning-from-traditional-documents-to-advanced-digital-process-analytics/"><u>Forbes Insight: Transitioning From Traditional Documents to Advanced Digital Process Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/harness-the-power-of-cookiebot-for-optimized-web-traffic-growth/"><u>Harness the Power of Cookiebot for Optimized Web Traffic Growth</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-nubia-red-magic-8s-pro-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Nubia Red Magic 8S Pro</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-leveraging-snapchat-for-professional-networking-and-sales/"><u>In 2024, Leveraging Snapchat for Professional Networking & Sales</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iphone-scan-and-convert-documents-with-ocr-technology-perfectpdf-tools/"><u>IPhone Scan & Convert Documents with OCR Technology - PerfectPDF Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/les-avantages-de-rpa-pour-les-entreprises-francaises-une-etude-revelatrice-dun-retour-sur-investissement-positif-des-la-premiere-annee-informations-par-abby29/"><u>Les Avantages De RPA Pour Les Entreprises Françaises : Une Étude Révélatrice D'un Retour Sur Investissement Positif Dès La Première Année - Informations Par ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/les-dernieres-avancees-de-machine-learning-sur-la-solution-flexicapture-optimiser-avec-abbyy-technologie/"><u>Les Dernières Avancées De Machine Learning Sur La Solution FlexiCapture - Optimiser Avec ABBYY Technologie</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leveraging-cookiebot-for-superior-conversion-rates-and-seamless-personalization-on-your-website/"><u>Leveraging Cookiebot for Superior Conversion Rates and Seamless Personalization on Your Website</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-samsung-galaxy-s23-fe-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Samsung Galaxy S23 FE? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/mastering-seamless-mobile-onboarding-with-strategies-from-the-abbyy-handbook/"><u>Mastering Seamless Mobile Onboarding with Strategies From the ABBYY Handbook</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Infinix Hot 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/strategizing-against-the-phantom-follower-phenomenon/"><u>Strategizing Against the Phantom Follower Phenomenon</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-premier-selection-of-consoles-for-enthusiastic-players-this-year/"><u>The Premier Selection of Consoles for Enthusiastic Players This Year</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog
-date: 2024-09-24T01:51:28.963Z
-updated: 2024-09-27T19:04:46.669Z
+date: 2024-09-30T10:48:34.279Z
+updated: 2024-10-02T17:39:10.109Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a9de22e1aa59a5e7f9127b24.jpg
@@ -22,41 +22,27 @@ We had a year full of amazing stories that demonstrate the value of Digital Inte
 Here are our most interesting and favorite Digital Intelligence stories from 2020, in case you missed any of them.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. The Human Touch: The Untapped Opportunity for Making AI Work for Insurance
 
 ![digital transformation 2020](https://static1.abbyy.com/abbyycommedia/31574/blog-digital-intelligence-2-848x444.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The opportunity for artificial intelligence (AI) is in targeting the end-to-end processing of documents for human-machine collaboration as an essential part of the customer journey. Customer acquisition and retention remain the essential drivers of insurance revenue and profit; however, knowing how to create experiences to acquire and keep customers happy remains challenging.
 
 A new breed of competitor—Insuretechs—target smart technologies at the customer experience and are disrupting the status quo for traditional insurers. What Fintechs did in consumer banking, Insuretechs are doing to transform insurance customer experiences. Artificial intelligence (AI) technologies show a lot of promise in transforming customer acquisition and retention, yet it’s all too easy to assume that better technologies can, in themselves, transform customer experience.
 
 [Read the article.](https://iireporter.com/the-human-touch-the-untapped-opportunity-for-making-ai-work-for-insurance/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Social Distancing Has Raised the Bar for the Digital Experience
 
@@ -66,6 +52,13 @@ With social distancing measures in place and businesses across diverse industrie
 
 [Read the article.](https://www.cmswire.com/digital-experience/social-distancing-has-raised-the-bar-for-the-digital-experience/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Data Insight Plays a Key Role in How ABBYY Supplies Vital Pieces of the RPA Puzzle
 
 Digital Intelligence tools are becoming more essential for enterprise companies as interest in automation continues to grow. One of the hottest fields in the space has been Robotic Process Automation (RPA), which involves the use of software robots to automate repetitive, mundane tasks. Robert Youngjohns, Chairman of the Board at ABBYY, spoke with Dave Vellante, Chief Analyst at market research firm Wikibon and co-host of SiliconANGLE Media’s video studio theCUBE.
@@ -74,9 +67,23 @@ They discussed how ABBYY’s platform identifies process flows, the importance o
 
 [Read the article](https://siliconangle.com/2020/05/12/data-insight-plays-a-key-role-in-how-abbyy-supplies-vital-pieces-of-the-rpa-puzzle-cubeconversations/) or watch the video below.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. The Need for Digital Intelligence in the Time of Social Distancing
 
 ![social distancing](https://static1.abbyy.com/abbyycommedia/31669/blog-1262271993-848x444.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 COVID-19 is the defining event of 2020, and with it, ”social distancing” entered our vocabulary for modern commerce, recasting interpersonal and business interactions. Now as part of our social consciousness, social distancing is fueling a growing reliance on virtualization and technologically mediated relationships. While the urgency of social distancing is already putting our technology and process readiness to the test, it raises an important question about how people, process, and content interact in this new normal. Social distancing has made the customer experience an imperative, driving digital transformation by replacing human-to-human with app-defined interactions.
 
@@ -85,13 +92,6 @@ COVID-19 is the defining event of 2020, and with it, ”social distancing” ent
 ### 5\. Six Steps to Revive Your Digital Transformation Projects
 
 ![ideas for improving customer service](https://static1.abbyy.com/abbyycommedia/31624/blog-digital-intelligence-1-848x444.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The pandemic shifted many IT resources toward business continuity efforts, and many workers and leaders reached the point where they were struggling to ramp up or resume digital transformation projects. Organizations looked to tap into the benefits attained from scaling end-to-end digital transformation but needed direction on the right strategies to accelerate higher-value initiatives. The challenges stem from a lack of understanding of business processes coupled with an inability to turn a company’s data into actionable, valuable information that drives strategic business decisions. ABBYY shared six fundamental steps to help implement digital transformation.
 
@@ -172,17 +172,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-be-selective-stop-instagram-suggested-updates/"><u>[Updated] Be Selective Stop Instagram Suggested Updates</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-pilots-perspective-dji-dualsense-fpv-tech-for-2024/"><u>[Updated] Pilot's Perspective DJI DualSense FPV Tech for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-elevates-mariko-maeda-to-leadership-role-president-and-representative-director-for-strengthening-the-japanese-market-presence/"><u>ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-automatisierte-intelligenz-innovative-losungen-auf-der-expo-fur-dienstleistungsverlagerung-und-konsolidierung/"><u>ABBYY-Automatisierte Intelligenz: Innovative Lösungen Auf Der Expo Für Dienstleistungsverlagerung Und Konsolidierung</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724313274377-abbyy/"><u>ABBYYチェッカリスト - 金融市場で勝ち抜くための強化戦略</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/begin-your-editing-journey-adopting-movie-maker-for-w11-for-2024/"><u>Begin Your Editing Journey Adopting Movie Maker for W11 for 2024</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/critical-moments-addressed-navigating-documentation-issues-within-insurance-sectors/"><u>Critical Moments Addressed: Navigating Documentation Issues Within Insurance Sectors</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/full-guide-to-unlock-your-samsung-galaxy-s23-tactical-edition-by-drfone-android/"><u>Full Guide to Unlock Your Samsung Galaxy S23 Tactical Edition</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-online-image-enhancement-with-audio/"><u>In 2024, Online Image Enhancement with Audio</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-step-by-step-iphone-camera-adjustment-guide/"><u>In 2024, Step-by-Step iPhone Camera Adjustment Guide</u></a></li>
-<li><a href="https://app-tips.techidaily.com/top-crm-platforms-of-2022-revealed-see-whos-leading-in-customer-engagement-zdnet/"><u>Top CRM Platforms of 2022 Revealed: See Who's Leading in Customer Engagement - ZDNet</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-how-to-create-time-travel-teleportation-effects/"><u>[New] In 2024, How to Create Time Travel Teleportation Effects</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-top-ranked-mac-gif-converter/"><u>[Updated] 2024 Approved Top-Ranked Mac GIF Converter</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-a-fair-assessment-unveiling-recordcasts-capabilities-for-2024/"><u>[Updated] A Fair Assessment Unveiling RecordCast's Capabilities for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-elated-user-entryways-and-exits/"><u>2024 Approved Elated User Entryways & Exits</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-ocr-rpa49/"><u>伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automatisierte-rechnungsbearbeitung-fur-energielieferanten-mit-branchenrelevanz-empfehlungen-von-abbyy/"><u>Automatisierte Rechnungsbearbeitung Für Energielieferanten Mit Branchenrelevanz – Empfehlungen Von ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-site-traffic-with-cookiebot-integration-strategies/"><u>Boost Site Traffic with Cookiebot Integration Strategies</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-web-visibility-instantly-using-the-powerful-cookiebot-seo-tech/"><u>Boost Web Visibility Instantly Using the Powerful Cookiebot SEO Tech</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/carlsberg-accelere-son-debut-en-mer-avec-la-technologie-abbyy-un-nouveau-partenariat-industriel/"><u>Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enhancing-file-visibility-strategic-application-of-descriptions/"><u>Enhancing File Visibility: Strategic Application of Descriptions</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-hot-30i-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Infinix Hot 30i Phone without Any Data Loss</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-samsung-galaxy-s23-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Samsung Galaxy S23</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Apple iPhone X | Dr.fone</u></a></li>
 </ul></div>
 

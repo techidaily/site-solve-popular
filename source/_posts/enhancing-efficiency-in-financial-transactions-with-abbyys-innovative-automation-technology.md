@@ -1,7 +1,7 @@
 ---
 title: Enhancing Efficiency in Financial Transactions with ABBYY's Innovative Automation Technology
-date: 2024-09-23T07:14:13.532Z
-updated: 2024-09-28T05:52:04.497Z
+date: 2024-09-26T09:41:42.308Z
+updated: 2024-10-03T07:51:40.506Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/64de9954aaa9872e4109ed0fb3bd88e929af8b2024c5f17c9a376420ca579cf7.jpg
@@ -19,14 +19,14 @@ English
 
 ![Cheryl Chiodi](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) 
 
-![Cheryl Chiodi](https://static4.abbyy.com/abbyycommedia/32900/75-cherylchiodi-198x198.png)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Cheryl Chiodi](https://static4.abbyy.com/abbyycommedia/32900/75-cherylchiodi-198x198.png)
 
 ### Cheryl Chiodi
 
@@ -34,41 +34,28 @@ Solution Marketing Manager, Financial Services, **ABBYY**
 
 ![88 Aurelielhostis 198X198](https://static4.abbyy.com/abbyycommedia/25489/forrester-logo-forcards.png) 
 
-![88 Aurelielhostis 198X198](https://static4.abbyy.com/abbyycommedia/33886/88-aurelielhostis-198x198.png)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![88 Aurelielhostis 198X198](https://static4.abbyy.com/abbyycommedia/33886/88-aurelielhostis-198x198.png)
 
 ### Aurelie L'Hostis
 
 Senior Analyst, **Forrester**
-
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Overview
 
 The challenges of the recent global crisis have exposed the fact that the events and trends in financial services move fast. Financial institutions need the velocity necessary to keep up and meet the needs of their customers by creating the differentiated experiences they demand. In a world where things can change with little or no warning, speed matters.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What you will learn
@@ -80,13 +67,6 @@ In this webinar, ABBYY's financial services expert Cheryl Chiodi and guest speak
 * Ways of leveraging technology and partnerships to expedite process automation to become more agile and improve CX
 * How to discover, analyse and predict outcomes with actionable process insights
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Watch now
 
 ### Get in touch with us
@@ -94,7 +74,27 @@ In this webinar, ABBYY's financial services expert Cheryl Chiodi and guest speak
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Thank you, enjoy your webinar.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Check out some of the best moments and watch the full recording below.
 
@@ -165,20 +165,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-keywords-in-the-world-of-selling-monetized-youtube-channels/"><u>[New] Keywords in the World of Selling Monetized Youtube Channels</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-xiaomis-new-smartphone-screenshot-tool-a-game-changer-in-recording-tech/"><u>[New] Xiaomi's New Smartphone Screenshot Tool A Game Changer in Recording Tech</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-pinpointing-the-leading-10-secret-story-supporters-for-2024/"><u>[Updated] Pinpointing the Leading 10 Secret Story Supporters for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-analyzing-the-precision-of-yis-4k-actioncam/"><u>2024 Approved Analyzing the Precision of Yi's 4K ActionCam</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-and-blue-prism/"><u>ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-facilitates-consistent-document-management-in-rochlings-sap-system-for-improved-efficiency-latest-industry-news/"><u>ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-showcases-artificial-intelligence-insights-at-the-2018-aiim-event/"><u>ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Lava Blaze Curve 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/1726028382025-iphonemp4/"><u>IPhone上でMP4ファイルを安全に保存し、データ損失が起こった際の解決策</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/the-future-of-digital-transformation-insights-from-the-2018-abbyy-technology-summit-on-content-intelligence/"><u>The Future of Digital Transformation: Insights From the 2018 ABBYY Technology Summit on Content Intelligence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-6-must-read-digital-intelligence-insights-of-2020-featured-on-the-abbyy-blog/"><u>Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/universitat-zurich-optimiert-prufungen-mit-abbyy-flexicapture-korrektursystem/"><u>Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unlock-deeper-understanding-with-abbyys-guide-on-elevated-bi-and-process-mining-tactics-ebook/"><u>Unlock Deeper Understanding with ABBYY's Guide on Elevated BI & Process Mining Tactics [eBook]</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unlock-iphonepcs-full-potential-with-these-top-8-converters/"><u>Unlock iPhone/PC's Full Potential With These Top 8 Converters</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/unlock-new-creative-potential-on-tiktok-with-easy-background-swaps-for-2024/"><u>Unlock New Creative Potential on TikTok with Easy Background Swaps for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-creating-polished-video-content-in-captivate/"><u>[New] Creating Polished Video Content in Captivate</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-fast-tracking-tiktok-filming-the-ultimate-playbook/"><u>[New] Fast-Tracking TikTok Filming The Ultimate Playbook</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-pixel-perfect-fun-unveiling-the-secrets-of-snapchats-filters/"><u>[New] Pixel Perfect Fun Unveiling the Secrets of Snapchat's Filters</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-from-footage-to-frame-crafting-youtube-thumbnails-on-mobile-devices/"><u>2024 Approved From Footage to Frame Crafting YouTube Thumbnails on Mobile Devices</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-synchronize-your-surfing-master-multi-video-youtube-use/"><u>2024 Approved Synchronize Your Surfing Master Multi-Video YouTube Use</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/drive-engagement-using-the-advanced-capabilities-of-cookiebot/"><u>Drive Engagement Using the Advanced Capabilities of Cookiebot</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/empowering-websites-with-cookiebot-technology-for-enhanced-user-experience/"><u>Empowering Websites with Cookiebot Technology for Enhanced User Experience</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-digital-engagement-with-cookiebot-technology/"><u>Enhanced Digital Engagement with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-user-experience-with-automated-data-gathering-the-power-of-cookiebot-technology/"><u>Enhanced User Experience with Automated Data Gathering: The Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-insurance-risk-assessment-via-automated-data-centric-methods/"><u>Enhancing Insurance Risk Assessment via Automated, Data-Centric Methods</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-kyc-compliance-in-finance-with-ai-and-ml-techniques-download-our-comprehensive-guide/"><u>Enhancing KYC Compliance in Finance with AI & ML Techniques - Download Our Comprehensive Guide</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-online-experience-through-cookiebot-driven-analytics/"><u>Enhancing Online Experience Through Cookiebot-Driven Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-through-cookiebot-technology/"><u>Enhancing Website Analytics Through Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/experience-enhanced-digital-presence-with-cookiebot-integration-bespoke-online-growth-tools/"><u>Experience Enhanced Digital Presence with Cookiebot Integration | Bespoke Online Growth Tools</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-oppo-k11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-dotx-file-online-with-digisigner-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Sign .dotx file Online with DigiSigner</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/mastering-windows-10-the-hidden-paths-for-importation-for-2024/"><u>Mastering Windows 10 The Hidden Paths for Importation for 2024</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/mirillis-comprehensive-guide-understanding-user-manuals-and-eula-documentation/"><u>Mirilli's Comprehensive Guide: Understanding User Manuals & EULA Documentation</u></a></li>
 </ul></div>
 

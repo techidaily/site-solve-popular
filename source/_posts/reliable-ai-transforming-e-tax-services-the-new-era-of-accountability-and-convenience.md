@@ -1,7 +1,7 @@
 ---
 title: "Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience"
-date: 2024-09-21T02:09:19.314Z
-updated: 2024-09-27T18:39:08.519Z
+date: 2024-09-30T22:07:14.446Z
+updated: 2024-10-03T04:03:45.387Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/83ad07fb3b3903af9b11edf490a1269ded4203aa30a9b73ce69cba9af6290248.jpg
@@ -31,10 +31,10 @@ The rapid evolution of AI has been massively disruptive, even prompting some [te
 As AI continues to become more intertwined with business operations and consumers’ personal information, it is necessary to consider its trustworthiness from different perspectives. In the context of trusting artificial intelligence in the tax process, trustworthiness can be evaluated in terms of **customer outcomes, business outcomes**, and **outcomes of other stakeholders such as citizens**.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Enhancing customer outcomes
@@ -47,11 +47,25 @@ AI can be trusted to fill in gaps in customers’ understanding of the tax proce
 
 From the customer’s perspective, AI-assisted filing eliminates the monotonous task of manual entry and provides the tools needed to maximize their return without assuming total control. By leaving the wheel in the filer’s hands, AI offers value while avoiding added risk.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Delivering on Artificial Intelligence’s Potential
 
 eBook
 
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Enhancing business outcomes
 
@@ -63,14 +77,14 @@ One leading tax preparation company found that ABBYY Vantage extracted tier-one 
 
 [![Vantage Video Scr](https://static5.abbyy.com/abbyycommedia/37535/vantage-video-scr.jpg)](https://www.youtube.com/watch?v=8D3a48b1dF8) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 By putting more control in the hands of citizen developers to quickly deliver IDP solutions for their highest value use cases, artificial intelligence provides organizations with both immediate and long-term business value.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Enhancing public outcomes
 
@@ -92,25 +106,11 @@ Chip’s deep knowledge of AI, machine learning and the systems driving organiza
 
 Connect with Chip on [LinkedIn](https://www.linkedin.com/in/chipvonburg/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Additional Insights:
 
 1 / 3 
 
 [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg) **Are Large Language Models (LLMs) the Future?** Read more](https://tools.techidaily.com/abbyy/products/) [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg) **The Gap Is Closing Between AI Innovation and Time-to-Value** Read more](https://tools.techidaily.com/abbyy/products/) [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg) **How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning** Read more](https://tools.techidaily.com/abbyy/products/) [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg) **How Process Mining Improves Business Processes and Prevents Cyber Threats** Read more](https://tools.techidaily.com/abbyy/products/) [![Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific](https://static4.abbyy.com/abbyycommedia/37508/idp-trends-and-outcomes-report_848x444.jpg) **Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Process Mining Reveals $6 Million in Savings](https://static2.abbyy.com/abbyycommedia/37509/leading-financial-institution-saves-millions_848x444.jpg) **Customer Point of View: Process Mining Reveals $6 Million in Savings** Read more](https://tools.techidaily.com/abbyy/products/) [![Is Generative AI Trustworthy?](https://static2.abbyy.com/abbyycommedia/37531/ai-and-the-big-question_848x444.jpg) **Is Generative AI Trustworthy?** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Subscribe for updates
 
@@ -169,16 +169,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-from-tweets-to-device-storage-android-and-iphone-gif-steps/"><u>[Updated] 2024 Approved From Tweets to Device Storage Android & iPhone GIF Steps</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-making-every-minute-count-youtube-length-reduction-techniques-for-2024/"><u>[Updated] Making Every Minute Count YouTube Length Reduction Techniques for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-toolwiz-evaluation-the-top-choice-in-mobile-editing/"><u>[Updated] Toolwiz Evaluation The Top Choice in Mobile Editing?</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-huawei-nova-y71-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Huawei Nova Y71 | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/guide-to-fixing-installation-glitches-for-origin-platform-gaming-titles/"><u>Guide to Fixing Installation Glitches for Origin Platform Gaming Titles</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-nokia-130-music-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Nokia 130 Music | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/redefining-accounts-payable-the-synergy-of-automation-and-content-knowledge/"><u>Redefining Accounts Payable: The Synergy of Automation and Content Knowledge</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/robert-youngjohns-steering-vision-as-abbyys-esteemed-board-chair/"><u>Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-datadeliverers-professional-view/"><u>[New] In 2024, DataDeliverers Professional View</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-complete-picture-a-close-look-at-the-google-podcasts-app/"><u>2024 Approved Complete Picture A Close Look at the Google Podcasts App</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-global-idp/"><u>ABBYY Global IDPトレンドの最新発表:成果報告書解説</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/grasping-the-copyright-conundrum-in-ai-realm/"><u>Grasping the Copyright Conundrum in AI Realm</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/mastering-stable-voice-chats-advanced-solutions-for-fixing-discords-audio-dropouts-updated-guide/"><u>Mastering Stable Voice Chats: Advanced Solutions for Fixing Discord's Audio Dropouts - Updated Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/maximizing-screen-space-removing-windows-overscan-effects/"><u>Maximizing Screen Space: Removing Windows Overscan Effects</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
+<li><a href="https://network-issues.techidaily.com/pocket-sized-remedy-for-amd-in-eft/"><u>Pocket-Sized Remedy for AMD in EFT</u></a></li>
+<li><a href="https://win-dash.techidaily.com/seamless-connectivity-premium-bluetooth-adapter-drivers-compatible-with-all-microsoft-windows-systems/"><u>Seamless Connectivity: Premium Bluetooth Adapter Drivers Compatible with All Microsoft Windows Systems</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/troubleshooting-steps-to-restore-lenovo-laptops-malfunctioning-backlit-keyboard/"><u>Troubleshooting Steps to Restore Lenovo Laptop's Malfunctioning Backlit Keyboard</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
 </ul></div>
 

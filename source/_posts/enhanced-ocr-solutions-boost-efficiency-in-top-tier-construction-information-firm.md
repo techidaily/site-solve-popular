@@ -1,7 +1,7 @@
 ---
 title: Enhanced OCR Solutions Boost Efficiency in Top-Tier Construction Information Firm
-date: 2024-09-27T04:57:42.169Z
-updated: 2024-09-27T23:14:22.482Z
+date: 2024-09-30T19:30:49.676Z
+updated: 2024-10-02T21:08:29.562Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6bf5f8c3a7d4525074ba1b28f14c511bc7c37f5e8a7742b128774ee55042b67a.jpg
@@ -19,13 +19,6 @@ Other | Digital Archiving
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Robust OCR Service Raises Productivity for Leading Provider of Construction Data
 
 Other | Digital Archiving 
@@ -36,6 +29,13 @@ Other | Digital Archiving
 
 ![Construction Management Data (CMD)](https://static1.abbyy.com/abbyycommedia/15457/cmd-logo-150.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | Name         | Construction Management Data (CMD)            |
 | ------------ | --------------------------------------------- |
 | Headquarters | North America                                 |
@@ -45,6 +45,13 @@ Other | Digital Archiving
 #### Partner Overview
 
 ![Conarc](https://static2.abbyy.com/abbyycommedia/15318/conarclogo_150.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name | Conarc                                   |
 | ---- | ---------------------------------------- |
@@ -69,6 +76,13 @@ Using ABBYY Recognition Server, CMD automated the capture and conversion of mill
 Construction Management Data (CMD) provides information to construction firms on hundreds of thousands of past, current and future construction projects via their website. This requires collecting and converting complex paper and digital documents into searchable plans and specification documents, for an approximate total of 35 million pages per year. But CMD’s solution for creating searchable PDFs required manual document preparation and could not handle large-scale construction plans. Additionally, it couldn’t scale to meet their need to process and make searchable, years of past data, while accommodating growing volume and workloads related to current projects. Seeking a way to achieve higher productivity, automation and scalability, CMD found the solution in ABBYY Recognition Server.
 
 ###### SEE HOW ABBYY CAN HELP
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### over **35**
 
@@ -132,34 +146,20 @@ And as Dan DuBois confirms, Recognition Server has helped CMD realize its long-t
 
 [![ABBYY Recognition Server has rebranded as ABBYY FineReader Server](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) ") [ABBYY Recognition Server (now FineReader Server)](https://tools.techidaily.com/abbyy/products/) ") 
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [read more](https://tools.techidaily.com/abbyy/products/) ") 
 
 [![Digital Archiving](https://static1.abbyy.com/abbyycommedia/14355/5-document-archiving.jpg)](https://tools.techidaily.com/abbyy/products/) [Document Archiving](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static3.abbyy.com/abbyycommedia/15558/11-construction-management-data-cmd-2.png)](https://static4.abbyy.com/abbyycommedia/3429/rs%5Fcmd%5Fconstruction%5F2015.pdf "PDF version") [PDF version](https://static4.abbyy.com/abbyycommedia/3429/rs%5Fcmd%5Fconstruction%5F2015.pdf "PDF version") 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [read more](https://static4.abbyy.com/abbyycommedia/3429/rs%5Fcmd%5Fconstruction%5F2015.pdf "PDF version") 
 
@@ -188,15 +188,21 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-ultimate-guide-to-free-online-video-tools-for-all/"><u>[New] The Ultimate Guide to Free Online Video Tools for All</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-top-8-sites-with-easy-access-to-free-3d-text-psd-images/"><u>[New] Top 8 Sites with Easy Access to Free 3D Text PSD Images</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtubes-gross-revenue-for-a-mil-viewer-spectacle/"><u>[Updated] In 2024, Youtube's Gross Revenue for a Mil Viewer Spectacle</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/1726026524015-3/"><u>人気の高いサンプリングレート変更サイトベスト3ピック</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-unparalleled-audio-capture-top-9-online-microphone-systems-in-23/"><u>In 2024, Unparalleled Audio Capture Top 9 Online Microphone Systems in '23</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/master-your-connections-using-ios-12-features-for-business-cards-tips-from-abbyb-log/"><u>Master Your Connections Using iOS 12 Features for Business Cards - Tips From ABBYB Log</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximize-engagement-with-advanced-analytics-the-cookiebot-integration-advantage/"><u>Maximize Engagement with Advanced Analytics: The Cookiebot Integration Advantage</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximizing-page-visibility-a-guide-to-advanced-seo-techniques/"><u>Maximizing Page Visibility: A Guide to Advanced SEO Techniques</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimize-with-cookiebot-advanced-tools-for-superior-web-engagement-and-personalization/"><u>Optimize With Cookiebot: Advanced Tools for Superior Web Engagement and Personalization</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/understanding-artificnial-intelligence-insights-and-potential-risks/"><u>Understanding Artificnial Intelligence: Insights & Potential Risks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-proving-ideal-for-iphone-users-9-photo-watermarking-tools/"><u>2024 Approved Proving Ideal for iPhone Users 9 Photo Watermarking Tools</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-erase-apple-iphone-xr-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>3 Ways to Erase Apple iPhone XR When Its Locked Within Seconds | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-dominates-2022-spark-matrix-rankings-by-quadrant-knowledge-solutions-for-advanced-document-analysis/"><u>ABBYY Dominates 2022 SPARK Matrix Rankings by Quadrant Knowledge Solutions for Advanced Document Analysis</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312901263-abbyy-finereader-14/"><u>ABBYY FineReader 14 - 職場向けの文書ワークフローを一新する先進技術</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-leadership-in-customer-excellence-meet-larysa-lototska/"><u>ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyyocr/"><u>ABBYY組み込みOCR採用：東芝テックの新シリーズ印刷機</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-asteriaflexicapture-cloud/"><u>ABBYYブログで紹介! ASTERIAとFlexiCapture Cloudに対応した高度な画面分析テンプレート - 最新技術の解説</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-strategy-shifts-global-economys-influence-explored-in-comprehensive-intelligence-automation-overview/"><u>AI Strategy Shifts: Global Economy's Influence Explored in Comprehensive Intelligence Automation Overview</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-conversions-using-the-latest-cookiebot-technology-features/"><u>Boost Conversions Using the Latest Cookiebot Technology Features</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1722992563477-far-cry-n6-pc-launch-problems-now-fixed/"><u>Far Cry N6 PC Launch Problems - Now Fixed</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-realme-gt-neo-5-se-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-oppo-f25-pro-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Oppo F25 Pro 5G</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unlocking-revenue-how-to-profit-from-youtube-short-videos/"><u>In 2024, Unlocking Revenue How to Profit From YouTube Short Videos</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/simple-steps-for-disabling-captions-on-amazon-prime-streaming-services/"><u>Simple Steps for Disabling Captions on Amazon Prime Streaming Services</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/srt-file-accessibility-across-computers-for-2024/"><u>SRT File Accessibility Across Computers for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-canon-video-editor-a-beginners-guide-to-editing-your-camcorder-footage/"><u>Updated 2024 Approved Canon Video Editor A Beginners Guide to Editing Your Camcorder Footage</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel"
-date: 2024-09-23T04:01:26.085Z
-updated: 2024-09-28T04:58:10.285Z
+date: 2024-09-28T05:58:04.889Z
+updated: 2024-10-03T06:46:57.704Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f3da9d43f76b9f516093793d9516d9565ec88b7802cbf1d4cc94115fe3f93e52.png
@@ -41,16 +41,10 @@ La solution d'Intelligent Process Automation d'ABBYY comprend des technologies d
 Pour plus d'informations, visitez <https://www.abbyy.com/solutions/intelligent-process-automation-ipa/>.
 
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos d’ABBYY
@@ -60,10 +54,10 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -71,10 +65,10 @@ ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont r�
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Eva-Maria Hufschmitt
@@ -100,19 +94,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-decoding-youtubes-mystery-a-sequential-exploration-guide/"><u>[New] 2024 Approved Decoding YouTube's Mystery A Sequential Exploration Guide</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-average-spend-on-successful-youtube-videos/"><u>[Updated] 2024 Approved Average Spend on Successful YouTube Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-composing-channel-overview-teaser-clips/"><u>[Updated] Composing Channel Overview Teaser Clips</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-secrets-behind-successful-hd-videos-on-social-networks/"><u>[Updated] In 2024, The Secrets Behind Successful HD Videos on Social Networks</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-tegakiflexicaptureocr-abbyy/"><u>「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/advanced-insights-exploring-beyond-business-analytics-and-process-analysis-ebook-by-abbyy/"><u>Advanced Insights: Exploring Beyond Business Analytics and Process Analysis eBook by ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatische-dokumentverarbeitung-in-wilmington-mit-abbyy-software/"><u>Automatische Dokumentverarbeitung in Wilmington Mit ABBYY Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversion-rates-using-innovative-cookiebot-tracking-solutions/"><u>Boost Conversion Rates Using Innovative Cookiebot Tracking Solutions</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/comprehensive-tutorial-using-stellar-repair-to-revitalize-your-images-in-photo-8-windows/"><u>Comprehensive Tutorial: Using Stellar Repair to Revitalize Your Images in Photo 8 (Windows)</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-success-boost-your-sites-visibility-and-conversions/"><u>Cookiebot-Driven Success: Boost Your Site's Visibility and Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-site-with-advanced-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Site with Advanced Analytics and Tracking</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-7-without-apple-id-by-drfone-ios/"><u>How to Erase an Apple iPhone 7 without Apple ID?</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-clearing-up-wind-interference-on-smartphone-and-tablet-video-recording-for-2024/"><u>New Clearing Up Wind Interference on Smartphone and Tablet Video Recording for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/next-gen-coding-tools-alternatives-to-chatgpt-leading-the-way/"><u>Next-Gen Coding Tools: Alternatives to ChatGPT Leading the Way</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-photo-perfection-at-your-fingertips-top-10-stickers-on-iphones-and-androids/"><u>[New] Photo Perfection at Your Fingertips Top 10 Stickers on iPhones & Androids</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-streamline-lesson-planning-with-recorder-tools/"><u>[New] Streamline Lesson Planning with Recorder Tools</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-weekly-webinar-strategies-timing-and-coordination-tips/"><u>[Updated] In 2024, Weekly Webinar Strategies Timing and Coordination Tips</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-contrast-of-virtual-realms-meta-vs-omni-universe/"><u>[Updated] The Contrast of Virtual Realms Meta Vs. Omni Universe</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-in-class-networking-server-frameworks-2024s-top-picks-unveiled/"><u>Best-In-Class Networking Server Frameworks: 2024'S Top Picks Unveiled</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/elevate-your-digital-experience-with-our-selection-of-the-best-free-email-services/"><u>Elevate Your Digital Experience with Our Selection of the Best FREE Email Services</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/evolving-towards-process-intelligence-insightful-strategies-from-abbyys-leading-expert/"><u>Evolving Towards Process Intelligence: Insightful Strategies From ABBYY's Leading Expert</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/exploring-artificial-intelligence-frontiers-at-abbyy-event-shaping-tomorrows-tech-landscape/"><u>Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-customization-and-seo-success/"><u>Harnessing the Power of Cookiebot for Advanced Site Customization and SEO Success</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-poco-f5-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Poco F5 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-8-with-imei-code-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 8 with IMEI Code?</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovative-herangehensweisen-an-die-prozessanalytik-ein-detaillierter-vergleich-zwischen-den-fuhrenden-methoden-pdf-abbyy/"><u>Innovative Herangehensweisen an Die Prozessanalytik: Ein Detaillierter Vergleich Zwischen Den Führenden Methoden (PDF) - ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovative-strategies-needed-adapting-trade-finance-for-emerging-market-hurdles/"><u>Innovative Strategies Needed: Adapting Trade Finance for Emerging Market Hurdles</u></a></li>
+<li><a href="https://win-great.techidaily.com/top-ranking-windows-vpn-services-comprehensive-analysis-and-recommendations-zdnet/"><u>Top-Ranking Windows VPN Services: Comprehensive Analysis & Recommendations - ZDNet</u></a></li>
 </ul></div>
 

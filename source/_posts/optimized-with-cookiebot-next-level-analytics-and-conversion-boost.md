@@ -1,7 +1,7 @@
 ---
 title: "Optimized With Cookiebot: Next-Level Analytics & Conversion Boost"
-date: 2024-09-25T05:01:03.206Z
-updated: 2024-09-28T07:46:08.566Z
+date: 2024-10-01T06:41:49.676Z
+updated: 2024-10-02T22:21:03.298Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/46220d4e5de752c9f9121bc5fe5314f52ef333630dc70248125ef90566a42a71.jpg
@@ -38,10 +38,10 @@ Avant l’OCR, il fallait taper manuellement le texte pour saisir les données d
 ![](https://static1.abbyy.com/abbyycommedia/37740/ds-66-ocr-idp-image-1b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Comment cela fonctionne-t-il
@@ -63,18 +63,18 @@ Les données extraites sont ensuite comparées à un ensemble de modèles et de 
 
 Parmi les exemples habituels d’utilisation de l’OCR, il y a l’usage qu’en font des entreprises pour faciliter leur conformité au droit civil et au droit du travail, en convertissant de grandes quantités de documents papier et numériques en formats accessibles et interrogeables ; les cabinets juridiques qui convertissent des contrats papier en formats numériques, modifiables et interrogeables pour l’eDiscovery (investigations en ligne) ainsi que pour l’analyse de données ; les entreprises de santé qui transfèrent les dossiers des patients dans leurs systèmes informatiques pour être en conformité avec la norme HIPAA ; les bibliothèques et les archives qui conservent des documents historiques en format numérique. Tout cela permet aux employés d’une structure donnée d’effectuer leurs différentes tâches quotidiennes liées à des documents de façon efficace, aux développeurs de logiciels de créer des services de contenu, des archives numériques, des systèmes de gestion des documents (DMS), des solutions ECM (pour la gestion des contenus dans l’entreprise), et bien d’autres.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Qu’est-ce que l’IDP ?
 
 [Le traitement intelligent des documents](https://tools.techidaily.com/abbyy/products/) **(IDP) permet de traiter directement les documents en capturant, extrayant et traitant automatiquement les données contenues dans les documents de l’entreprise,**  et ce pour quasiment n’importe quel processus, dans n’importe quel secteur d’activité.
 
 ![](https://static1.abbyy.com/abbyycommedia/37779/ds-122-how-idp-works-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Comment cela fonctionne-t-il 
 
@@ -85,13 +85,6 @@ L’IDP utilise des modèles de machine learning pour classer les documents en d
 Grâce au recours au traitement du langage naturel (NLP), cette technologie est également capable d’interpréter le contexte des informations qu’elle lit. Par exemple, est-ce que le mot « jaguar » fait référence à un gros chat ou à une voiture ? Ou bien le mot « Rose » fait-il référence à une personne ou à une fleur ? Grâce au NLP, un niveau sans précédent de reconnaissance des données non structurées est atteint et les données sont identifiées et extraites ; cela fonctionne comme un cerveau humain, s’adaptant rapidement à l’évolution des données entrantes et générant les meilleurs résultats possibles. Ce niveau de pointe de la technologie est appelé automatisation intelligente ou hyper automatisation.
 
 Cette [plateforme IDP](https://tools.techidaily.com/abbyy/products/) peut être facilement intégrée à toute une série de différents systèmes de gestion comme ERP ou CRM. Grâce aux nouvelles plateformes low-code / no-code, les « citizen developers » peuvent déployer la technologie IDP en quelques jours, sans avoir besoin d’une importante assistance, ni d’une importante maintenance informatique côté client.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Avantages de l’IDP
 
@@ -126,19 +119,6 @@ Par exemple, il peut lire une facture, en extraire le contenu pour le comparer a
 | **Technologie**                  | Amélioration de l’image, Détection des objets, OCR / ICR                                                                                                                                                                                                                                     | Classification Machine Learning intense Machine Learning rapide Règles d’extraction Segmentation Reconnaissance nominative des entités (NER) Traitement du langage naturel (NLP)                                                                                                                                                                    |
 | **Exemples-types d’utilisation** | Met à disposition un texte lisible par les machines comme base pour : la conversion en PDF et l’archivage numérique / la recherche eDiscovery et la recherche de pointe / les techniques scientifiques numériques et l’analyse de données avec le traitement intelligent des documents (IDP) | Automatisation de tout processus métier centré sur les documents : automatisation de la comptabilité fournisseur, onboarding client / KYC, traitement des prêts, automatisation des documents de transport et de logistique, traitement des sinistres dans l’assurance                                                                              |
 
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Exemples de l’OCR et de l’IDP dans les processus métier
 
 #### Traitement des factures
@@ -166,16 +146,10 @@ Grâce au traitement intelligent des documents, vous pouvez éliminer les goulot
 [Demander une démo](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQ
@@ -218,6 +192,13 @@ Les technologies OCR (reconnaissance optique de caractères) et IDP (traitement 
 
 ![Slavena Hristova ABBYY](https://static4.abbyy.com/abbyycommedia/25713/slavenahristova-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Slavena Hristova
 
 Directrice du Marketing Produit, groupe Vantage chez ABBYY
@@ -225,6 +206,13 @@ Directrice du Marketing Produit, groupe Vantage chez ABBYY
 Slavena Hristova est Directrice du Marketing Produit pour Vantage chez ABBYY. Elle dirige le marketing produit international pour la ligne de produits ABBYY Vantage. Elle supervise l’ensemble du cycle de vie du produit, depuis l’analyse des demandes du marché à la stratégie de lancement sur le marché, en passant par les outils d’aide à la vente, ou le catalogue de formation pour les partenaires du réseau. Elle a plusieurs années d’expérience dans la gestion de produits et le marketing, dans les domaines de la reconnaissance de texte, de la gestion des informations et des documents.
 
 Connectez-vous avec Slavena sur [LinkedIn](https://www.linkedin.com/in/slavena-hristova-r%C3%B6%C3%9Fler-044aa05a/).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Aimer, partager ou reposter
 
@@ -251,22 +239,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-instagram-antithesis-video-reversal-explained/"><u>[New] 2024 Approved The Instagram Antithesis Video Reversal Explained</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-decoding-the-core-contrasts-between-youtube-and-dailymention-for-2024/"><u>[Updated] Decoding the Core Contrasts Between YouTube and DailyMention for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-blend-soundscape-into-ppt-narratives/"><u>2024 Approved Blend Soundscape Into PPT Narratives</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-20-dynamic-anime-openers-songs/"><u>2024 Approved Top 20 Dynamic Anime Openers' Songs</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-tecno-spark-20-proplus-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-facilitates-consistent-document-management-in-rochlings-sap-system-for-improved-efficiency-latest-industry-news/"><u>ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-showcases-artificial-intelligence-insights-at-the-2018-aiim-event/"><u>ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-auditing-initiatives-boosted-by-ab-inbevs-backing-of-forhumanity/"><u>AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-traffic-with-cookiebot-technology-smart-analytics-tools/"><u>Boosting Web Traffic with Cookiebot Technology - Smart Analytics Tools!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-battre-en-regle-les-plateformes-financieres-numeriques-natives-decouvrez-notre-verification-complete-par-abbyy/"><u>Comment Battre en Règle Les Plateformes Financières Numériques Natives : Découvrez Notre Vérification Complète Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-for-seamless-customer-experience-tracking/"><u>Cookiebot-Driven Insights for Seamless Customer Experience Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-leading-ai-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Leading AI Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-unleash-the-power-of-automated-conversions/"><u>Cookiebot-Enhanced: Unleash the Power of Automated Conversions</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/easy-audio-conversion-solution-save-videos-and-sound-from-any-source-as-high-quality-mp3-wav-or-mp4-files/"><u>Easy Audio Conversion Solution: Save Videos & Sound From Any Source as High-Quality MP3, WAV, or MP4 Files</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/easy-fixes-how-to-recover-forgotten-icloud-password-on-your-apple-iphone-6s-plus-by-drfone-ios/"><u>Easy Fixes How To Recover Forgotten iCloud Password On your Apple iPhone 6s Plus</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/easy-fixes-how-to-recover-forgotten-icloud-password-on-your-apple-iphone-x-by-drfone-ios/"><u>Easy Fixes How To Recover Forgotten iCloud Password On your Apple iPhone X</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-clearing-up-tiktok-problems-on-android-and-iphone-quickly/"><u>In 2024, Clearing up TikTok Problems on Android & iPhone Quickly</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-best-chuckle-inducing-edits-on-mobile-platforms-for-2024/"><u>[New] Best Chuckle-Inducing Edits on Mobile Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevate-your-youtube-channel-perfecting-video-scriptwriting-skills/"><u>[New] In 2024, Elevate Your YouTube Channel Perfecting Video Scriptwriting Skills</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-6-pro-rated-gopro-head-straps-and-mastering-usage/"><u>[Updated] Top 6 Pro-Rated GoPro Head Straps & Mastering Usage</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-mastering-mobile-uploads-ios-guide-for-youtube-sharing/"><u>2024 Approved Mastering Mobile Uploads IOS Guide for YouTube Sharing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/movavimp3au/"><u>利用Movavi的服務，不用付費即可簡易地MP3至AU格式轉換-網路上進行</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-dominates-2022-spark-matrix-rankings-by-quadrant-knowledge-solutions-for-advanced-document-analysis/"><u>ABBYY Dominates 2022 SPARK Matrix Rankings by Quadrant Knowledge Solutions for Advanced Document Analysis</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312901263-abbyy-finereader-14/"><u>ABBYY FineReader 14 - 職場向けの文書ワークフローを一新する先進技術</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-leadership-in-customer-excellence-meet-larysa-lototska/"><u>ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyyocr/"><u>ABBYY組み込みOCR採用：東芝テックの新シリーズ印刷機</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-asteriaflexicapture-cloud/"><u>ABBYYブログで紹介! ASTERIAとFlexiCapture Cloudに対応した高度な画面分析テンプレート - 最新技術の解説</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312889342-cookiebot-enabled-optimize-your-site-with-advanced-analytics/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Analytics!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-motorola-moto-g04-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Motorola Moto G04 Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-share-mac-to-apple-iphone-14-plus-drfone-by-drfone-ios/"><u>In 2024, How to Screen Share Mac to Apple iPhone 14 Plus? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/navigating-gadget-innovations-with-toms-reviews-and-guides/"><u>Navigating Gadget Innovations with Tom's Reviews and Guides</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/perfecting-selectivity-enable-checkbox-file-option-in-win11/"><u>Perfecting Selectivity: Enable Checkbox File Option in Win11</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/understanding-the-complexities-in-organizational-process-management-lessons-from-the-abbyy-blog/"><u>Understanding The Complexities in Organizational Process Management – Lessons From the ABBYY Blog</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-web-analytics-and-performance/"><u>Utilizing Cookiebot Technology for Optimized Web Analytics & Performance</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/vereinheitlichte-buchhalterlosungen-mit-iguana-und-abbyy-fur-verbesserte-kreditorenverwaltung-and-geschaftsprozesse/"><u>Vereinheitlichte Buchhalterlösungen Mit IGuana Und ABBYY Für Verbesserte Kreditorenverwaltung & Geschäftsprozesse</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/vonage-is-it-leading-the-pack-in-current-voip-services/"><u>Vonage: Is It Leading the Pack in Current VoIP Services?</u></a></li>
 </ul></div>
 

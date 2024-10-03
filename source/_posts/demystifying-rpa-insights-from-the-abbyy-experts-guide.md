@@ -1,7 +1,7 @@
 ---
 title: "Demystifying RPA: Insights From the ABBYY Expert's Guide"
-date: 2024-09-24T23:35:09.856Z
-updated: 2024-09-27T18:28:49.948Z
+date: 2024-09-27T05:18:42.290Z
+updated: 2024-10-02T22:56:12.504Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f74f161f0523579dd71e4de3d10404ac967ce66d01905429c873797c52e328b9.jpg
@@ -22,10 +22,16 @@ April 19, 2018
 All the rave these days is around artificial intelligence (AI) as the technology continues to shake up the C-suite while gaining a seat at the table. For C-suite executives however, robotic process automation (RPA) is panning out as the most exciting tool in their digital transformation toolbox. With new compliance regulations looming large, organizations need RPA to help unlock the hidden value in both structured and unstructured documents. Highly regulated industries that control large volume of data and continuously strive for improvement stand to gain most from cognitive automation, which brings intelligence to RPA.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What is RPA?
@@ -55,19 +61,19 @@ This blog is an abridged version of an article (The Impact of RPA on GDPR) that 
 ![Anthony Macciola ABBYY](https://static4.abbyy.com/abbyycommedia/25717/anthonymacciola-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Anthony Macciola
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -133,15 +139,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-the-cinematic-revolution-exploring-the-best-shots-and-lighting-tips-24-edition-for-2024/"><u>[New] The Cinematic Revolution Exploring the Best Shots & Lighting Tips - '24 Edition for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-navigating-next-gen-storage-the-ultimate-five/"><u>2024 Approved Navigating Next-Gen Storage The Ultimate Five</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/abbyy-enhances-enterprise-solutions-through-appians-exclusive-value-added-services-platform/"><u>ABBYY Enhances Enterprise Solutions Through Appian's Exclusive Value-Added Services Platform</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-elevate-your-sites-user-experience/"><u>Cookiebot-Enabled Analytics: Elevate Your Site's User Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-user-experience-enhancement/"><u>Cookiebot-Enabled User Experience Enhancement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-cutting-edge-analytics/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Cutting-Edge Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-drive-better-conversions-with-smart-traffic/"><u>Cookiebot-Enhanced: Drive Better Conversions with Smart Traffic</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-galaxy-s24plus-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Galaxy S24+</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-unraveling-youtubes-viewer-metrics-a-deeper-look/"><u>In 2024, Unraveling YouTube's Viewer Metrics A Deeper Look</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-nokia-c22-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Nokia C22 Device</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-breaking-down-instagrams-timeframe-per-video/"><u>[New] Breaking Down Instagram's Timeframe Per-Video</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-breaking-down-advanced-photographic-modes-for-enhanced-results/"><u>[Updated] 2024 Approved Breaking Down Advanced Photographic Modes for Enhanced Results</u></a></li>
+<li><a href="https://apple-account.techidaily.com/a-step-by-step-guide-to-finding-your-apple-id-on-your-iphone-7-plus-by-drfone-ios/"><u>A Step-by-Step Guide to Finding Your Apple ID On Your iPhone 7 Plus</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/comment-battre-en-regle-les-plateformes-financieres-numeriques-natives-decouvrez-notre-verification-complete-par-abbyy/"><u>Comment Battre en Règle Les Plateformes Financières Numériques Natives : Découvrez Notre Vérification Complète Par ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-for-seamless-customer-experience-tracking/"><u>Cookiebot-Driven Insights for Seamless Customer Experience Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-leading-ai-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Leading AI Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-unleash-the-power-of-automated-conversions/"><u>Cookiebot-Enhanced: Unleash the Power of Automated Conversions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-unleashing-advanced-tracking-solutions-for-your-websites-success/"><u>Cookiebot: Unleashing Advanced Tracking Solutions for Your Website's Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/data-driven-personalization-through-smart-analytics-solutions/"><u>Data-Driven Personalization Through Smart Analytics Solutions</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-tecno-spark-10c-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/hack-your-webcam-efficient-recording-techniques-for-2024/"><u>Hack Your Webcam Efficient Recording Techniques for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/honor-x50iplus-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor X50i+ Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-apple-iphone-7-plus-drfone-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/learn-how-to-lock-stolen-your-iphone-se-properly-drfone-by-drfone-ios/"><u>Learn How To Lock Stolen Your iPhone SE Properly | Dr.fone</u></a></li>
 </ul></div>
 

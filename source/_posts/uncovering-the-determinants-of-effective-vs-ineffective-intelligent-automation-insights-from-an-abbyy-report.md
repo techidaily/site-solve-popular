@@ -1,7 +1,7 @@
 ---
 title: Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report
-date: 2024-09-14T20:09:54.741Z
-updated: 2024-09-18T16:51:45.545Z
+date: 2024-10-01T19:45:50.886Z
+updated: 2024-10-03T00:07:00.648Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c381619f8aafcfb0f80b6508563d2271437d8649f2f0442bcc2c7a6fb3d30ee1.jpg
@@ -64,6 +64,13 @@ _Bruce Orcutt, Senior Vice President, Product Marketing at ABBYY_
 
 This research was conducted by Sapio Research in March 2022 on behalf of ABBYY. The survey was conducted among 1,208 IT decision makers across the UK, US, France, Germany, and Japan on where businesses have invested in automation projects, why they have adopted technologies, and how behavior has impacted the success of projects.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### About ABBYY
 
 ABBYY powers intelligent automation. We reimagine the way people work and how companies accelerate business by delivering the intelligence that fuels automation platforms. Our solutions transform enterprise data and empower you with the insights you need to work smarter and faster. 
@@ -74,9 +81,23 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Gina Ray, APR
 
@@ -99,12 +120,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-on-screen-recording-assistant/"><u>[New] On-Screen Recording Assistant</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-collaborative-venture-with-apponfly-elevating-document-processing-solutions/"><u>ABBYY Unveils New Collaborative Venture with AppOnFly: Elevating Document Processing Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automate-your-leads-with-cookiebot-enabled-solutions/"><u>Automate Your Leads with Cookiebot-Enabled Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automated-customer-engagement-with-cookiebot-technology/"><u>Automated Customer Engagement with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-traffic-with-cookiebot-powerful-site-engagement-tools/"><u>Boost Traffic with Cookiebot - Powerful Site Engagement Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-engagement-with-cookiebot-technology-for-tailored-content-delivery/"><u>Boosting Engagement with Cookiebot Technology for Tailored Content Delivery</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/combining-power-of-abbyy-with-alteryx-for-enhanced-data-management-and-process-automation-solutions/"><u>Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions</u></a></li>
+<li><a href="https://article-helps.techidaily.com/converting-graphics-to-iconic-messages-a-complete-tutorial-for-chat-apps/"><u>Converting Graphics to Iconic Messages A Complete Tutorial for Chat Apps</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-analytics-unleashing-website-personalization-and-targeting/"><u>Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-personalization-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Driven Personalization: Enhance User Experience with Smart Tracking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-pronunciation-guide-for-beginners/"><u>French Pronunciation Guide For Beginners</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/hps-latest-laptop-showcase-the-trailblazing-omnibook-x-defined-by-its-impressive-snapdragon-x-chip-and-extended-battery-durability/"><u>HP's Latest Laptop Showcase: The Trailblazing OmniBook X, Defined by Its Impressive Snapdragon X Chip and Extended Battery Durability</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-best-fareless-cam-stream-and-snipper-pro/"><u>In 2024, Best Fareless Cam Stream & Snipper Pro</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/the-ultimate-guide-to-free-flv-video-editing/"><u>The Ultimate Guide to Free FLV Video Editing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-tier-business-data-haven-selection-for-2024/"><u>Top-Tier Business Data Haven Selection for 2024</u></a></li>
+</ul></div>
 

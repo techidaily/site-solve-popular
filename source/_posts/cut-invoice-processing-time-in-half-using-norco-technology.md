@@ -1,7 +1,7 @@
 ---
 title: Cut Invoice Processing Time in Half Using Norco Technology
-date: 2024-09-26T05:42:10.609Z
-updated: 2024-09-27T17:51:11.066Z
+date: 2024-10-02T00:38:48.891Z
+updated: 2024-10-02T19:51:16.309Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80de444cb408ef81f4728e2850b723591d8016d7f4cd61445fe263111407c51f.jpg
@@ -23,13 +23,6 @@ Cutting data entry labor in half has significant value for the members of Norco�
 
 Sandra Hollands, General Manager - ICT
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Challenge
 
 Norco was processing up to 300,000 invoices manually across two ERP systems each year. Invoices associated with a PO would be emailed to individual stores and head offices, summarizing goods shipped to different locations. After data entry, each location needed to send email approval to confirm goods have been received prior to vendor payment. Norco was looking for an automated solution that met their requirements for:
@@ -39,6 +32,13 @@ Norco was processing up to 300,000 invoices manually across two ERP systems each
 * An easy-to-use and cost-effective solution
 * Integration with their ERPs and other systems
 * Flexibility to process documents beyond invoices
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution
 
@@ -51,10 +51,10 @@ They now have a complete audit trail of the information flowing between systems.
 The flexibility of ABBYY IDP makes it easy to use to streamline additional back-end processes. 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Value
@@ -70,18 +70,18 @@ The flexibility of ABBYY IDP makes it easy to use to streamline additional back-
 
 ![FC_1](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/flexicapture/fc_1.jpg?h=392&iar=0&w=696)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### ABBYY Solutions for Accounts Payable Automation
 
 [Learn more](https://tools.techidaily.com/abbyy/products/)
 
 ![overview image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image.jpg?h=800&iar=0&w=1392)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### PDF Version
 
@@ -90,10 +90,10 @@ The flexibility of ABBYY IDP makes it easy to use to streamline additional back-
 ![laptop mug](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/laptop-mug.jpg?h=836&iar=0&w=1486)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -115,19 +115,18 @@ The flexibility of ABBYY IDP makes it easy to use to streamline additional back-
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-convert-fb-footage-fast-free-720p-1080p-to-mp4-conversion/"><u>[New] Convert FB Footage Fast - Free 720P, 1080P to MP4 Conversion</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-winning-titles-and-tags-for-your-youtube-videos/"><u>[New] In 2024, Crafting Winning Titles & Tags for Your YouTube Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-channel-charm-with-cost-free-visual-aids/"><u>[Updated] 2024 Approved Channel Charm with Cost-Free Visual Aids</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iuoajoodhplusocuoocvplusodqplusodleocqeodvoodoos9noaikoobruwwgumwgowutuodquocueodidrkv53pmbrjgrvjgqjgrjg7zjgplkuk3lv4pjgajjgzfjgzjg4hjgqfjg4pjgqjg6rjgrnjg4j1/"><u>「デジタルフォーム作成の専門家リスト:保険セクターを中心としたチェックリストガイド」</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/apple-iphone-7-screen-mirroring-you-must-know-drfone-by-drfone-ios/"><u>Apple iPhone 7 Screen Mirroring You Must Know | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-online-experience-through-cookiebot-driven-analytics/"><u>Enhancing Online Experience Through Cookiebot-Driven Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-through-cookiebot-technology/"><u>Enhancing Website Analytics Through Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-enhanced-digital-presence-with-cookiebot-integration-bespoke-online-growth-tools/"><u>Experience Enhanced Digital Presence with Cookiebot Integration | Bespoke Online Growth Tools</u></a></li>
-<li><a href="https://video-capture.techidaily.com/exploring-ice-cream-screen-recorder-technology/"><u>Exploring Ice Cream Screen Recorder Technology</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Oppo Reno 8T 5G | Dr.fone</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/how-to-download-liveleak-movies-as-mp4avi-files-efficiently-on-your-pc-or-mac/"><u>How to Download LiveLeak Movies as MP4/AVI Files Efficiently on Your PC or Mac</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-with-ocr-convert-pdfs-and-jpgs-using-finereader/"><u>IPhone Document Scanning with OCR: Convert PDFs & JPGs Using FineReader</u></a></li>
-<li><a href="https://driver-error.techidaily.com/mastering-bluetooth-shutdown-on-windows-10/"><u>Mastering Bluetooth Shutdown on Windows 10</u></a></li>
-<li><a href="https://network-issues.techidaily.com/quickfix-guide-your-definitive-solution-to-fixed-up-zooms/"><u>QuickFix Guide: Your Definitive Solution to Fixed-Up Zooms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/lawless-offline-viewing-your-guide-to-mobile-video-downloads-for-idevices/"><u>[New] Flawless Offline Viewing Your Guide to Mobile Video Downloads for iDevices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-cutting-edge-the-top-8-digital-photomixer/"><u>[Updated] Cutting-Edge The Top 8 Digital Photomixer</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-unlock-your-boost-mobile-apple-iphone-15-pro-before-the-plan-expires-by-drfone-ios/"><u>In 2024, Unlock Your Boost Mobile Apple iPhone 15 Pro Before the Plan Expires</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mastering-chronos-shifts-using-phantoms-time-reversed-footage-for-2024/"><u>Mastering Chronos Shifts Using Phantom's Time-Reversed Footage for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/maximizing-page-visibility-a-guide-to-advanced-seo-techniques/"><u>Maximizing Page Visibility: A Guide to Advanced SEO Techniques</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-mastering-silence-techniques-for-eliminating-sibilance-in-recordings-for-2024/"><u>New Mastering Silence Techniques for Eliminating Sibilance in Recordings for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimize-with-cookiebot-advanced-tools-for-superior-web-engagement-and-personalization/"><u>Optimize With Cookiebot: Advanced Tools for Superior Web Engagement and Personalization</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-enhancing-your-sites-visibility/"><u>Optimized with Cookiebot Technology: Enhancing Your Site's Visibility</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-the-latest-from-cookiebot-enhance-your-websites-analytics-today/"><u>Optimized with the Latest From Cookiebot: Enhance Your Website's Analytics Today!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimizing-microsoft-sharepoint-workflows-with-cutting-edge-ocr-capabilities-from-abbyy-experts/"><u>Optimizing Microsoft SharePoint Workflows with Cutting-Edge OCR Capabilities From ABBYY Experts</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimizing-web-experiences-with-advanced-cookiebot-technology/"><u>Optimizing Web Experiences with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://driver-install.techidaily.com/refresh-wireless-network-adapter-support-in-windows-11-updates/"><u>Refresh Wireless Network Adapter Support in Windows 11 Updates</u></a></li>
 </ul></div>
 

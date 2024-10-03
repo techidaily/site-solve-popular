@@ -1,7 +1,7 @@
 ---
 title: How ABBYY's Smart Data Extraction Is Reshaping the Future of Service Businesses
-date: 2024-09-13T17:19:40.330Z
-updated: 2024-09-18T19:15:31.753Z
+date: 2024-09-29T11:43:17.197Z
+updated: 2024-10-03T05:32:05.109Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d0cb748bcb0f62a12329bda108fa11c6c1e0878f52106a0e40a69c79938a6a30.jpg
@@ -29,6 +29,13 @@ Intelligent capture replaces manual capture with fully-automated conversion of d
 * Classification to identify the type of document, based on its content and format
 * Text analytics to extract specific data elements from the document required for the business process
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Intelligent Capture and Digital Transformation
 
 Digital transformation is a fundamental shift of business models and activities onto digital platforms, and requires rethinking and retooling an organization’s end-to-end business processes. Not just impacting internal workers, digital transformation can only occur through significant enablement of customer channels. This requires comprehensive self-service capabilities, where customers create and complete transactions without intervention from workers inside the organization.
@@ -42,6 +49,19 @@ Here are some of the key benefits that intelligent capture brings to digital tra
 * Knowledge workers can focus on problem resolution instead of processing routine transactions
 * Customers can be offered additional goods and services during their transaction based on content analytics
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Application of Intelligent Capture in the service industry
 
 There are many possible uses for intelligent capture in service industries:
@@ -51,10 +71,10 @@ There are many possible uses for intelligent capture in service industries:
 * **Employee onboarding**. When a new employee starts with a company, they may have to submit many documents, such as identity and tax forms. Intelligent capture allows them to photograph or submit these using their mobile device, then automatically extract the information and upload it to the HR system.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Points to consider before implementation
@@ -67,13 +87,6 @@ However, you also need to ensure that the downstream business processes are as a
 
 ![Sandy Kemsley](https://static4.abbyy.com/abbyycommedia/25712/sandykemsley-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Sandy Kemsley
 
 Process Automation Industry Analyst at Column 2
@@ -83,6 +96,13 @@ Sandy is an independent analyst and systems architect, specializing in digital p
 During her career of more than 20 years, she has started and run successful product and service companies, including a desktop workflow and document management product company from 1988-90, and a 40-person services firm specializing in BPM and e-commerce from 1990-2000\. During 2000-2001, she worked for FileNet (now IBM) as Director of eBusiness Evangelism during the launch of their eProcess BPM product, and I was a featured speaker on BPM and its impact on business at conferences and customer sites in 14 countries during that time.
 
 Since 2001, she has returned to private consulting practice as a BPM/DPA architect, performing engagements for financial services and insurance organizations across North America, and as an analyst working with BPM/DPA vendors. In addition to writing her blog, she often speaks at conferences about BPM/DPA and digital transformation, and is a contributing author to books on social BPM and adaptive case management. Sandy is the recipient of the 2016 Marvin L. Manheim award for significant contributions in the field of workflow, and the 2019 winner of the Workflow Management Coalition’s award for Outstanding Business Transformation Consultant.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -145,5 +165,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-the-ultimate-guide-to-using-snapchat-in-biz/"><u>[New] 2024 Approved The Ultimate Guide to Using Snapchat in Biz</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-best-companions-premium-mac-programs-for-videography/"><u>[New] In 2024, Best Companions Premium Mac Programs for Videography</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-photo-and-video-flair-the-art-of-distorted-messages/"><u>[New] Photo & Video Flair The Art of Distorted Messages</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-free-online-image-perfection-at-your-fingertips-for-2024/"><u>[Updated] Free Online Image Perfection at Your Fingertips for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-text-animation-presets/"><u>Best Text Animation Presets</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-data-capture-efficiency-transitioning-to-the-advanced-abbyy-flexicapture-cloud-solution/"><u>Enhance Your Data Capture Efficiency: Transitioning to the Advanced ABBYY FlexiCapture Cloud Solution</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/how-to-triumph-in-mobile-user-onboarding-your-essential-e-book-resource/"><u>How to Triumph in Mobile User Onboarding - Your Essential E-Book Resource</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-a-stepwise-approach-to-youtube-caption-addition/"><u>In 2024, A Stepwise Approach to YouTube Caption Addition</u></a></li>
+<li><a href="https://extra-information.techidaily.com/navigating-hd-blackouts-on-facebook-live-tips-for-chromesafari-users/"><u>Navigating HD Blackouts on Facebook Live Tips for Chrome/Safari Users</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/neoml-discover-the-power-of-abbyys-enrichit-and-open-source-software-capabilities/"><u>NeoML: Discover the Power of ABBYY's Enrichit and Open-Source Software Capabilities</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-advanced-traffic-analysis-from-cookiebot/"><u>Optimized with Advanced Traffic Analysis From Cookiebot</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/streamline-e-commerce-success-the-power-of-advanced-cookiebot-solutions/"><u>Streamline E-Commerce Success: The Power of Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unveiling-process-intelligence-insights-into-advanced-data-analytics/"><u>Unveiling Process Intelligence: Insights Into Advanced Data Analytics</u></a></li>
+</ul></div>
 

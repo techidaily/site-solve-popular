@@ -1,7 +1,7 @@
 ---
 title: USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management
-date: 2024-09-24T01:49:48.108Z
-updated: 2024-09-27T22:52:09.440Z
+date: 2024-09-26T08:27:52.169Z
+updated: 2024-10-02T19:38:02.429Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3269c858221e8ab75b91d65fc2cbdc3bf0d972fb510d01ae54b3ad8d22470d02.jpg
@@ -19,13 +19,6 @@ Healthcare | Document Management
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## USC Cancer Surveillance Program Automates Medical Records Processing and Ensures Compliance
 
 Healthcare | Document Management 
@@ -35,6 +28,13 @@ Healthcare | Document Management
 #### Customer Overview
 
 ![University of Southern California](https://static2.abbyy.com/abbyycommedia/15296/usc_logo.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name                  | University of Southern California                  |
 | --------------------- | -------------------------------------------------- |
@@ -121,25 +121,32 @@ The solution has also eliminated the need to outsource imaging to costly vendors
 [![FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Healthcare](https://static2.abbyy.com/abbyycommedia/14360/10-healthcare.jpg)](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static5.abbyy.com/abbyycommedia/15552/3-usc-2.png)](https://static4.abbyy.com/abbyycommedia/5380/fc%5Fusc%5Fhealthcare%5F2015.pdf "PDF version") [PDF version](https://static4.abbyy.com/abbyycommedia/5380/fc%5Fusc%5Fhealthcare%5F2015.pdf "PDF version") 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [read more](https://static4.abbyy.com/abbyycommedia/5380/fc%5Fusc%5Fhealthcare%5F2015.pdf "PDF version") 
@@ -151,13 +158,6 @@ Share  True ?  : ""
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -180,21 +180,16 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-pinnacle-photo-the-leading-6-4k-dslr-cameras-of-the-year/"><u>[New] Pinnacle Photo The Leading 6 4K DSLR Cameras of the Year</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-ultimate-collection-the-best-11-multi-perspective-cams-for-2024/"><u>[New] Ultimate Collection The Best 11 Multi-Perspective Cams for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-advanced-ai-voice-to-text-apps/"><u>[Updated] Advanced AI Voice to Text Apps</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-contemplating-if-video-selfies-need-validation-on-instagram/"><u>2024 Approved Contemplating if Video Selfies Need Validation On Instagram</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/boost-your-job-application-a-guide-to-building-a-persuasive-cover-letter-with-chatgpt/"><u>Boost Your Job Application: A Guide to Building a Persuasive Cover Letter with ChatGPT</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-your-site-with-cookiebots-powerful-analytics/"><u>Boost Your Site with Cookiebot's Powerful Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-your-traffic-with-cookiebots-powerful-tracking-technology/"><u>Boost Your Traffic with Cookiebot's Powerful Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/breaking-down-abbyy-omzets-successful-year-of-2abbreviation-benelux-metrics-reflect-a-23-upsurge-in-2019/"><u>Breaking Down ABBYY OMZET's Successful Year of 2Abbreviation; Benelux Metrics Reflect a 23% Upsurge in 2019</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-unlocking-advanced-audience-targeting-features/"><u>Cookiebot-Driven Insights: Unlocking Advanced Audience Targeting Features</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience-with-tailored-content/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience with Tailored Content</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-site-enhance-your-digital-marketing-efforts/"><u>Cookiebot-Enabled Site: Enhance Your Digital Marketing Efforts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-boost-your-online-traffic-and-engagement/"><u>Cookiebot-Enabled Sites: Boost Your Online Traffic and Engagement</u></a></li>
-<li><a href="https://extra-information.techidaily.com/enhance-streaming-quality-non-xplit-choices/"><u>Enhance Streaming Quality Non-Xplit Choices</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/freedom-in-memories-your-instagrams-savior-for-2024/"><u>Freedom in Memories Your Instagram's Savior for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-realme-v30t-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Realme V30T to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/navigating-the-windows-10-cli-mastering-file-and-folder-deletion-commands/"><u>Navigating the Windows 10 CLI: Mastering File and Folder Deletion Commands</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-top-15-snapchat-post-tips-for-max-impact-for-2024/"><u>[New] Top 15 Snapchat Post Tips for Max Impact for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/t-ratio-fundamentals-for-effective-youtube-content-creation-for-2024/"><u>Aspect Ratio Fundamentals for Effective YouTube Content Creation for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/buy-factorypro-the-ultimate-ipad-video-editor-safe-and-free-return-policy/"><u>Buy FactoryPro: The Ultimate iPad Video Editor - Safe and Free Return Policy</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-enhancing-online-personalization/"><u>Driven by Cookiebot: Enhancing Online Personalization</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-with-innovative-cookiebot-technology/"><u>Driven with Innovative Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-online-experience-with-cookiebot-power-solutions-for-superior-user-targeting-and-retention/"><u>Elevate Online Experience with Cookiebot Power Solutions for Superior User Targeting and Retention</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/embracing-innovative-mobility-learn-with-us-on-the-abbyy-blog/"><u>Embracing Innovative Mobility - Learn with Us on the ABBYY Blog</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-realme-v30-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Realme V30 Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/identifying-and-correcting-issues-preventing-the-launch-of-your-farming-simulator-2022/"><u>Identifying & Correcting Issues Preventing the Launch of Your Farming Simulator 2022</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/navigating-tiktok-lives-as-a-virtual-attendee/"><u>Navigating TikTok Lives as a Virtual Attendee</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1726227946084-mpe-mp4-movavi/"><u>온라인에서 MPE를 무료 MP4로 변환하기: Movavi 가이드</u></a></li>
 </ul></div>
 

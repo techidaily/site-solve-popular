@@ -1,7 +1,7 @@
 ---
 title: Data-Driven Personalization Through Smart Analytics Solutions
-date: 2024-09-25T02:56:12.725Z
-updated: 2024-09-27T22:09:05.521Z
+date: 2024-09-29T21:22:32.890Z
+updated: 2024-10-02T22:27:59.018Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/25bf753c78130a921149c781a28200c1963f284bc6d075e275272bdd4200ee96.jpg
@@ -15,18 +15,25 @@ thumbnail: https://thmb.techidaily.com/25bf753c78130a921149c781a28200c1963f284bc
 
 English
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Featuring
 
 ![18 Reggietwigg 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
 ![18 Reggietwigg 198X198](https://static4.abbyy.com/abbyycommedia/25486/18-reggietwigg-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Reginald J. Twigg, Ph.D.
 
@@ -39,6 +46,13 @@ Director of Product Marketing, Digital Enterprise, **ABBYY**
 ### Jacob Morgan
 
 Senior Analyst, **Forrester**
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Overview
 
@@ -53,10 +67,16 @@ The challenges that banks are facing are staggering— overwhelming exceptions i
 Watch now to learn how to overcome today’s crisis and prepare for tomorrow.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch now
@@ -65,13 +85,6 @@ Watch now to learn how to overcome today’s crisis and prepare for tomorrow.
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Thank you, enjoy your webinar!
 
@@ -85,13 +98,6 @@ All personal information collected via this method is under full scope of all pr
 <!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -158,19 +164,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-in-2024-the-seventh-line-up-of-all-weather-action-cams/"><u>[New] In 2024, The Seventh Line-Up of All-Weather Action Cams</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-9-windows-11-secrets-for-a-streamlined-user-interface-experience/"><u>[Updated] 9 Windows 11 Secrets for a Streamlined User Interface Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-dominates-2022-spark-matrix-rankings-by-quadrant-knowledge-solutions-for-advanced-document-analysis/"><u>ABBYY Dominates 2022 SPARK Matrix Rankings by Quadrant Knowledge Solutions for Advanced Document Analysis</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-leadership-in-customer-excellence-meet-larysa-lototska/"><u>ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyyocr/"><u>ABBYY組み込みOCR採用：東芝テックの新シリーズ印刷機</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-strategy-shifts-global-economys-influence-explored-in-comprehensive-intelligence-automation-overview/"><u>AI Strategy Shifts: Global Economy's Influence Explored in Comprehensive Intelligence Automation Overview</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversions-using-the-latest-cookiebot-technology-features/"><u>Boost Conversions Using the Latest Cookiebot Technology Features</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-un-logiciel-dabbyy-optimise-le-travail-des-cabinets-davocats-londoniens-pour-la-gestion-efficace-de-procedures-essentielles/"><u>Comment Un Logiciel D'ABBYY Optimise Le Travail Des Cabinets D’avocats Londoniens Pour La Gestion Efficace De Procédures Essentielles</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-how-tseries-benefits-from-youtube-for-2024/"><u>Deciphering How TSeries Benefits From YouTube for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/formatos-avanzados-de-contenido-visual-para-mejorar-la-presencia-en-youtube-descubre-con-movavi/"><u>Formatos Avanzados De Contenido Visual Para Mejorar La Presencia en YouTube - Descubre Con Movavi</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-the-complete-nvidia-screenshot-user-manual/"><u>In 2024, The Complete NVIDIA Screenshot User Manual</u></a></li>
-<li><a href="https://driver-install.techidaily.com/new-release-nvidia-drivers-update-gtx-970-and-windows-11/"><u>New Release: Nvidia Drivers Update - GTX 970 & Windows 11</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/simple-steps-to-update-drivers-in-windows-7-8-and-10/"><u>Simple Steps to Update Drivers in Windows 7, 8 & 10</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/step-by-step-solution-for-required-dvdcd-driver-not-found-mistake-on-your-pc/"><u>Step-by-Step Solution for 'Required DVD/CD Driver Not Found' Mistake on Your PC</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-proven-steps-to-distance-friendly-podcasting-excellence-for-2024/"><u>[New] Proven Steps to Distance-Friendly Podcasting Excellence for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-tips-for-meme-magic-with-kinemaster-for-2024/"><u>[Updated] Top Tips for Meme Magic with KineMaster for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-and-blue-prism/"><u>ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-facilitates-consistent-document-management-in-rochlings-sap-system-for-improved-efficiency-latest-industry-news/"><u>ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-showcases-artificial-intelligence-insights-at-the-2018-aiim-event/"><u>ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-auditing-initiatives-boosted-by-ab-inbevs-backing-of-forhumanity/"><u>AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-web-traffic-with-cookiebot-technology-smart-analytics-tools/"><u>Boosting Web Traffic with Cookiebot Technology - Smart Analytics Tools!</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-samsung-galaxy-f04-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Samsung Galaxy F04 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Oppo Find N3? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-honor-magic-5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/innovative-connectivity-windows-11-and-mobile-devices-unite/"><u>Innovative Connectivity: Windows 11 & Mobile Devices Unite</u></a></li>
+<li><a href="https://driver-install.techidaily.com/lenovo-y470-usb-device-compatibility-guide/"><u>Lenovo Y470 USB Device Compatibility Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sound-on-a-stick-the-affordable-trucker-focused-hearing-device-selection/"><u>Sound on a Stick: The Affordable, Trucker-Focused Hearing Device Selection</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/universitat-zurich-optimiert-prufungen-mit-abbyy-flexicapture-korrektursystem/"><u>Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unlock-deeper-understanding-with-abbyys-guide-on-elevated-bi-and-process-mining-tactics-ebook/"><u>Unlock Deeper Understanding with ABBYY's Guide on Elevated BI & Process Mining Tactics [eBook]</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-finding-the-best-dog-noise-samples-for-audio-creators/"><u>Updated In 2024, Finding the Best Dog Noise Samples for Audio Creators</u></a></li>
 </ul></div>
 

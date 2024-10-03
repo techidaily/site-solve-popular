@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Business Results: Three Key Strategies with AI & Smart Automation"
-date: 2024-09-24T02:17:05.487Z
-updated: 2024-09-28T04:40:13.445Z
+date: 2024-09-28T02:20:31.892Z
+updated: 2024-10-02T16:53:34.316Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4116c8792bda40459f2d1e2a1bd6affbce6e7196ef5949783c79461a680de11c.jpg
@@ -32,42 +32,28 @@ I had the privilege of participating in three roundtable discussions that explor
 * Democratization of AI
 * Three Recommendations to Fully Benefit From the Business Value of AI Technologies
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Digital Trust and Identity Management: Adoptions trends and challenges associated with digital identity
 
 COVID-19 accelerated the trend toward AI-powered chatbots, virtual financial assistants, and touchless customer onboarding, using AI-based biometric identity verification. This trend is confirmed in research by Cap Gemini i, which shows that 78% of consumers surveyed are planning to increase use of AI technologies, including digital identity management, in their interactions with financial services organizations. Biometric identity verification is more secure and removes onboarding friction, as evidenced in a Payments.com survey ii, which revealed that nearly 75% of US consumers “rely on their memory to recall passwords,” and 90% use the same password across many sites.
 
 ![AI in Business - woman on phone](https://static1.abbyy.com/abbyycommedia/33513/customer-experience-new.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 These inherent benefits notwithstanding, the roundtable discussion raised a number of challenges. Chief among them is [continued consumer distrust of AI technologies](https://www.biometricupdate.com/201906/survey-shows-biometrics-not-trusted-or-understood-by-majority-of-consumers) and how their ubiquitous nature impacts privacy and security rights, with 30% of survey respondents indicating that they would be more comfortable sharing their biometric information if their financial service providers provided more transparency in explaining how their information is collected, managed, and secured. Another challenge discussed was the development and adoption of international standards iii for digital identity management and the need for collaboration iv among diverse stakeholders, including regulators. Consumers also need to have better control over their digital identities.
 
 Today, digital identity management is typically a centralized process, which is prone to cyberattacks and to privacy breaches. There is momentum toward a more [decentralized digital identity management](https://venturebeat.com/2022/02/19/decentralized-identity-solutions-could-bring-true-ownership-and-security-to-gaming/) framework that gives consumers more control over their own digital identities without dependence on third-party service providers.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### AI Governance and Regulatory Frameworks: AI governance best practices designed to minimize AI bias and engender consumer trust
 
 While, according to The OECD’s tracker on national AI policies, there are over 700 AI regulatory initiatives under development in over 60 countries, there are no legislatively mandated AI regulations in place. There are, however, voluntary codes of conduct and ethical AI principles developed by international standards organizations such as the Institute of Electrical and Electronic Engineers (“IEEE”) v and the National Institute of Standards and Technology (NIST) vi. However, the AI regulatory framework is rapidly evolving. AI regulation is inevitable, as evidenced by recent developments by the European Commission, Canadian Federal Government, US Federal Trade Commission (FTC), Consumer Financial Protection Bureau (CFPB), and The Federal Reserve Board. They are all flexing their regulatory muscles through their enforcement mechanisms to protect consumers against adverse impacts arising from the increased applications that may result in discriminatory outcomes, albeit, unintended. The bottom line is that implementation of AI governance best practices is no longer a nice to have initiative, but an imperative.
 
 [Learn more about ABBYY's guiding principles for fostering the development, productization, and marketing of trustworthy AI.](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Democratization of AI: How AI is rapidly proliferating from a highly technical domain of data scientists to line of business users
 
@@ -79,6 +65,13 @@ _Sean O'Brien_
 
 As Sean O’Brien ix, an academic at Yale Law School and the founder of Yale’s Privacy Lab, recently warned: “Low code can be like fast food: delivered quickly and in bright packaging, but bad for you, your community, and your ecosystem.” It is important that while no-code / low-code AI development delivers inherent efficiency improvements and time to value, its implementation must include comprehensive testing to ensure that it performs in accordance with initial design objectives, removes potential bias in the training data set, and is secure from adversarial AI attacks that can undermine AI algorithmic outcomes.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Three recommendations organizations may want to consider to fully benefit from the business value of AI technologies
 
 #### 1\. Take a data-driven approach 
@@ -88,10 +81,10 @@ A data-driven approach assists in determining where the applications of AI techn
 ![AI in Business - Whiteboard session with a group of people, one standing and four others sitting at table](https://static1.abbyy.com/abbyycommedia/33533/brainstorm-whiteboard-1-new.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 2\. Combine task mining and process mining 
@@ -129,6 +122,13 @@ ix ["Low Code: Satisfying Meal or Junk Food?" by Pam Baker | Information Week, 2
 [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Process Mining](https://tools.techidaily.com/abbyy/products/) 
 
 ![Andrew Pery ABBYY](https://static1.abbyy.com/abbyycommedia/25715/andrewpery-99x99.png)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Andrew Pery
 
@@ -201,18 +201,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-capturing-the-essence-of-your-facebook-live-spontaneity/"><u>[New] 2024 Approved Capturing the Essence of Your Facebook Live Spontaneity</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-jumpstart-high-res-webcam-filming-for-amazing-results/"><u>[New] In 2024, Jumpstart High-Res WebCam Filming for Amazing Results</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-captureconductor-review-a-dive-into-the-best-recording-software/"><u>2024 Approved CaptureConductor Review A Dive Into the Best Recording Software</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-snap-complete-web-panel/"><u>2024 Approved Snap Complete Web Panel</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-collaborative-venture-with-apponfly-elevating-document-processing-solutions/"><u>ABBYY Unveils New Collaborative Venture with AppOnFly: Elevating Document Processing Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automate-your-leads-with-cookiebot-enabled-solutions/"><u>Automate Your Leads with Cookiebot-Enabled Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automated-customer-engagement-with-cookiebot-technology/"><u>Automated Customer Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://fox-access.techidaily.com/complete-critique-gopro-hero4-silver-sensor/"><u>Complete Critique GoPro HERO4 Silver Sensor</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-realme-narzo-60-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP from Realme Narzo 60 5G?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-vivo-y100t-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Vivo Y100t Phone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/transformez-la-lecture-de-vos-recus-en-temps-reel-grace-a-lia-abbyy-sphere-numerique/"><u>Transformez La Lecture De Vos Reçus en Temps Réel Grâce À L'IA : ABBYY Sphère Numérique</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ultimate-guide-cleaning-and-formatting-data-for-efficient-ai-model-training/"><u>Ultimate Guide: Cleaning and Formatting Data for Efficient AI Model Training</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/x-audio-capture-pc-version/"><u>X-Audio Capture PC Version</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-crystalline-speed-highlighting-moments-from-the-coldest-games-on-earth-for-2024/"><u>[New] Crystalline Speed Highlighting Moments From the Coldest Games on Earth for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-effortless-online-guide-youtube-video-to-gif-magic-no-download-for-2024/"><u>[New] Effortless Online Guide YouTube Video to GIF Magic (No Download) for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-bridging-fb-videos-to-home-screens-a-prospect/"><u>[New] In 2024, Bridging FB Videos to Home Screens A Prospect</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-sync-your-storytelling-iphone-captures-words-and-pictures/"><u>[New] Sync Your Storytelling IPhone Captures Words and Pictures</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724313274377-abbyy/"><u>ABBYYチェッカリスト - 金融市場で勝ち抜くための強化戦略</u></a></li>
+<li><a href="https://win-forum.techidaily.com/advanced-techniques-to-delete-secure-files-and-directories-in-modern-windows-os/"><u>Advanced Techniques to Delete Secure Files and Directories in Modern Windows OS</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Vivo X100 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-honor-90-pro-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Honor 90 Pro to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-the-artisans-approach-integrating-typefaces-in-ae/"><u>In 2024, The Artisan's Approach Integrating Typefaces in AE</u></a></li>
+<li><a href="https://tools.techidaily.com/aiseesoft/mobiesync/"><u>MobieSync – The Best Android iOS Transfer Tool</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-in-2024-top-4-morgan-freeman-voice-generator-tools-for-voice-cloning/"><u>New In 2024, Top 4 Morgan Freeman Voice Generator Tools for Voice Cloning</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/redefining-accounts-payable-the-synergy-of-automation-and-content-knowledge/"><u>Redefining Accounts Payable: The Synergy of Automation and Content Knowledge</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/robert-youngjohns-steering-vision-as-abbyys-esteemed-board-chair/"><u>Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
 </ul></div>
 

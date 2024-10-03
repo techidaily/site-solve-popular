@@ -1,7 +1,7 @@
 ---
 title: "Stratégies D'Optimisation De La Chaîne Logistique: Comment Les Données Facilitent Le Réinventer Grâce À ABBYY"
-date: 2024-09-26T03:06:14.249Z
-updated: 2024-09-28T00:36:20.478Z
+date: 2024-09-28T05:28:09.923Z
+updated: 2024-10-02T23:53:43.266Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c91ef4997081e65543be4ed1e14a92e0b1b11ea3fa4aac3ca09a237127556c70.png
@@ -27,26 +27,26 @@ Directrice Commerciale, **ABBYY**
 
 ![Dimitrimanoussis 198X198](https://static3.abbyy.com/abbyycommedia/35563/dimitrimanoussis-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Dimitri Manoussis
 
 Expert Automobile Supply Chain
 
 ![Raphaelsavy 198X198](https://static2.abbyy.com/abbyycommedia/31059/alteryx-logo-forcards-96x29.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Raphaelsavy 198X198](https://static2.abbyy.com/abbyycommedia/35564/raphaelsavy-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Raphaël Savy
@@ -56,22 +56,15 @@ Southern Europe Director, **Alteryx**
 ![Eric De Riedmatten 198X198](https://static5.abbyy.com/abbyycommedia/31772/eric-de-riedmatten-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Eric de Riedmatten
 
 Journaliste économique
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Description
 
@@ -85,32 +78,39 @@ Organisée dans le cadre d’Agora Live Supply Chain, cette table ronde réunit 
 * Optimisation de la Supply Chain au travers de la découverte et l’analyse des processus
 * Réduction de la complexité et de l’incertitude au travers de nouvelles technologies pour une bonne gestion de la Supply Chain
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Regardez maintenant
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Merci et bon webinaire !
 
 [![Agora Supply Chain Fr 750X421](https://static5.abbyy.com/abbyycommedia/31773/agora-supply-chain-fr-750x421.jpg)](https://www.youtube.com/watch?v=oNQxCtTklSM) 
 
-![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -177,21 +177,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-improve-conference-efficiency-webcam-assisted-powerpoint/"><u>[Updated] Improve Conference Efficiency Webcam-Assisted PowerPoint</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-sweeping-videography-iphone-techniques-for-facebook/"><u>[Updated] In 2024, Sweeping Videography IPhone Techniques for Facebook</u></a></li>
-<li><a href="https://program-issues.techidaily.com/battlefield-v-pc-crash-issues-solutions-found/"><u>Battlefield V PC Crash Issues - Solutions Found!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/discovering-abbyy-teams-of-athletes-more-than-just-their-profession/"><u>Discovering ABBYY Teams of Athletes: More than Just Their Profession</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/educational-edge-5-innovative-ways-for-students-to-harness-the-power-of-chatgpt/"><u>Educational Edge: 5 Innovative Ways for Students to Harness the Power of ChatGPT</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effortless-bill-settlement-with-abbyy-enabled-mobile-banking-application/"><u>Effortless Bill Settlement with ABBYY-Enabled Mobile Banking Application</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effortless-business-automation-harnessing-the-power-of-zero-coding-ai-tools/"><u>Effortless Business Automation: Harnessing the Power of Zero-Coding AI Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-digital-marketing-with-the-cookiebot-advantage/"><u>Enhance Your Digital Marketing with the Cookiebot Advantage</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-site-performance-with-the-help-of-cookiebot-technology/"><u>Enhanced Site Performance with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-business-results-three-key-strategies-with-ai-and-smart-automation/"><u>Enhancing Business Results: Three Key Strategies with AI & Smart Automation</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-advanced-audience-engagement-using-smart-tracking-cookiebot-technology/"><u>Experience Advanced Audience Engagement Using Smart Tracking - Cookiebot Technology</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Motorola Edge 2023 | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-query-unlimited-access-to-media-sharing-in-text-based-apps/"><u>In 2024, Query Unlimited Access to Media Sharing in Text-Based Apps</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/sound-savings-guide-youtubers-selection-of-affordable-mics-for-2024/"><u>Sound Savings Guide Youtuber's Selection of Affordable Mics for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/ultimate-guide-repairing-damaged-video-game-data-for-your-computer/"><u>Ultimate Guide: Repairing Damaged Video Game Data for Your Computer</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-ultimate-selection-exclusive-picks-for-your-pixel-6-safety-gear/"><u>Unveiling the Ultimate Selection: Exclusive Picks for Your Pixel 6 Safety Gear</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-comprehensive-list-of-free-video-intros/"><u>[New] Comprehensive List of Free Video Intros</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-real-time-voice-to-action-no-price-tag-for-2024/"><u>[New] Real-Time Voice to Action, No Price Tag for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-obs-studio-guide-5-key-edits-for-flawless-results/"><u>2024 Approved OBS Studio Guide 5 Key Edits for Flawless Results</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unlock-hidden-features-of-the-youtube-creator-space/"><u>2024 Approved Unlock Hidden Features of the YouTube Creator Space</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-backs-humanity-project-in-pioneering-unbiased-ai-oversight-tools/"><u>ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-finereader-wesentliches-tool-in-der-dokumentenverarbeitung-und-analyse/"><u>ABBYY FineReader - Wesentliches Tool in Der Dokumentenverarbeitung Und Analyse</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312941231-abbyy-flexicapture/"><u>ABBYY FlexiCapture の正式日本市場発売開始</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-industry-pioneer-in-process-analytics-and-intelligent-data-extraction/"><u>ABBYY: Industry Pioneer in Process Analytics and Intelligent Data Extraction</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-open-source-neoml-bibliothek-erlebt-einen-sprung-nach-vorn-mit-python-integration-und-beispielloser-geschwindigkeit/"><u>ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/exclusive-guide-365-days-of-no-cost-text-files/"><u>Exclusive Guide 365 Days of No-Cost Text Files</u></a></li>
+<li><a href="https://win-blog.techidaily.com/master-the-fix-for-stable-play-in-forza-horizon-4-on-pc-after-crash-woes-ended/"><u>Master the Fix for Stable Play in Forza Horizon 4 on PC After Crash Woes Ended</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/switching-file-extensions-for-your-mac-snapshots/"><u>Switching File Extensions for Your Mac Snapshots</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transform-sluggish-to-speedy-on-android-vids-for-2024/"><u>Transform Sluggish to Speedy on Android Vids for 2024</u></a></li>
 </ul></div>
 

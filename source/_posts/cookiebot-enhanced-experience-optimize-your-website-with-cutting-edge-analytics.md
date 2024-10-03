@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced Experience: Optimize Your Website with Cutting-Edge Analytics"
-date: 2024-09-27T03:14:16.338Z
-updated: 2024-09-27T20:30:28.325Z
+date: 2024-09-27T02:28:08.285Z
+updated: 2024-10-03T02:26:46.964Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/445d6c97ace4ef05d63cde4f33374d4b0783e76d1e91d61e1ddb527be75674b2.jpg
@@ -38,22 +38,15 @@ COVID-19 accelerated the trend toward AI-powered chatbots, virtual financial ass
 
 ![AI in Business - woman on phone](https://static1.abbyy.com/abbyycommedia/33513/customer-experience-new.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 These inherent benefits notwithstanding, the roundtable discussion raised a number of challenges. Chief among them is [continued consumer distrust of AI technologies](https://www.biometricupdate.com/201906/survey-shows-biometrics-not-trusted-or-understood-by-majority-of-consumers) and how their ubiquitous nature impacts privacy and security rights, with 30% of survey respondents indicating that they would be more comfortable sharing their biometric information if their financial service providers provided more transparency in explaining how their information is collected, managed, and secured. Another challenge discussed was the development and adoption of international standards iii for digital identity management and the need for collaboration iv among diverse stakeholders, including regulators. Consumers also need to have better control over their digital identities.
 
 Today, digital identity management is typically a centralized process, which is prone to cyberattacks and to privacy breaches. There is momentum toward a more [decentralized digital identity management](https://venturebeat.com/2022/02/19/decentralized-identity-solutions-could-bring-true-ownership-and-security-to-gaming/) framework that gives consumers more control over their own digital identities without dependence on third-party service providers.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### AI Governance and Regulatory Frameworks: AI governance best practices designed to minimize AI bias and engender consumer trust
@@ -73,10 +66,16 @@ _Sean O'Brien_
 As Sean O’Brien ix, an academic at Yale Law School and the founder of Yale’s Privacy Lab, recently warned: “Low code can be like fast food: delivered quickly and in bright packaging, but bad for you, your community, and your ecosystem.” It is important that while no-code / low-code AI development delivers inherent efficiency improvements and time to value, its implementation must include comprehensive testing to ensure that it performs in accordance with initial design objectives, removes potential bias in the training data set, and is secure from adversarial AI attacks that can undermine AI algorithmic outcomes.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Three recommendations organizations may want to consider to fully benefit from the business value of AI technologies
@@ -86,6 +85,13 @@ As Sean O’Brien ix, an academic at Yale Law School and the founder of Yale’s
 A data-driven approach assists in determining where the applications of AI technologies may have the greatest impact before proceeding with implementation. Is it to improve customer engagement, or to realize operational efficiencies, or to mitigate compliance risks? Each of these business drivers require an understanding of how such processes execute. For example, customer onboarding processes are case-based with a high degree of variability of process execution. Here, [task mining](https://www.abbyy.com/media/32520/brochure-timeline-taskmining-en.pdf?itm%5Fsource=corpblog-en) enables organizations to capture interactions associated with onboarding processes and can surface the time customer-facing staff spend onboarding tasks. It shows how escalations and exceptions are handled and identifies variations in process execution roadblocks and their root causes. Based on such data-driven analysis, organizations can make informed business decisions as to the impact associated with implementation of AI-based customer onboarding solutions.
 
 ![AI in Business - Whiteboard session with a group of people, one standing and four others sitting at table](https://static1.abbyy.com/abbyycommedia/33533/brainstorm-whiteboard-1-new.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 2\. Combine task mining and process mining 
 
@@ -124,10 +130,10 @@ ix ["Low Code: Satisfying Meal or Junk Food?" by Pam Baker | Information Week, 2
 ![Andrew Pery ABBYY](https://static1.abbyy.com/abbyycommedia/25715/andrewpery-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Andrew Pery
@@ -201,24 +207,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-leading-the-charge-top-10-gaming-bloggers-on-tiktok/"><u>[New] Leading The Charge Top 10 Gaming Bloggers on TikTok</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-strategic-approaches-broadcasting-live-sports-with-precision-for-2024/"><u>[New] Strategic Approaches Broadcasting Live Sports with Precision for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-streamlined-recording-experience-with-macbooks-webcam/"><u>[New] Streamlined Recording Experience with MacBook's Webcam</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-androids-finest-screen-capture-software-top-5/"><u>[Updated] Android's Finest Screen Capture Software, Top 5</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-tegakiflexicaptureocr-abbyy/"><u>「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-backs-humanity-project-in-pioneering-unbiased-ai-oversight-tools/"><u>ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-finereader-wesentliches-tool-in-der-dokumentenverarbeitung-und-analyse/"><u>ABBYY FineReader - Wesentliches Tool in Der Dokumentenverarbeitung Und Analyse</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-industry-pioneer-in-process-analytics-and-intelligent-data-extraction/"><u>ABBYY: Industry Pioneer in Process Analytics and Intelligent Data Extraction</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-open-source-neoml-bibliothek-erlebt-einen-sprung-nach-vorn-mit-python-integration-und-beispielloser-geschwindigkeit/"><u>ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-perspective-on-synergizing-with-ai-for-enhanced-team-performance/"><u>ABBYY's Perspective on Synergizing with AI for Enhanced Team Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/advanced-insights-exploring-beyond-business-analytics-and-process-analysis-ebook-by-abbyy/"><u>Advanced Insights: Exploring Beyond Business Analytics and Process Analysis eBook by ABBYY</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ai-revolution-which-professions-might-be-abolished/"><u>AI Revolution: Which Professions Might Be Abolished?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581598414-all-the-best-ways-to-say-thank-you-in-greek/"><u>All The Best Ways To Say Thank You In Greek</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatische-dokumentverarbeitung-in-wilmington-mit-abbyy-software/"><u>Automatische Dokumentverarbeitung in Wilmington Mit ABBYY Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversion-rates-using-innovative-cookiebot-tracking-solutions/"><u>Boost Conversion Rates Using Innovative Cookiebot Tracking Solutions</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-tecno-pova-6-pro-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Tecno Pova 6 Pro 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-lava-yuva-2-pro-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Lava Yuva 2 Pro to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-m14-5g-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy M14 5G Phone FRP Lock</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/obs-audio-glitches-demystified-a-step-by-step-guide-for-resolving-non-working-microphones/"><u>OBS Audio Glitches Demystified: A Step-by-Step Guide for Resolving Non-Working Microphones</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-essentials-of-combining-apple-music-and-videos/"><u>[New] 2024 Approved The Essentials of Combining Apple Music & Videos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-framing-the-perfect-frame-talking-head-shot-essentials/"><u>[New] In 2024, Framing the Perfect Frame Talking-Head Shot Essentials</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-instagrams-sideways-scenario-a-visual-glitch-examined-for-2024/"><u>[New] Instagram's Sideways Scenario A Visual Glitch Examined for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-fuels-our-sites-intelligence-discover-the-smart-technology-driving-us/"><u>Cookiebot Fuels Our Site's Intelligence: Discover the Smart Technology Driving Us!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-analytics-unleashing-website-personalization-and-targeting/"><u>Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-personalization-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Driven Personalization: Enhance User Experience with Smart Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-solutions/"><u>Cookiebot-Enabled Analytics Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-website-with-advanced-tracking/"><u>Cookiebot-Enabled: Optimize Your Website with Advanced Tracking</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-13-mini-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 13 mini without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-tecno-phantom-v-flip-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Tecno Phantom V Flip Device</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/m06-audio-unveiling-pioneering-bluetooth-connectivity/"><u>M06 Audio Unveiling: Pioneering Bluetooth Connectivity</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/virtual-ventures-discovering-the-best-in-action-adventure-classics-top-10-for-2024/"><u>Virtual Ventures – Discovering the Best in Action-Adventure Classics (Top 10) for 2024</u></a></li>
 </ul></div>
 

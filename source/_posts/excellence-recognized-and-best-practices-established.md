@@ -1,7 +1,7 @@
 ---
 title: Excellence Recognized and Best Practices Established!
-date: 2024-09-26T21:05:59.119Z
-updated: 2024-09-27T18:25:27.601Z
+date: 2024-09-26T10:31:13.801Z
+updated: 2024-10-02T16:00:00.537Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bf1aa2624ef83ca4793045372b8a4d65e582b534521041d47a00805c4d5db19c.jpg
@@ -14,10 +14,16 @@ Bericht
 ## ABBYY im Gartner® Magic Quadrant™ for Process Mining-Platforms 2024 als Marktführer benannt
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY wurde für seine Timeline-Process-Intelligence-Plattform nach den Kriterien Vollständigkeit der Vision und Umsetzungskompetenz ausgezeichnet. 
@@ -25,10 +31,10 @@ Bericht
 ![Figure_1_Magic_Quadrant_for_Process_Mining](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/figure_1_magic_quadrant_for_process_mining.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Process-Mining-Plattformen](https://tools.techidaily.com/abbyy/products/) helfen Unternehmen, intelligente, datenbasierte Entscheidungen schneller zu treffen, um operative Ziele zu erreichen und Wettbewerbsvorteile zu erzielen. Der Gartner® Magic Quadrant™ for Process Mining Platforms untersucht die aktuellen Marktkräfte und die führenden Anbieter von Process-Mining-Plattformen. 
@@ -54,10 +60,16 @@ GARTNER is a registered trademark and service mark, and MAGIC QUADRANT and PEER 
 Gartner Peer Insights content consists of the opinions of individual end users based on their own experiences with the vendors listed on the platform, should not be construed as statements of fact, nor do they represent the views of Gartner or its affiliates. Gartner does not endorse any vendor, product or service depicted in this content nor makes any warranties, expressed or implied, with respect to this content, about its accuracy or completeness, including any warranties of merchantability or fitness for a particular purpose."
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY. 
@@ -131,17 +143,21 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-secrets-to-uncovering-missed-confidential-images/"><u>[Updated] In 2024, Secrets to Uncovering Missed Confidential Images</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/2020abbyy7/"><u>2020年の世界的な成功事例：ABBYYで展開したプロセスインテリジェンスストーリートップ7</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbeyy-news-update-viele-europaer-verbringen-die-meiste-zeit-mit-abgelehnten-tatigkeiten-im-arbeitsalltag-eine-weite-sichtbarkeit/"><u>ABBEYY News Update: Viele Europäer Verbringen Die Meiste Zeit Mit Abgelehnten Tätigkeiten Im Arbeitsalltag - Eine Weite Sichtbarkeit</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-invoice-processing-software-boosts-operational-efficiency-in-the-energy-sector/"><u>ABBYY's Invoice Processing Software Boosts Operational Efficiency in the Energy Sector</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-europe-201/"><u>AI Europe 201</u></a></li>
-<li><a href="https://win-dash.techidaily.com/ensure-performance-nvidia-940mx-driver-downloads-available/"><u>Ensure Performance: NVIDIA 940MX Driver Downloads Available</u></a></li>
-<li><a href="https://driver-error.techidaily.com/expert-tips-to-overcome-nvidia-gtx-950-code-43-errors-on-a-windows-10-system-step-by-step/"><u>Expert Tips to Overcome NVIDIA GTX 950 Code 43 Errors on a Windows 10 System [Step-by-Step]</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/exploring-pc-gear-with-tom-in-depth-reviews-and-insights-on-hardware/"><u>Exploring PC Gear with Tom: In-Depth Reviews & Insights on Hardware</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-root-access-move-a-game-changer-for-oculus-go-community/"><u>Facebook's Root Access Move: A Game Changer for Oculus Go Community</u></a></li>
-<li><a href="https://facebook.techidaily.com/friendship-reborn-or-reimagined-through-facebook/"><u>Friendship Reborn or Reimagined Through Facebook?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Oppo A59 5G | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/prime-array-of-unplugged-digital-pastimes-for-2024/"><u>Prime Array of Unplugged Digital Pastimes for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-studio-optimization-device-agnostic-approaches/"><u>[New] Youtube Studio Optimization Device-Agnostic Approaches</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/update-instant-results-with-the-latest-version-of-samsung-m2070-driver-software/"><u>[Update] Instant Results with the Latest Version of Samsung M2070 Driver Software</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-guide-to-efficiently-retrieve-youtubes-srt-files/"><u>[Updated] Guide to Efficiently Retrieve YouTube's SRT Files</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-backs-humanity-project-in-pioneering-unbiased-ai-oversight-tools/"><u>ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1724312941231-abbyy-flexicapture/"><u>ABBYY FlexiCapture の正式日本市場発売開始</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/how-to-triumph-in-mobile-user-onboarding-your-essential-e-book-resource/"><u>How to Triumph in Mobile User Onboarding - Your Essential E-Book Resource</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-televisions-as-a-window-to-facebook-world-vids/"><u>In 2024, Televisions as a Window to Facebook World Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-results-selective-lite-android-options/"><u>Instant Results: Selective Lite Android Options</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/neoml-discover-the-power-of-abbyys-enrichit-and-open-source-software-capabilities/"><u>NeoML: Discover the Power of ABBYY's Enrichit and Open-Source Software Capabilities</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-advanced-traffic-analysis-from-cookiebot/"><u>Optimized with Advanced Traffic Analysis From Cookiebot</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Lava Blaze Curve 5G? | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/streamline-e-commerce-success-the-power-of-advanced-cookiebot-solutions/"><u>Streamline E-Commerce Success: The Power of Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-art-of-balancing-human-creativity-and-ai-assistance-in-writing/"><u>The Art of Balancing Human Creativity and AI Assistance in Writing</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/tomtom-gopro-alternative-review-the-action-cam-2023-for-2024/"><u>TomTom GoPro Alternative Review - The Action Cam 2023 for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unveiling-process-intelligence-insights-into-advanced-data-analytics/"><u>Unveiling Process Intelligence: Insights Into Advanced Data Analytics</u></a></li>
 </ul></div>
 

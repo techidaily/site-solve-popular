@@ -1,7 +1,7 @@
 ---
 title: "The Future of Digital Transformation: Insights From the 2018 ABBYY Technology Summit on Content Intelligence"
-date: 2024-09-24T23:54:22.954Z
-updated: 2024-09-28T06:48:09.281Z
+date: 2024-10-01T01:13:43.881Z
+updated: 2024-10-02T20:59:16.481Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8c53194608f8a775260017278f44b51f37022a75b1d4965ad23230242f3d564c.jpg
@@ -58,24 +58,31 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/2024-approved-discover-8-exceptional-tablets-that-outperform-filmoras-features/"><u>2024 Approved Discover 8 Exceptional Tablets That Outperform Filmora's Features</u></a></li>
-<li><a href="https://win-dash.techidaily.com/comprehensive-guide-fresh-install-and-upgrade-of-huion-graphics-tablet-software-for-windows-users/"><u>Comprehensive Guide: Fresh Install and Upgrade of Huion Graphics Tablet Software for Windows Users</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-fake-snapchat-location-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Vivo Y100t | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-galaxy-m34-5g-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Galaxy M34 5G?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-accelerated-steps-to-rearrange-youtube-music-ordering/"><u>In 2024, Accelerated Steps to Rearrange YouTube Music Ordering</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-audience-connection-mastering-the-art-of-viewpoint-based-youtube-reaction-vids-2-pov-method/"><u>In 2024, Audience Connection – Mastering the Art of Viewpoint-Based YouTube Reaction Vids (2 POV Method)</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-tecno-pova-5-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Tecno Pova 5 FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/robert-youngjohns-steering-vision-as-abbyys-esteemed-board-chair/"><u>Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sonos-wireless-experience-audiophiles-dream-going-mobile/"><u>Sonos Wireless Experience: Audiophile's Dream Going Mobile</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nhance-listening-pleasure-constructing-a-youtube-playlist-for-2024/"><u>[New] Enhance Listening Pleasure Constructing a YouTube Playlist for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-thriving-online-a-strategy-guide-for-building-youtube-links/"><u>[New] In 2024, Thriving Online A Strategy Guide for Building YouTube Links</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-global-idp/"><u>ABBYY Global IDPトレンドの最新発表:成果報告書解説</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-presente-ses-innovantes-technologies-ia-pour-lextraction-de-donnees-au-salon-banque-and-innovation-evenement-cle-2018/"><u>ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-advanced-language-translator-powered-by-ntt-docomo-features-ocr-for-multilingual-support/"><u>ABBYY's Advanced Language Translator - Powered by NTT DOCOMO, Features OCR for Multilingual Support</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-sdgs/"><u>ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-step-by-step-get-your-acer-router-up-and-running-with-a-free-driver-download/"><u>Easy Step-by-Step: Get Your Acer Router Up and Running with a Free Driver Download</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/free-best-drawing-apps-for-chromebook-for-2024/"><u>FREE Best Drawing Apps for Chromebook for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-restore-brightness-controls-on-a-non-responsive-windows-10-display/"><u>How to Restore Brightness Controls on a Non-Responsive Windows 10 Display</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-cost-effective-recording-devices-the-ultimate-list/"><u>In 2024, Cost-Effective Recording Devices The Ultimate List</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-vivo-y200-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Vivo Y200 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-samsung-galaxy-a05s-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Samsung Galaxy A05s Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-improved-online-traffic-and-user-interaction/"><u>Leverage Cookiebot Technology for Improved Online Traffic & User Interaction</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pro-cameras-who-wins-gopro-and-garmin-virb-comparison-for-2024/"><u>Pro Cameras, Who Wins? GoPro & Garmin VIRB Comparison for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-samsung-galaxy-xcover-6-pro-tactical-edition-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Samsung Galaxy XCover 6 Pro Tactical Edition FRP</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

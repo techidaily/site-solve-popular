@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Elevates Mariko Maeda to Leadership Role: President and Representative Director for Strengthening the Japanese Market Presence"
-date: 2024-09-24T18:05:13.343Z
-updated: 2024-09-28T07:26:59.087Z
+date: 2024-09-27T05:53:19.998Z
+updated: 2024-10-02T17:59:05.070Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf94f405ab42db14407ed62e05.jpg
@@ -32,10 +32,10 @@ Before joining ABBYY, Mariko Maeda had overseen the Japanese and Korean teams at
 \[1\] IDC Worldwide Intelligent Process Automation Software Forecast, 2021-2025; July 2021 #US48015622
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -49,10 +49,10 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Editorial Contact
@@ -60,10 +60,16 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -89,15 +95,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-prime-mkv-deck-for-pcandroid-users/"><u>[New] Prime MKV Deck for PC/Android Users</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-unblemished-visuals-buying-high-quality-images/"><u>[Updated] Unblemished Visuals Buying High-Quality Images</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1-best-manycam-alternatives-top-notch-live-streaming-tools-and-virtual-webcams/"><u>1. Best ManyCam Alternatives: Top-Notch Live Streaming Tools and Virtual Webcams</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-oppo-k11x-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Oppo K11x Activity | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-data-collection-with-the-help-of-cookiebot-technology/"><u>Enhanced Data Collection with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-with-cookiebot-technology/"><u>Enhancing Website Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-robotic-process-automation-for-efficient-logistics-exploring-the-power-of-abbyy-solutions/"><u>Harnessing Robotic Process Automation for Efficient Logistics: Exploring the Power of ABBYY Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-personalization-and-analytics/"><u>Harnessing the Power of Cookiebot for Advanced Site Personalization and Analytics</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mac-users-guide-mastering-the-art-of-using-chatgpt/"><u>Mac Users Guide: Mastering the Art of Using ChatGPT</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-and-technical-synergy-facebook-supports-rusts-ascendance/"><u>Social and Technical Synergy: Facebook Supports Rust's Ascendance</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-global-reach-12-video-live-stream-app/"><u>[New] In 2024, Global Reach 12 Video Live Stream App</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tweetvid-puller-iphone-app-for-easy-video-extraction/"><u>[Updated] 2024 Approved TweetVid Puller IPhone App for Easy Video Extraction</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-amplify-impact-strategies-for-instagram-video-waves-for-2024/"><u>[Updated] Amplify Impact Strategies for Instagram Video Waves for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-boosting-instagram-video-speed-onlinemobile-for-2024/"><u>[Updated] Boosting Instagram Video Speed Online/Mobile for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-best-10-ways-to-convert-youtube-to-mpeg/"><u>2024 Approved Best 10 Ways to Convert YouTube to MPEG</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-efficient-ways-to-save-ppt-slides/"><u>2024 Approved Efficient Ways to Save PPT Slides</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-solutions-enhanced-site-traffic-and-conversion/"><u>Cookiebot-Driven Solutions | Enhanced Site Traffic & Conversion</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-websites-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's Analytics & Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-boosting-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Boosting Your Site with Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-backbone-of-personalized-web-interactions/"><u>Cookiebot: The Backbone of Personalized Web Interactions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-efficient-and-smart-powering-behind-your-web-analytics/"><u>Cookiebot: The Efficient and Smart Powering Behind Your Web Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cut-invoice-processing-time-in-half-using-norco-technology/"><u>Cut Invoice Processing Time in Half Using Norco Technology</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-nokia-c110-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Nokia C110 to Another | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/overcoming-inconsistency-stop-obs-frame-loss-for-2024/"><u>Overcoming Inconsistency Stop OBS Frame Loss for 2024</u></a></li>
 </ul></div>
 

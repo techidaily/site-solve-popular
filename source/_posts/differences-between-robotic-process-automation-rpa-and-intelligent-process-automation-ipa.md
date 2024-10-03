@@ -1,7 +1,7 @@
 ---
 title: Differences Between Robotic Process Automation (RPA) and Intelligent Process Automation (IPA)
-date: 2024-09-24T01:00:23.743Z
-updated: 2024-09-28T07:29:01.264Z
+date: 2024-09-26T03:55:54.286Z
+updated: 2024-10-03T03:51:22.396Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6490fa2e8c158c917a608e37e654c53e5a410f7e37ed3b9237ae0e8dd67dcf2f.jpg
@@ -54,13 +54,6 @@ RPA is designed to automate repetitive, rule-based tasks. To do this, businesses
 
 The next step is to develop and train the bots using RPA tools, integrating them with the relevant systems to perform their tasks. Crucially, the bots are tested and validated before being deployed into the production environment. This makes sure they function correctly and efficiently. After they're deployed, the bots are monitored and optimized to keep them effective. This is an ongoing process that involves updates and performance enhancements as processes or systems change.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Benefits of RPA
 
 RPA offers several benefits that help to eliminate process inefficiencies within businesses. Some of the key advantages of adopting RPA technology are:
@@ -75,9 +68,23 @@ RPA offers several benefits that help to eliminate process inefficiencies within
 
 **![How Intelligent Process Automation Works](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/rpa-vs-ipa-2024-update/how-intelligent-process-automation-works.png)**
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Intelligent process automation, or [IPA](https://tools.techidaily.com/abbyy/products/), is an advanced form of automation. It combines AI technologies, such as intelligent document processing, process mining, task mining, machine learning, natural language processing, and advanced analytics with automation technologies such as RPA to streamline complex business processes and mimic intelligent human decision-making.**
 
 Unlike [RPA](https://tools.techidaily.com/abbyy/products/), which focuses on automating repetitive tasks, IPA specializes in complex processes that involve unstructured data, decision-making, and learning from data over time.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How it works 
 
@@ -105,10 +112,10 @@ IPA offers significant benefits by merging RPA's structured automation with adva
 * **Greater visibility and control:** Unlike RPA, IPA works with both structured and unstructured data. This gives businesses the ability to see and automate all their critical document-centric processes.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What’s the difference between RPA and IPA?
@@ -125,6 +132,19 @@ IPA extends the capabilities of RPA by combining it with AI technologies, such a
 
 IPA is more suitable than RPA for tasks that may need in-depth analysis, such as claims handling and or loan processing.
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### RPA vs. IPA
 
 | **RPA**                         | **IPA**                                          |                                                                                                                    |
@@ -134,9 +154,23 @@ IPA is more suitable than RPA for tasks that may need in-depth analysis, such as
 | **Process improvement**         | Automates repetitive tasks to improve efficiency | Optimizes complex processes to boost productivity, add visibility into real-time operations, and ensure compliance |
 | **Scalability**                 | Easily scaled for high-volume repetitive tasks   | Scales to handle more complex, dynamic operations                                                                  |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Examples of RPA and IPA in business processes
 
 Intelligent process automation (IPA) transforms business operations by enhancing efficiency and accuracy. Here are three examples of how RPA and IPA technologies are used in different industries.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### RPA in financial services
 
@@ -150,25 +184,11 @@ IPA can play a crucial role in reducing the manual tasks involved in [insurance]
 
 IPA also provides detailed insights into the operational performance of insurance processes. With this data, insurance businesses can identify further opportunities for process optimization.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### IPA in healthcare
 
 By leveraging IPA, [healthcare](https://tools.techidaily.com/abbyy/products/) providers can improve the quality and speed of patient care delivery. IPA automates processes such as patient registration, referral management, and claims processing, reducing the administrative burden on employees and facilitating efficient, accurate delivery of patient services.
 
 Healthcare institutions can also use IPA technology to improve the processes that drive healthcare delivery. Purpose-built AI solutions identify valuable areas for improvement and expedite the flow of information that improves patient outcomes and revenue cycle management. 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## RPA vs. IPA: Which is best for your business?
 
@@ -181,19 +201,6 @@ IPA advances the capabilities of RPA by combining it with advanced AI technologi
 With a low-code [IPA solution](https://tools.techidaily.com/abbyy/products/) like [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/), which offers intelligent document processing out of the box, you can easily start transforming your business operations. You'll be able to process up to 95 percent of your documents without human intervention, no matter their type, language or structure.
 
 [Request demo](https://tools.techidaily.com/abbyy/products/)
-
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Frequently asked questions
 
@@ -222,13 +229,6 @@ At ABBYY, we have over 35 years’ experience in delivering cutting-edge technol
 [Visit ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/) 
 
 ![Slavena Hristova ABBYY](https://static4.abbyy.com/abbyycommedia/25713/slavenahristova-99x99.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Slavena Hristova
 
@@ -297,20 +297,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-orchestrate-a-photo-symphony-for-artistic-expression-for-2024/"><u>[New] Orchestrate a Photo Symphony for Artistic Expression for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-art-of-audio-visual-storytelling-with-iphone/"><u>[New] The Art of Audio-Visual Storytelling with iPhone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-top-tier-video-openings-the-best-16-to-grow-your-audience/"><u>[Updated] In 2024, Top-Tier Video Openings The Best 16 to Grow Your Audience</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-virtual-evolution-dichotomy-metaverse-and-omniverse-compared/"><u>[Updated] The Virtual Evolution Dichotomy Metaverse & Omniverse Compared</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-transforming-spontaneitous-tunes-into-structured-youtube-playlists/"><u>[Updated] Transforming Spontaneitous Tunes Into Structured YouTube Playlists</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/expert-tips-for-resolving-dismissed-blue-screen-due-to-dxgmms2-error-in-windows-10/"><u>Expert Tips for Resolving [DISMISSED] Blue Screen Due to DxGmmS2 Error in Windows 10</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/exploring-the-proficiency-of-chatgpt-in-tackling-mathematical-questions/"><u>Exploring the Proficiency of ChatGPT in Tackling Mathematical Questions.</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-strategies-needed-adapting-trade-finance-for-emerging-market-hurdles/"><u>Innovative Strategies Needed: Adapting Trade Finance for Emerging Market Hurdles</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/integrity-and-ethics/"><u>Integrity and Ethics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/interactive-online-conference-expert-tips-and-strategies-for-streamlining-accounts-payable-operations/"><u>Interactive Online Conference: Expert Tips & Strategies for Streamlining Accounts Payable Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-cutting-edge-tracking-tools-for-enhanced-performance-and-engagement/"><u>Leveraging Cutting-Edge Tracking Tools for Enhanced Performance and Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-initial-paperwork-through-vantage-solutions/"><u>Mastering the Art of Initial Paperwork Through Vantage Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/navigating-privacy-laws-with-abbyys-gdpr-ready-data-processing-addendum/"><u>Navigating Privacy Laws with ABBYY's GDPR-Ready Data Processing Addendum</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-bots-boosting-your-sites-performance/"><u>Optimized with Automated Bots: Boosting Your Site's Performance</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-ranking-of-cable-modems/"><u>The Ultimate Ranking of Cable Modems</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-toptiktok-eats-10-famous-feast-fads/"><u>[New] 2024 Approved TopTiktok Eats 10 Famous Feast Fads</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-final-cut-pros-best-combo-of-10-vfx-plug-ins/"><u>[New] In 2024, Final Cut Pro's Best Combo of 10 VFX Plug-Ins</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-activating-built-in-recorders-on-mate-and-p-series-phones-mate-1020-p2010/"><u>[Updated] 2024 Approved Activating Built-In Recorders on Mate and P Series Phones (Mate 10/20; P20/10)</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-50plus-best-practices-in-video-text-design/"><u>[Updated] 50+ Best Practices in Video Text Design</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-a-beginners-guide-to-making-attractive-video-thumbnails-for-social-media-platforms/"><u>[Updated] A Beginner's Guide to Making Attractive Video Thumbnails for Social Media Platforms</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-gabrielle-lukianchuk-as-new-cmo-driving-company-expansion/"><u>ABBYY Welcomes Gabrielle Lukianchuk as New CMO, Driving Company Expansion</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyyabbyy-proof-of-identity/"><u>ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-productivity-key-strategies-for-your-center-of-excellence-with-abbyy-plus-blue-prism-live-session/"><u>Boosting Productivity - Key Strategies for Your Center of Excellence with ABBYY + Blue Prism Live Session</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/digital-twins-and-process-simulation-exploring-business-opportunity-expansion/"><u>Digital Twins and Process Simulation - Exploring Business Opportunity Expansion</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/emotional-intelligence/"><u>Emotional Intelligence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/munchen-nutzt-abbyy-fur-die-modernisierung-und-digitale-speicherung-von-baurechnungen/"><u>München Nutzt ABBYY Für Die Modernisierung Und Digitale Speicherung Von Baurechnungen</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/revolutionize-virtual-participation-with-top-10-free-recorder-software/"><u>Revolutionize Virtual Participation with Top 10 Free Recorder Software</u></a></li>
+<li><a href="https://driver-download.techidaily.com/speedy-internet-on-windows-how-to-install-updated-gigabit-ethernet-usb-3n-driver/"><u>Speedy Internet on Windows: How to Install Updated Gigabit Ethernet USB 3.n Driver</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-tecno-spark-go-2023-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Tecno Spark Go (2023) Device</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/troubleshoot-and-reinstall-ralink-drivers-a-complete-walkthrough-for-windows-systems/"><u>Troubleshoot and Reinstall Ralink Drivers: A Complete Walkthrough for Windows Systems</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/understanding-the-legal-framework-abbyys-cloud-product-terms-end-to-end-privacy-standards-and-gdpr-provisions-explained/"><u>Understanding the Legal Framework: ABBYY's Cloud Product Terms, End-to-End Privacy Standards & GDPR Provisions Explained</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unleash-dynamic-user-experiences-with-cookiebot-technology/"><u>Unleash Dynamic User Experiences with Cookiebot Technology</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Digital Twins and Process Simulation - Exploring Business Opportunity Expansion
-date: 2024-09-15T21:04:49.682Z
-updated: 2024-09-18T21:20:28.993Z
+date: 2024-09-30T16:10:56.843Z
+updated: 2024-10-02T22:21:52.052Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/58db6060726575b8629c11f7c48875e22b705d59d90ff0cb47cea54cfa62bb48.jpg
@@ -33,6 +33,13 @@ Denken Sie einmal an die komplizierte Welt der technischen Entwicklung – jedes
 
 Angesichts der Begeisterung für digitale Zwillinge in der heutigen Geschäftsprozesslandschaft ist es wichtig, dieses reiche Erbe zu erkennen und zu nutzen. Das Versprechen ist verlockend: Wenn Ingenieure die Dynamik eines Düsentriebwerks simulieren können, warum können Unternehmen dann nicht auch ihre Prozesse simulieren und „auf die Probe stellen“, um Kosten zu senken und Risiken zu minimieren? Genau wie ein statischer Entwurf eines Düsentriebwerks ohne Simulationen nur von begrenztem Nutzen ist, so schöpft auch ein digitaler Zwilling eines Geschäftsprozesses ohne integrierte Simulationsfunktionen sein Potenzial nicht voll aus.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Warum Prozesssimulation für die Verbesserung von Geschäftsprozessen wichtig ist 
 
 ##### Kosteneffizienz 
@@ -48,6 +55,26 @@ In the aerospace industry, a failed engine prototype could mean a loss of billio
 Digitale Zwillinge beschleunigen Innovationen in der Technik, indem sie die zeitaufwändige Phase des physischen Prototypings überflüssig machen. In ähnlicher Weise kann die Simulation bei Geschäftsprozessen Änderungen beschleunigen, indem sie mögliche Ergebnisse sofort aufzeigt. Dadurch werden langwierige Versuchszyklen verkürzt, und die Implementierungsteams können sich ganz auf die Prozessimplementierung konzentrieren, ohne nicht optimale Prozessentwürfe überarbeiten zu müssen. 
 
 ![process-simulation-image](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/realizing-promise-of-digital-twins-with-process-simulation/process-simulation-image-2024-03-05-23-51-33-401.png?h=477&w=848)
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Beispiele aus verschiedenen Branchen 
 
@@ -68,10 +95,10 @@ Eine Bank möchte ihr Kreditgenehmigungsverfahren beschleunigen. Nachdem der akt
 Ein Online-Händler möchte seinen Produktrückgabeprozess optimieren, um die Kundenzufriedenheit zu erhöhen. Durch die Simulation von Änderungen wie die Einführung von Sofortrückerstattungen, die Vereinfachung von Rücksendeetiketten oder die Bereitstellung von Abholservices lassen sich die Auswirkungen auf Kundenbindung, Betriebskosten und Bestandsverwaltung beurteilen. 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Prozesse auf dem Prüfstand 
@@ -139,5 +166,17 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-leading-free-console-reproduction-devices/"><u>[New] In 2024, Leading Free Console Reproduction Devices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-unlocking-your-potential-in-youtube-video-production-scripts/"><u>[Updated] In 2024, Unlocking Your Potential in YouTube Video Production Scripts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-enigma-of-missing-video-suggestions-in-your-feed/"><u>2024 Approved The Enigma of Missing Video Suggestions in Your Feed</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-online-performance-using-the-powerful-features-of-cookiebot-technology/"><u>Enhance Online Performance Using the Powerful Features of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-with-advanced-automation-powered-by-the-cutting-edge-cookiebot-technology/"><u>Enhanced with Advanced Automation: Powered by the Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/expanded-pdf-handling-in-latest-abbyys-finereader-version-14-for-improved-document-processing/"><u>Expanded PDF Handling in Latest ABBYY's FineReader Version 14 for Improved Document Processing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/experience-personalized-content-with-our-cookiebot-integration/"><u>Experience Personalized Content with Our Cookiebot Integration</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/cle-video-artist-audio-visual-choreography/"><u>Pinnacle Video Artist Audio-Visual Choreography</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-accessing-the-bios-in-windows-11-and-windows-7/"><u>Step-by-Step Guide: Accessing the BIOS in Windows 11 and Windows 7</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-tecno-spark-10-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Tecno Spark 10 5G FRP Bypass</u></a></li>
+</ul></div>
 

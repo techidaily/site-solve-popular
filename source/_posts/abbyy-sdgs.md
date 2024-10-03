@@ -1,7 +1,7 @@
 ---
 title: "ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み"
-date: 2024-09-26T16:40:55.676Z
-updated: 2024-09-28T05:13:20.703Z
+date: 2024-10-02T10:25:51.130Z
+updated: 2024-10-03T10:09:53.313Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7d954d5ef5beb31b578dcda4509d16e23f0ef0d1b79a76b01e4834ddb01328ea.jpg
@@ -26,10 +26,10 @@ thumbnail: https://thmb.techidaily.com/7d954d5ef5beb31b578dcda4509d16e23f0ef0d1b
 ![Sustainable Development Goals](https://static1.abbyy.com/abbyycommedia/34588/logo-410x100.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 出典： [持続可能な開発目標（SDGs）の推進（環境省）](http://www.env.go.jp/policy/sdgs/index.html)
@@ -59,10 +59,10 @@ SDGsでは以下の17のゴールが設定されています。
 17. パートナーシップで目標を達成しよう
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYYの8番と10番の取り組みについて
@@ -79,22 +79,16 @@ ABBYYは、社内の包摂的な文化をサポートすることに重点を置
 
 一部の地域では、さまざまな能力を持つ人々や貧しい家庭や農村地域からの学生を雇用するための特別なプロジェクトがあります。 また、地域に根付いたチャリティー活動（クリスマス関連のチャリティーなど）も実施しています。デジタルインテリジェンス企業として、技術人材の育成に取り組んでいます。一部の地域では、教育活動を推進し、恵まれない／過小評価されている人々のためのメンターシッププログラムや奨学金を通じての技術人材育成をサポートしています。
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## ABBYYの13番と15番の取り組みについて
 
 ![Sustainable Development Goals 気候変動に具体的な対策を](https://static1.abbyy.com/abbyycommedia/34586/13907-icon-13.png) ![Sustainable Development Goals 陸の豊かさも守ろう](https://static1.abbyy.com/abbyycommedia/34587/13907-icon-15.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 私たちはデジタルインテリジェンス企業として、ペーパーレスのビジネスプロセスにつながるデジタルトランスフォーメーション（DX）の推進に取り組んでいます。ABBYYのデジタルテクノロジーは、デジタル（ハードコピーではなく）ドキュメントに焦点を当てることにより、お客様がより環境に優しいものになるように支援します。
 
@@ -111,10 +105,16 @@ ABBYYは、サステナビリティの重要性を従業員に思い出させる
 [カスタマエクスペリエンス](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -180,21 +180,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-snapedit-story-complete-video-editor-features/"><u>[New] SnapEdit Story – Complete Video Editor Features</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-most-reliable-image-archiving-sites/"><u>[Updated] Most Reliable Image Archiving Sites</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-quick-guide-overcoming-youtube-short-hurdles/"><u>[Updated] Quick Guide Overcoming YouTube Short Hurdles</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-superior-selection-best-windows-videophone-apps-guide/"><u>2024 Approved Superior Selection Best Windows Videophone Apps Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience-with-tailored-content/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience with Tailored Content</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-site-enhance-your-digital-marketing-efforts/"><u>Cookiebot-Enabled Site: Enhance Your Digital Marketing Efforts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-boost-your-online-traffic-and-engagement/"><u>Cookiebot-Enabled Sites: Boost Your Online Traffic and Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-site-performance/"><u>Cookiebot-Enhanced Site Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhance-your-site-with-powerful-tracker-technology/"><u>Cookiebot: Enhance Your Site with Powerful Tracker Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhancing-your-website-with-smart-tracking-technology/"><u>Cookiebot: Enhancing Your Website with Smart Tracking Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/customized-advertising-with-the-advanced-capabilities-of-cookiebot/"><u>Customized Advertising with the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-and-install-dell-wd19-printer-drivers-step-by-step-guide/"><u>Download & Install Dell WD19 Printer Drivers: Step-by-Step Guide</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-samsung-galaxy-a14-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Samsung Galaxy A14 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-motorola-moto-e13-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Motorola Moto E13?</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-cutting-edge-ipad-video-editing-the-top-5-tools/"><u>New Cutting-Edge iPad Video Editing The Top 5 Tools</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/top-tech-certification-programs-for-every-professional-level-insights-from-zdnet/"><u>Top Tech Certification Programs for Every Professional Level - Insights From ZDNet</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-cyber-sensation-the-rise-of-videoviral-tweets/"><u>[New] 2024 Approved Cyber Sensation The Rise of #VideoViral Tweets</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-capturing-beats-studio-mac-basics-for-2024/"><u>[New] Capturing Beats Studio Mac Basics for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-proper-mac-photo-tips-identifying-and-comparing-the-top-5-techniques/"><u>[Updated] 2024 Approved Proper Mac Photo Tips Identifying and Comparing The Top 5 Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-engage-more-dissuade-less-top-6-ways-to-increase-watch-time-and-stayers-for-2024/"><u>[Updated] Engage More, Dissuade Less Top 6 Ways to Increase Watch Time and Stayers for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-mp3-recording-made-simple-with-skype-for-free/"><u>[Updated] MP3 Recording Made Simple with Skype for FREE</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/carlsberg-accelere-son-debut-en-mer-avec-la-technologie-abbyy-un-nouveau-partenariat-industriel/"><u>Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Website's User Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-enhanced-personalization-and-engagement/"><u>Cookiebot-Enabled Sites: Enhanced Personalization & Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-optimizing-your-site-with-advanced-analytics/"><u>Cookiebot-Enhanced: Optimizing Your Site with Advanced Analytics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/creating-compelling-valorant-thumbnails-for-digital-viewers-for-2024/"><u>Creating Compelling Valorant Thumbnails for Digital Viewers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/tailor-your-tweets-exceptional-video-to-twitch-tools-for-2024/"><u>Tailor Your Tweets Exceptional Video to Twitch Tools for 2024</u></a></li>
 </ul></div>
 

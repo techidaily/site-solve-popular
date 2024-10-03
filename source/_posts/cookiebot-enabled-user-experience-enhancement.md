@@ -1,7 +1,7 @@
 ---
 title: Cookiebot-Enabled User Experience Enhancement
-date: 2024-09-20T16:16:33.755Z
-updated: 2024-09-27T16:45:02.712Z
+date: 2024-09-26T03:15:10.353Z
+updated: 2024-10-03T01:11:53.411Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d375bcd96d435c14a3e9a48edfb86d3a2995018c383247bac69b40f31de6e4df.jpg
@@ -19,28 +19,28 @@ Oil & Gas | Mobile Capture | Customer Experience Management
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Butagaz Chooses ABBYY to Help Consumers Switch Energy Supplier
 
 Other | Mobile Capture 
 
 ![customer story butagaz](https://static1.abbyy.com/abbyycommedia/25845/cs_butagaz_556x303.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Customer Overview
 
 ![Butagaz Group](https://static4.abbyy.com/abbyycommedia/28788/butagaz-v2.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name         | Butagaz Group                             |
@@ -94,6 +94,13 @@ Reduction in data processing time; consumers can now switch supplier in less tha
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY Content Intelligence](https://static2.abbyy.com/abbyycommedia/24337/mailroom_automation_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [Content Intelligence](https://tools.techidaily.com/abbyy/products/) 
@@ -103,16 +110,10 @@ Reduction in data processing time; consumers can now switch supplier in less tha
 [![PDF Version customer story Butagaz](https://static4.abbyy.com/abbyycommedia/25846/cs_butagaz_360x162.jpg)](https://static2.abbyy.com/abbyycommedia/28756/case-study-butagaz-en-11866.pdf "PDF Version") [PDF Version](https://static2.abbyy.com/abbyycommedia/28756/case-study-butagaz-en-11866.pdf "PDF Version") 
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Read the document](https://static2.abbyy.com/abbyycommedia/28756/case-study-butagaz-en-11866.pdf "PDF Version") 
@@ -120,13 +121,6 @@ Reduction in data processing time; consumers can now switch supplier in less tha
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -149,24 +143,20 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-eliminate-background-noise-from-online-video-content/"><u>[New] 2024 Approved Eliminate Background Noise From Online Video Content</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/onverting-your-favourite-tracks-bridging-spotify-with-youtube-music-for-2024/"><u>[New] Converting Your Favourite Tracks Bridging Spotify with YouTube Music for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-discovering-the-most-engaging-facebook-vids/"><u>[New] Discovering the Most Engaging Facebook Vids</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-enhanced-game-recorders-beyond-fbx-frameworks/"><u>[Updated] Enhanced Game Recorders Beyond FBX Frameworks</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-securing-your-scene-camera-shake-solutions/"><u>2024 Approved Securing Your Scene Camera Shake Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-gabrielle-lukianchuk-as-new-cmo-driving-company-expansion/"><u>ABBYY Welcomes Gabrielle Lukianchuk as New CMO, Driving Company Expansion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyyabbyy-proof-of-identity/"><u>ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-productivity-key-strategies-for-your-center-of-excellence-with-abbyy-plus-blue-prism-live-session/"><u>Boosting Productivity - Key Strategies for Your Center of Excellence with ABBYY + Blue Prism Live Session</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-twins-and-process-simulation-exploring-business-opportunity-expansion/"><u>Digital Twins and Process Simulation - Exploring Business Opportunity Expansion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/emotional-intelligence/"><u>Emotional Intelligence</u></a></li>
-<li><a href="https://win-dash.techidaily.com/find-and-download-latest-epson-stylus-nx420-drivers-for-your-pc-with-windows-os-7810/"><u>Find & Download Latest Epson Stylus NX420 Drivers for Your PC with Windows OS (7/8/10)</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-unleashing-full-screen-potential-of-your-facebook-videos/"><u>In 2024, Unleashing Full-Screen Potential of Your Facebook Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/melodic-marketing-instagram-music-tips/"><u>Melodic Marketing Instagram Music Tips</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/munchen-nutzt-abbyy-fur-die-modernisierung-und-digitale-speicherung-von-baurechnungen/"><u>München Nutzt ABBYY Für Die Modernisierung Und Digitale Speicherung Von Baurechnungen</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-samsung-galaxy-m54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/sustained-profitable-expansion-abbyy-announces-back-to-back-double-digit-revenue-upswing-for-third-year-in-a-row/"><u>Sustained Profitable Expansion: ABBYY Announces Back-to-Back Double-Digit Revenue Upswing for Third Year in a Row</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-the-legal-framework-abbyys-cloud-product-terms-end-to-end-privacy-standards-and-gdpr-provisions-explained/"><u>Understanding the Legal Framework: ABBYY's Cloud Product Terms, End-to-End Privacy Standards & GDPR Provisions Explained</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unleash-dynamic-user-experiences-with-cookiebot-technology/"><u>Unleash Dynamic User Experiences with Cookiebot Technology</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-ditch-the-limits-installing-linux-on-your-chromebook-updated-2023/"><u>Updated 2024 Approved Ditch the Limits Installing Linux on Your Chromebook (Updated 2023)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-cutting-edge-mac-hd-screen-and-sound-mastery/"><u>[New] In 2024, Cutting-Edge Mac HD Screen and Sound Mastery</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/astering-youtube-audio-recordings/"><u>[New] Mastering YouTube Audio Recordings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-seamlessly-downloading-hd-content-from-facebook-for-2024/"><u>[Updated] Seamlessly Downloading HD Content From Facebook for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-shock-free-footage-leading-smartphones-with-superior-ois-features/"><u>[Updated] Shock-Free Footage Leading Smartphones with Superior OIS Features</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-moziscreen-recording-solutions/"><u>2024 Approved MoziScreen Recording Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/sap-intelligent-rpa-abbyy-abbyy/"><u>高度な文書処理技術と組み合わせた、SAP Intelligent RPA にABBYYを統合する方法 | ABBYYの技術解説</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1726225534339-2023/"><u>人気無料ビデオコンパクションツールランキング:2023年最新版ベストセレクション!</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-in-2024-best-4-eminem-voice-generator-apps-for-pc-mac-mobile-and-online/"><u>New In 2024, Best 4 Eminem Voice Generator Apps for PC, Mac, Mobile, and Online</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/promising-future-with-us-policy-changes-expert-analysis-on-abbyys-platform/"><u>Promising Future with US Policy Changes | Expert Analysis on ABBYY's Platform</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-solutions-for-starting-dolby-advanced-audio-driver-issues-on-windows-11/"><u>Step-by-Step Solutions for Starting Dolby Advanced Audio Driver Issues on Windows 11</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/strategies-doptimisation-de-la-chaine-logistique-comment-les-donnees-facilitent-le-reinventer-grace-a-abbyy/"><u>Stratégies D'Optimisation De La Chaîne Logistique: Comment Les Données Facilitent Le Réinventer Grâce À ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/strengthen-business-continuity-with-effective-process-enhancement/"><u>Strengthen Business Continuity with Effective Process Enhancement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/top-subcontracting-options-for-enhanced-abbyy-software-solutions/"><u>Top Subcontracting Options for Enhanced ABBYY Software Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/transformez-la-lecture-de-vos-recus-en-temps-reel-grace-a-lia-abbyy-sphere-numerique/"><u>Transformez La Lecture De Vos Reçus en Temps Réel Grâce À L'IA : ABBYY Sphère Numérique</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ultimate-guide-cleaning-and-formatting-data-for-efficient-ai-model-training/"><u>Ultimate Guide: Cleaning and Formatting Data for Efficient AI Model Training</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: ABBYY Unveils New Web Application for Scanning and Organizing Business Cards in the Cloud
-date: 2024-09-25T04:49:23.672Z
-updated: 2024-09-28T03:56:35.438Z
+date: 2024-09-27T09:59:43.258Z
+updated: 2024-10-03T10:47:34.140Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/94367d0839b4e8bd552f4ff0b46203c6692aa9dd549da1507965a6ba4039d0e6.png
@@ -70,27 +70,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-crossing-social-bridges-linking-instagram-and-tiktok/"><u>[New] In 2024, Crossing Social Bridges Linking Instagram & TikTok</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-perfecting-playback-apply-filters-to-video-content-for-2024/"><u>[New] Perfecting Playback Apply Filters to Video Content for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-building-your-brand-with-brilliant-educational-videos-a-guide-to-youtube-excellence/"><u>[Updated] Building Your Brand with Brilliant Educational Videos A Guide to YouTube Excellence</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-premium-selection-top-free-youtube-transcript-apps/"><u>[Updated] Premium Selection Top Free YouTube Transcript Apps</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-toolwiz-revolutionizes-camera-use-a-comprehensive-review-for-photographers/"><u>[Updated] Toolwiz Revolutionizes Camera Use - A Comprehensive Review for Photographers</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-clear-sound-conference-experience-via-skype/"><u>2024 Approved Clear Sound Conference Experience via Skype</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-optimal-no-audio-recording-practices/"><u>2024 Approved Optimal No-Audio Recording Practices</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724312901263-abbyy-finereader-14/"><u>ABBYY FineReader 14 - 職場向けの文書ワークフローを一新する先進技術</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-asteriaflexicapture-cloud/"><u>ABBYYブログで紹介! ASTERIAとFlexiCapture Cloudに対応した高度な画面分析テンプレート - 最新技術の解説</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1724312889342-cookiebot-enabled-optimize-your-site-with-advanced-analytics/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Analytics!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-zte-blade-a3y-exceptional-features-for-its-price-range/"><u>In-Depth Look at the ZTE Blade A3Y: Exceptional Features for Its Price Range</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-ultimate-mobile-cinema-showcase-apples-best-freepluspaid-film-watchers-guide/"><u>The Ultimate Mobile Cinema Showcase Apple's Best FREE+Paid Film Watchers Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-the-complexities-in-organizational-process-management-lessons-from-the-abbyy-blog/"><u>Understanding The Complexities in Organizational Process Management – Lessons From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-web-analytics-and-performance/"><u>Utilizing Cookiebot Technology for Optimized Web Analytics & Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/vereinheitlichte-buchhalterlosungen-mit-iguana-und-abbyy-fur-verbesserte-kreditorenverwaltung-and-geschaftsprozesse/"><u>Vereinheitlichte Buchhalterlösungen Mit IGuana Und ABBYY Für Verbesserte Kreditorenverwaltung & Geschäftsprozesse</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/yakuza-like-a-dragon-game-review-a-non-negotiable-rpg-adventure/"><u>'Yakuza: Like a Dragon' Game Review: A Non-Negotiable RPG Adventure</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-a-comprehensive-guide-to-mastering-vivocuts-new-capabilities/"><u>[Updated] In 2024, A Comprehensive Guide to Mastering VivoCut's New Capabilities</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-guide-to-quantum-hdr/"><u>[Updated] The Ultimate Guide to Quantum HDR</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-firefoxs-leading-screen-snapshot-apps/"><u>2024 Approved Firefox's Leading Screen Snapshot Apps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-close-look-at-star-wars-squadrons-experience-the-thrill-of-hyper-realistic-space-skirmishes/"><u>A Close Look At Star Wars Squadrons – Experience the Thrill of Hyper-Realistic Space Skirmishes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-unveiling-the-magic-of-films-mood-with-colors/"><u>In 2024, Unveiling the Magic of Film's Mood with Colors</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-vivo-y36-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Vivo Y36 | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leverage-enhanced-user-experience-websites-boosted-using-the-powerful-cookiebot-platform/"><u>Leverage Enhanced User Experience: Websites Boosted Using the Powerful Cookiebot Platform</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leveraging-cookiebot-technology-for-improved-website-engagement/"><u>Leveraging Cookiebot Technology for Improved Website Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/master-your-connections-using-ios-12-features-for-business-cards-tips-from-abbyb-log/"><u>Master Your Connections Using iOS 12 Features for Business Cards - Tips From ABBYB Log</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/maximize-engagement-with-advanced-analytics-the-cookiebot-integration-advantage/"><u>Maximize Engagement with Advanced Analytics: The Cookiebot Integration Advantage</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/maximizing-page-visibility-a-guide-to-advanced-seo-techniques/"><u>Maximizing Page Visibility: A Guide to Advanced SEO Techniques</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ultimate-compatibility-for-your-hp-color-laserjet-pro-mfp-download-latest-drivers-here/"><u>Ultimate Compatibility for Your HP Color LaserJet Pro MFP - Download Latest Drivers Here!</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-8-essential-video-metadata-editors-for-mac-users-updated-2023/"><u>Updated 8 Essential Video Metadata Editors for Mac Users (Updated 2023)</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

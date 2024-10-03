@@ -1,7 +1,7 @@
 ---
 title: "Efficiently Managing Insurance Claims with Ecclesia: The ABBYY Integration"
-date: 2024-09-17T21:05:25.651Z
-updated: 2024-09-19T00:04:56.841Z
+date: 2024-09-29T07:37:17.783Z
+updated: 2024-10-03T06:27:25.064Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/302790bfdd6c387be2ce7104b2f0ec7045e52a09e036ffbf26a83ecf9455ec5e.jpg
@@ -24,6 +24,13 @@ Insurance | Customer Experience Management
 Insurance | Customer Experience Management 
 
 ![](https://static1.abbyy.com/abbyycommedia/37725/ecclesia-case-study-intelligent-automation-en_tn_556x303.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Customer Overview
 
@@ -77,9 +84,23 @@ ABBYY’s technology enabled Ecclesia to fundamentally increase efficiencies in 
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY Vantage](https://static2.abbyy.com/abbyycommedia/24337/mailroom_automation_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
@@ -90,6 +111,13 @@ ABBYY’s technology enabled Ecclesia to fundamentally increase efficiencies in 
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -110,12 +138,23 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-clear-views-combating-fog-in-gopro-photos/"><u>[New] Clear Views Combating Fog in GoPro Photos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-unlocking-hidden-recommendations-on-social-media/"><u>[Updated] In 2024, Unlocking Hidden Recommendations on Social Media</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-secrets-of-negative-video-spinning-in-snapchat/"><u>[Updated] The Secrets of Negative Video Spinning in Snapchat</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-potential-the-best-hr-vlogs-1-10/"><u>[Updated] Unlock Potential The Best HR Vlogs #1-10</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-your-traffic-with-cookiebots-powerful-tracking-technology/"><u>Boost Your Traffic with Cookiebot's Powerful Tracking Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/breaking-down-abbyy-omzets-successful-year-of-2abbreviation-benelux-metrics-reflect-a-23-upsurge-in-2019/"><u>Breaking Down ABBYY OMZET's Successful Year of 2Abbreviation; Benelux Metrics Reflect a 23% Upsurge in 2019</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-unlocking-advanced-audience-targeting-features/"><u>Cookiebot-Driven Insights: Unlocking Advanced Audience Targeting Features</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience-with-tailored-content/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience with Tailored Content</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-site-enhance-your-digital-marketing-efforts/"><u>Cookiebot-Enabled Site: Enhance Your Digital Marketing Efforts</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-boost-your-online-traffic-and-engagement/"><u>Cookiebot-Enabled Sites: Boost Your Online Traffic and Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhance-your-site-with-powerful-tracker-technology/"><u>Cookiebot: Enhance Your Site with Powerful Tracker Technology</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-silent-systems-a-guide-to-reinstating-nvidia-high-definition-audio-functionality/"><u>Fixing Silent Systems: A Guide to Reinstating Nvidia High Definition Audio Functionality</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-guide-to-unlock-your-motorola-moto-g-5g-2023-by-drfone-android/"><u>Full Guide to Unlock Your Motorola Moto G 5G (2023)</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/screening-the-best-selecting-premium-macos-recording-apps-for-2024/"><u>Screening the Best Selecting Premium macOS Recording Apps for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722960158340-step-by-step-tutorial-quickly-update-to-intel-iris-plus-graphics-driver-v640/"><u>Step-by-Step Tutorial: Quickly Update to Intel Iris + Graphics Driver V640</u></a></li>
+</ul></div>
 

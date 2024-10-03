@@ -1,7 +1,7 @@
 ---
 title: ABBYY's Open-Source NeoML Bibliothek Erlebt Einen Sprung Nach Vorn Mit Python-Integration Und Beispielloser Geschwindigkeit
-date: 2024-09-17T16:22:11.934Z
-updated: 2024-09-18T21:56:02.127Z
+date: 2024-09-28T23:24:13.663Z
+updated: 2024-10-03T06:31:58.145Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5f93c49b1c440b80d1268f9b261207858efb549976695493b8cd986466735cf6.jpg
@@ -16,6 +16,13 @@ thumbnail: https://thmb.techidaily.com/5f93c49b1c440b80d1268f9b261207858efb54997
 22\. Juni 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### NeoML bietet eine 50% schnellere Leistung als andere beliebte Open-Source-Bibliotheken für maschinelles Lernen.
 
@@ -65,18 +72,24 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://solve-popular.techidaily.com/2020abbyy7/"><u>2020年の世界的な成功事例：ABBYYで展開したプロセスインテリジェンスストーリートップ7</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbeyy-news-update-viele-europaer-verbringen-die-meiste-zeit-mit-abgelehnten-tatigkeiten-im-arbeitsalltag-eine-weite-sichtbarkeit/"><u>ABBEYY News Update: Viele Europäer Verbringen Die Meiste Zeit Mit Abgelehnten Tätigkeiten Im Arbeitsalltag - Eine Weite Sichtbarkeit</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-invoice-processing-software-boosts-operational-efficiency-in-the-energy-sector/"><u>ABBYY's Invoice Processing Software Boosts Operational Efficiency in the Energy Sector</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-europe-201/"><u>AI Europe 201</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ameliorer-les-resultats-de-la-robotique-de-processus-assistee-par-ordinateur-rpa-analyse-et-techniques-avancees-chez-abbyy/"><u>Améliorer Les Résultats De La Robotique De Processus Assistée Par Ordinateur (RPA) - Analyse Et Techniques Avancées Chez ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/at-leading-annual-summit-abbyy-showcases-advanced-ml-and-ai-technologies-for-future-success/"><u>At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-7-leading-notetaking-apps-to-enhance-productivity-on-your-ipadipad-pro/"><u>Discover 7 Leading Notetaking Apps to Enhance Productivity on Your iPad/iPad Pro</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diy-repair-how-to-get-your-sennheiser-game-one-microphone-back-on-track/"><u>DIY Repair: How To Get Your Sennheiser Game One Microphone Back On Track</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elite-filmmaking-tools-for-gopro-for-2024/"><u>Elite Filmmaking Tools for GoPro for 2024</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/handbrake-troubleshooting-guide-solving-crashes-and-unresponsiveness-on-windows-10-devices/"><u>Handbrake Troubleshooting Guide: Solving Crashes & Unresponsiveness on Windows 10 Devices!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-craft-memes-for-comedy-using-adobe/"><u>In 2024, Craft Memes for Comedy Using Adobe</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/e-investigation-the-streamlined-3-part-method-to-assess-your-youtube-income-levels-for-2024/"><u>Income Investigation The Streamlined 3-Part Method to Assess Your YouTube Income Levels for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/revolutionizing-team-dynamics-exploring-ais-role-in-reshaping-todays-work-environment-insights-from-abbyy/"><u>Revolutionizing Team Dynamics: Exploring AI's Role in Reshaping Today's Work Environment - Insights From ABBYY</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-oppo-reno-10-5g-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-to-vivo-t2-pro-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Vivo T2 Pro 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ultimate-resource-finding-and-downloading-an-xbox-360-gamepad-driver-compatible-with-pcs/"><u>Ultimate Resource: Finding and Downloading an Xbox 360 Gamepad Driver Compatible with PCs</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-site-customization-and-improved-engagement/"><u>Utilizing Cookiebot Technology for Optimized Site Customization and Improved Engagement</u></a></li>
+</ul></div>
 

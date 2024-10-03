@@ -1,7 +1,7 @@
 ---
 title: "Elevating Industry Standards: AP Automation Success Story of Siemens and ABBYY"
-date: 2024-09-21T22:06:12.307Z
-updated: 2024-09-27T19:17:34.225Z
+date: 2024-09-25T18:22:37.149Z
+updated: 2024-10-03T07:46:23.899Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9878ff62b08356ff78ffb4d4ce5fd0c27ab1ffdc4dd530f388b0fa3845feed6f.jpg
@@ -20,13 +20,26 @@ English
 ![58 Philiphechtl 198X198](https://static2.abbyy.com/abbyycommedia/35560/siemens-logo-forspeakers-129x44.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![58 Philiphechtl 198X198](https://static4.abbyy.com/abbyycommedia/30263/58-philiphechtl-198x198.png)
+
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Philip Hechtl
 
@@ -35,10 +48,10 @@ Head of Artificial Intelligence and Digital Service Management, **Siemens**
 ![18 Reggietwigg 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![18 Reggietwigg 198X198](https://static4.abbyy.com/abbyycommedia/25486/18-reggietwigg-198x198.png)
@@ -48,10 +61,10 @@ Head of Artificial Intelligence and Digital Service Management, **Siemens**
 Director Solution Marketing, **ABBYY**
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Overview
@@ -59,13 +72,6 @@ Director Solution Marketing, **ABBYY**
 Accounting and Finance have long been high-ROI targets for automation, yet there is still more to be gained. Simply throwing technologies such as robotic process automation (RPA) and optical character recognition (OCR) at the problem is not enough.
 
 A modern approach to transforming this shared service puts user experience, citizen developers, and globalization at the center of design to achieve higher rates of straight-through processing and greater user adoption and scalability across the global organization. Learn how Siemens took this approach with its AP operation to meet tighter SLAs, accelerate its payback, and prepare for rapid growth and change.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What you’ll learn:
 
@@ -85,10 +91,10 @@ All personal information collected via this method is under full scope of all pr
 [![Putting UX Back Into AP Automation EN 750x422](https://static1.abbyy.com/abbyycommedia/32926/putting-ux-back-into-ap-automation.jpg)](https://www.youtube.com/watch?v=IvvggH0iC%5FY) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
@@ -158,21 +164,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/updated-advanced-techniques-developing-elapsed-time-features-in-obs-software/"><u>[Updated] Advanced Techniques Developing Elapsed Time Features in OBS Software</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-making-youtube-intros-interesting-without-costing-a-dime/"><u>[Updated] Making YouTube Intros Interesting Without Costing a Dime</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-nubia-red-magic-9-proplus-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Nubia Red Magic 9 Pro+ without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-ocr-rpa49/"><u>伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatisierte-rechnungsbearbeitung-fur-energielieferanten-mit-branchenrelevanz-empfehlungen-von-abbyy/"><u>Automatisierte Rechnungsbearbeitung Für Energielieferanten Mit Branchenrelevanz – Empfehlungen Von ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-site-traffic-with-cookiebot-integration-strategies/"><u>Boost Site Traffic with Cookiebot Integration Strategies</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-web-visibility-instantly-using-the-powerful-cookiebot-seo-tech/"><u>Boost Web Visibility Instantly Using the Powerful Cookiebot SEO Tech</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/carlsberg-accelere-son-debut-en-mer-avec-la-technologie-abbyy-un-nouveau-partenariat-industriel/"><u>Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/comprehensive-guide-to-buying-winx-dvd-video-player-frequently-asked-questions/"><u>Comprehensive Guide to Buying WinX DVD Video Player - Frequently Asked Questions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-master-the-art-of-screenshot-and-video-edits-top-8-mobile-choices/"><u>In 2024, Master the Art of Screenshot and Video Edits – Top 8 Mobile Choices</u></a></li>
-<li><a href="https://blog-min.techidaily.com/live-streaming-with-manycam-the-top-virtual-camera-software-solution/"><u>Live Streaming with ManyCam: The Top Virtual Camera Software Solution</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-how-to-break-down-avi-files-into-smaller-clips-a-simple-tutorial/"><u>New 2024 Approved How to Break Down AVI Files Into Smaller Clips A Simple Tutorial</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/perfect-photos-effortless-best-10-screenshot-sticker-enhancers-for-smartphones-for-2024/"><u>Perfect Photos, Effortless Best 10 Screenshot-Sticker Enhancers for Smartphones for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/streamlining-your-streams-choosing-between-xsplit-and-obs/"><u>Streamlining Your Streams Choosing Between XSplit and OBS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-from-concept-to-screen-channel-yt-for-pioneering-filmmaking-techniques/"><u>[New] 2024 Approved From Concept to Screen Channel YT for Pioneering Filmmaking Techniques</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-maximizing-pc-color-with-windows-hdri-for-2024/"><u>[New] Maximizing PC Color with Windows HDRI for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-masterful-outros-and-descriptions-a-guide-to-excellence/"><u>[Updated] 2024 Approved Masterful Outros and Descriptions A Guide to Excellence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-unleashing-advanced-tracking-solutions-for-your-websites-success/"><u>Cookiebot: Unleashing Advanced Tracking Solutions for Your Website's Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/data-driven-personalization-through-smart-analytics-solutions/"><u>Data-Driven Personalization Through Smart Analytics Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/demystifying-rpa-insights-from-the-abbyy-experts-guide/"><u>Demystifying RPA: Insights From the ABBYY Expert's Guide</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/desamorcez-votre-gestion-des-credits-immobiliers-grace-a-levolutif-et-performant-service-de-dematerialisation-la-caisse-depargne-bretagne-pays-de-loire/"><u>Désamorcez Votre Gestion Des Crédits Immobiliers Grâce À L'évolutif Et Performant Service De Dématérialisation La Caisse D’Epargne Bretagne Pays De Loire</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-your-site-performance-using-cookiebot-technology/"><u>Elevate Your Site Performance Using Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/empowering-website-insights-with-cookiebot-advanced-tracking-solutions-for-improved-seo/"><u>Empowering Website Insights with Cookiebot: Advanced Tracking Solutions for Improved SEO</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-site-performance-with-our-cookiebot-integrated-tools/"><u>Enhance Site Performance with Our Cookiebot Integrated Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-website-traffic-analysis-with-our-advanced-cookiebot-technology-solutions/"><u>Enhance Website Traffic Analysis with Our Advanced Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722965907765-fast-access-to-up-to-date-asus-pce-ac68-drivers-download-here/"><u>Fast Access to Up-to-Date ASUS PCE-AC68 Drivers - Download Here</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>How to Change Location On Facebook Dating for your Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-locked-vivo-y02t-phone-by-drfone-android/"><u>How to Reset a Locked Vivo Y02T Phone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Itel P40? | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-insights-your-guide-to-cutting-edge-computer-components/"><u>Tom's Tech Insights: Your Guide to Cutting-Edge Computer Components</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unlocking-vibrant-visuals-with-post-color-techniques/"><u>Unlocking Vibrant Visuals with Post-Color Techniques</u></a></li>
 </ul></div>
 

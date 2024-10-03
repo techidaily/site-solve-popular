@@ -1,7 +1,7 @@
 ---
 title: "「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ"
-date: 2024-09-16T22:17:22.778Z
-updated: 2024-09-18T20:45:16.258Z
+date: 2024-09-26T03:00:09.835Z
+updated: 2024-10-02T16:54:52.305Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1aaa1948c8657f1c3ade15a5850d4145b4cb86fea7e0bf45a6a316b50b831479.jpg
@@ -45,6 +45,13 @@ thumbnail: https://thmb.techidaily.com/1aaa1948c8657f1c3ade15a5850d4145b4cb86fea
 ![ABBYY logo circle](https://static5.abbyy.com/abbyycommedia/29971/abbyy-logo-2021-blog-99x99.png)
 
 ABBYY Japan エンジニアリングチーム
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -107,12 +114,21 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-techniques-that-elevate-your-ppt-recording-experience/"><u>[New] 2024 Approved Techniques that Elevate Your PPT Recording Experience</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-exploring-entertainment-youtubes-integration-with-fb/"><u>[New] In 2024, Exploring Entertainment YouTube's Integration with FB</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-how-to-edit-youtube-videos-in-imovie/"><u>[Updated] 2024 Approved How to Edit YouTube Videos in iMovie?</u></a></li>
+<li><a href="https://win11.techidaily.com/cross-platform-file-retrieval-with-windows-nas/"><u>Cross-Platform File Retrieval with Windows NAS</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-digital-marketing-with-the-cookiebot-advantage/"><u>Enhance Your Digital Marketing with the Cookiebot Advantage</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-site-performance-with-the-help-of-cookiebot-technology/"><u>Enhanced Site Performance with the Help of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-business-results-three-key-strategies-with-ai-and-smart-automation/"><u>Enhancing Business Results: Three Key Strategies with AI & Smart Automation</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/experience-advanced-audience-engagement-using-smart-tracking-cookiebot-technology/"><u>Experience Advanced Audience Engagement Using Smart Tracking - Cookiebot Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-assassins-creed-valhalla-the-ultimate-guide-to-an-epic-journey-through-medieval-europe-and-scandinavia/"><u>Exploring Assassin's Creed Valhalla: The Ultimate Guide to an Epic Journey Through Medieval Europe and Scandinavia</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/geschwindige-zollabwicklung-warentransport-von-uk-nach-eu-beschleunigt-auf-unter-5-minuten/"><u>Geschwindige Zollabwicklung: Warentransport Von UK Nach EU Beschleunigt Auf Unter 5 Minuten</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/get-abbyy-textgrabber-free-new-on-the-fly-translating-capabilities-for-android-devices/"><u>Get ABBYY TextGrabber Free: New On-the-Fly Translating Capabilities for Android Devices</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-hackers-handbook-navigating-anonymous-instagram-streaming/"><u>In 2024, The Hacker’s Handbook Navigating Anonymous Instagram Streaming</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Oppo Reno 8T 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-updates.techidaily.com/revive-your-missing-office-documents-expert-strategies-for-restoring-deleted-file-versions/"><u>Revive Your Missing Office Documents: Expert Strategies for Restoring Deleted File Versions</u></a></li>
+</ul></div>
 

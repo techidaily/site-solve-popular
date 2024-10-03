@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Welcomes Anthony Macciola as Their Latest Appointment: Chief Innovation Officer"
-date: 2024-09-22T19:32:47.527Z
-updated: 2024-09-28T03:32:33.282Z
+date: 2024-09-28T03:42:28.813Z
+updated: 2024-10-03T09:37:23.938Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bfe527075b76486c457bb40593f28ebdf4420fa39a7d079da9e7faa5dde71ba1.jpg
@@ -61,23 +61,31 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-calculating-viewing-time-for-a-20mb-video/"><u>[New] 2024 Approved Calculating Viewing Time for a 20Mb Video</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-enchanting-viewers-the-art-of-crafting-engaging-youtube-description-templates/"><u>[New] 2024 Approved Enchanting Viewers The Art of Crafting Engaging YouTube Description Templates</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-become-a-kinemaster-meme-wizard/"><u>[New] Become a KineMaster Meme Wizard</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-multitasking-mastery-activities-while-embracing-soundtracks-for-2024/"><u>[Updated] Multitasking Mastery Activities While Embracing Soundtracks for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-dominates-2022-spark-matrix-rankings-by-quadrant-knowledge-solutions-for-advanced-document-analysis/"><u>ABBYY Dominates 2022 SPARK Matrix Rankings by Quadrant Knowledge Solutions for Advanced Document Analysis</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-leadership-in-customer-excellence-meet-larysa-lototska/"><u>ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyyocr/"><u>ABBYY組み込みOCR採用：東芝テックの新シリーズ印刷機</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-strategy-shifts-global-economys-influence-explored-in-comprehensive-intelligence-automation-overview/"><u>AI Strategy Shifts: Global Economy's Influence Explored in Comprehensive Intelligence Automation Overview</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversions-using-the-latest-cookiebot-technology-features/"><u>Boost Conversions Using the Latest Cookiebot Technology Features</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-realme-c33-2023-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Realme C33 2023 Location Settings | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-oppo-reno-10-pro-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Oppo Reno 10 Pro 5G FRP Bypass</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-managing-moments-in-live-streams-an-obs-timer-guide/"><u>[New] In 2024, Managing Moments in Live Streams An OBS Timer Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-maximized-speed-the-prime-10-choices-of-srt-upgrades-for-pcs-and-macs/"><u>[New] Maximized Speed The Prime 10 Choices of SRT Upgrades for PCs & Macs</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-essential-gaming-gear-keyboards-for-less-than-100/"><u>[Updated] In 2024, Essential Gaming Gear Keyboards for Less Than $100</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-mastering-your-video-projects-with-superior-recorder-software/"><u>[Updated] In 2024, Mastering Your Video Projects with Superior Recorder Software</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/elevate-presentations-with-these-10-best-destinations-for-free-templates/"><u>Elevate Presentations with These 10 Best Destinations for Free Templates</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/fixing-the-asmtxhcisystem-error-resolving-microsofts-blue-screen-of-death-issues/"><u>Fixing the ASMTXHCISystem Error: Resolving Microsoft's Blue Screen of Death Issues</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-itel-p40-is-unlocked-by-drfone-android/"><u>How To Check if Your Itel P40 Is Unlocked</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-oppo-a79-5g-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Oppo A79 5G FRP</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimize-with-cookiebot-advanced-tools-for-superior-web-engagement-and-personalization/"><u>Optimize With Cookiebot: Advanced Tools for Superior Web Engagement and Personalization</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-enhancing-your-sites-visibility/"><u>Optimized with Cookiebot Technology: Enhancing Your Site's Visibility</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-the-latest-from-cookiebot-enhance-your-websites-analytics-today/"><u>Optimized with the Latest From Cookiebot: Enhance Your Website's Analytics Today!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimizing-microsoft-sharepoint-workflows-with-cutting-edge-ocr-capabilities-from-abbyy-experts/"><u>Optimizing Microsoft SharePoint Workflows with Cutting-Edge OCR Capabilities From ABBYY Experts</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimizing-web-experiences-with-advanced-cookiebot-technology/"><u>Optimizing Web Experiences with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/peak-matrix-2019-abbyy-stands-out-in-everest-groups-rankings-of-leading-idp-tools-and-applications/"><u>Peak Matrix™ 2019: ABBYY Stands Out in Everest Group's Rankings of Leading IDP Tools and Applications</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/protect-your-data-understanding-the-abbyy-cloud-agreement-for-gdpr-adherence/"><u>Protect Your Data: Understanding the ABBYY Cloud Agreement for GDPR Adherence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/the-future-of-digital-transformation-insights-from-the-2018-abbyy-technology-summit-on-content-intelligence/"><u>The Future of Digital Transformation: Insights From the 2018 ABBYY Technology Summit on Content Intelligence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/top-6-must-read-digital-intelligence-insights-of-2020-featured-on-the-abbyy-blog/"><u>Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-tips-and-criteria-for-choosing-the-perfect-projector-for-you/"><u>Top Tips and Criteria for Choosing the Perfect Projector for You</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

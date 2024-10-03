@@ -1,7 +1,7 @@
 ---
 title: Enhancing Website Analytics Through Cookiebot Technology
-date: 2024-09-15T21:33:05.172Z
-updated: 2024-09-19T00:18:44.366Z
+date: 2024-09-28T02:35:28.189Z
+updated: 2024-10-02T22:39:35.080Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/238e2de8d5663845563adee13d68f244664dc4975f435870883240d8e13b1f76.jpg
@@ -31,6 +31,19 @@ One of the critical aspects of online services involving sensitive data—such a
 
 ![Identity proofing in action example](https://static1.abbyy.com/abbyycommedia/36102/poi-gif-5_using-poi-2.gif?width=847&height=477)
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 A common misperception of identity proofing equates it with another common online security concept, _identity authentication_. Authentication is the use of a combination of credentials—generally a username and password—to gain access to a resource. However, before users can be assigned credentials, especially for access to sensitive resources, they must first verify who they are through identity proofing.
 
 ## How does identity proofing work?
@@ -43,13 +56,20 @@ The NIST identifies [three steps that make up the identity proofing process](htt
 
 ![](https://static1.abbyy.com/abbyycommedia/36099/2_steps-in-identity-proofing-and-identity-affirmation.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Manual approaches to this detailed process can be time-consuming, tedious, and at high risk for error. Fortunately, today’s identity proofing systems can leverage automation and AI to carry out each step without the need for human intervention in most cases.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What’s the difference between identity proofing and identity affirmation … and why do we need both? 
@@ -61,10 +81,10 @@ Identity affirmation, [according to Gartner](https://www.gartner.com/en/document
 When businesses leverage identity proofing and identity affirmation in tandem, they can enjoy a high level of confidence that the users they interact with really are who they say they are.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is there a “one-stop shop” for identity proofing and affirmation capabilities?
@@ -185,5 +205,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/he-key-to-flawless-shots-using-a-tripod-correctly-in-video-blogging/"><u>[New] The Key to Flawless Shots Using a Tripod Correctly in Video Blogging</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-match-your-mentality-unveil-your-youtuber-type-through-6-quizzes/"><u>[Updated] In 2024, Match Your Mentality Unveil Your YouTuber Type Through 6 Quizzes</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unlocking-social-media-success-start-with-facebook-insights/"><u>[Updated] Unlocking Social Media Success Start with Facebook Insights</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iuoajoodhplusocuoocvplusodqplusodleocqeodvoodoos9noaikoobruwwgumwgowutuodquocueodidrkv53pmbrjgrvjgqjgrjg7zjgplkuk3lv4pjgajjgzfjgzjg4hjgqfjg4pjgqjg6rjgrnjg4j1/"><u>「デジタルフォーム作成の専門家リスト:保険セクターを中心としたチェックリストガイド」</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-global-idp/"><u>ABBYY Global IDPトレンドの最新発表:成果報告書解説</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-online-experience-through-cookiebot-driven-analytics/"><u>Enhancing Online Experience Through Cookiebot-Driven Analytics</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/gratis-online-omzettingen-van-wma-naar-mp3-met-movavi-konvertor/"><u>Gratis Online Omzettingen Van WMA Naar MP3 Met Movavi Konvertor</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-x50iplus-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Honor X50i+ Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-tecno-spark-20-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Tecno Spark 20 Users</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-improved-online-traffic-and-user-interaction/"><u>Leverage Cookiebot Technology for Improved Online Traffic & User Interaction</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/strengthening-remote-meetings-through-ai-interaction/"><u>Strengthening Remote Meetings Through AI Interaction</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-formula-for-youtube-money-decoding-revenue-and-cpm-rates-for-2024/"><u>The Formula for YouTube Money Decoding Revenue and CPM Rates for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
+<li><a href="https://common-error.techidaily.com/windows-11-build-1607-installation-errors-and-how-to-fix-them/"><u>Windows 11 Build 1607 Installation Errors and How to Fix Them</u></a></li>
+</ul></div>
 
