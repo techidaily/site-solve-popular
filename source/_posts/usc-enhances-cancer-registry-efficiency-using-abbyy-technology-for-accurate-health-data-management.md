@@ -1,7 +1,7 @@
 ---
 title: USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management
-date: 2024-09-26T08:27:52.169Z
-updated: 2024-10-02T19:38:02.429Z
+date: 2024-10-04T18:56:44.238Z
+updated: 2024-10-08T17:19:36.763Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3269c858221e8ab75b91d65fc2cbdc3bf0d972fb510d01ae54b3ad8d22470d02.jpg
@@ -25,15 +25,22 @@ Healthcare | Document Management
 
 ![](https://static1.abbyy.com/abbyycommedia/15551/3-usc-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Customer Overview
 
 ![University of Southern California](https://static2.abbyy.com/abbyycommedia/15296/usc_logo.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name                  | University of Southern California                  |
@@ -121,10 +128,10 @@ The solution has also eliminated the need to outsource imaging to costly vendors
 [![FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [read more](https://tools.techidaily.com/abbyy/products/) 
@@ -132,22 +139,15 @@ The solution has also eliminated the need to outsource imaging to costly vendors
 [![Healthcare](https://static2.abbyy.com/abbyycommedia/14360/10-healthcare.jpg)](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static5.abbyy.com/abbyycommedia/15552/3-usc-2.png)](https://static4.abbyy.com/abbyycommedia/5380/fc%5Fusc%5Fhealthcare%5F2015.pdf "PDF version") [PDF version](https://static4.abbyy.com/abbyycommedia/5380/fc%5Fusc%5Fhealthcare%5F2015.pdf "PDF version") 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [read more](https://static4.abbyy.com/abbyycommedia/5380/fc%5Fusc%5Fhealthcare%5F2015.pdf "PDF version") 
 
@@ -180,16 +180,19 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-top-15-snapchat-post-tips-for-max-impact-for-2024/"><u>[New] Top 15 Snapchat Post Tips for Max Impact for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/t-ratio-fundamentals-for-effective-youtube-content-creation-for-2024/"><u>Aspect Ratio Fundamentals for Effective YouTube Content Creation for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/buy-factorypro-the-ultimate-ipad-video-editor-safe-and-free-return-policy/"><u>Buy FactoryPro: The Ultimate iPad Video Editor - Safe and Free Return Policy</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-enhancing-online-personalization/"><u>Driven by Cookiebot: Enhancing Online Personalization</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-with-innovative-cookiebot-technology/"><u>Driven with Innovative Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-online-experience-with-cookiebot-power-solutions-for-superior-user-targeting-and-retention/"><u>Elevate Online Experience with Cookiebot Power Solutions for Superior User Targeting and Retention</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/embracing-innovative-mobility-learn-with-us-on-the-abbyy-blog/"><u>Embracing Innovative Mobility - Learn with Us on the ABBYY Blog</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-realme-v30-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Realme V30 Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/identifying-and-correcting-issues-preventing-the-launch-of-your-farming-simulator-2022/"><u>Identifying & Correcting Issues Preventing the Launch of Your Farming Simulator 2022</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/navigating-tiktok-lives-as-a-virtual-attendee/"><u>Navigating TikTok Lives as a Virtual Attendee</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1726227946084-mpe-mp4-movavi/"><u>온라인에서 MPE를 무료 MP4로 변환하기: Movavi 가이드</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-unlocking-igtvs-potential-5-ways-to-surge-follower-count/"><u>[New] In 2024, Unlocking IGTV's Potential 5 Ways to Surge Follower Count</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youngest-millionaire-on-youtube-ryans-unprecedented-wealth-accumulation/"><u>[New] Youngest Millionaire on YouTube Ryan's Unprecedented Wealth Accumulation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-dell-xps-13-2-in-1-notebook-evaluation-exceptional-productivity-and-power/"><u>Comprehensive Dell XPS 13 (2-in-1) Notebook Evaluation: Exceptional Productivity & Power</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/efficient-session-management-and-targeting-through-cutting-edge-cookiebot-solutions/"><u>Efficient Session Management and Targeting Through Cutting-Edge Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-business-excellence-by-mastering-process-mapping-assessment-and-simulation-tactics/"><u>Elevate Business Excellence by Mastering Process Mapping, Assessment & Simulation Tactics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevating-industry-standards-ap-automation-success-story-of-siemens-and-abbyy/"><u>Elevating Industry Standards: AP Automation Success Story of Siemens and ABBYY</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/elite-fingers-to-enhance-virtual-adventures-for-2024/"><u>Elite Fingers to Enhance Virtual Adventures for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-collaboration-effortlessly-using-abbyy-timeline-5s-new-task-mining-technology/"><u>Enhance Collaboration Effortlessly Using ABBYY Timeline 5’S New Task Mining Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-web-personalization-with-the-power-of-cookiebot-technology/"><u>Enhance Web Personalization with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-on-the-apple-iphone-13-pro-max-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock On the Apple iPhone 13 Pro Max Without Previous Owner?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/optimize-gaming-performance-on-win-111087-with-amd-rx-6900-xt-latest-graphics-card-drivers-download/"><u>Optimize Gaming Performance on Win 11/10/8/7 with AMD RX 6900 XT Latest Graphics Card Drivers Download</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-comprehensive-step-by-step-process-of-tracking-down-a-private-number/"><u>The Comprehensive Step-by-Step Process of Tracking Down a Private Number</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/tiktok-speak-up-a-step-by-step-instructional-guide-for-2024/"><u>TikTok Speak Up A Step-by-Step Instructional Guide for 2024</u></a></li>
 </ul></div>
 

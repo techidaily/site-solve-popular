@@ -1,7 +1,7 @@
 ---
 title: München Nutzt ABBYY Für Die Modernisierung Und Digitale Speicherung Von Baurechnungen
-date: 2024-09-27T20:39:17.059Z
-updated: 2024-10-02T19:43:58.840Z
+date: 2024-10-04T18:17:51.475Z
+updated: 2024-10-08T17:21:43.826Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/70eba607a5493f0dcd7d40fac4dac70e28238f9a9f5e87c656a3b61e25281e1d.jpg
@@ -20,10 +20,10 @@ Government | Document Classification
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Stadt München setzt bei der Digitalisierung von Bauakten auf ABBYY
@@ -31,10 +31,10 @@ Government | Document Classification
 Behörden und öffentlicher Sektor | Dokumentenklassifizierung 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
@@ -58,24 +58,17 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-boosting-channel-profitability-famebit-powered-sponsorship-tactics-for-2024/"><u>[New] Boosting Channel Profitability FameBit-Powered Sponsorship Tactics for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-ignite-your-narratives-complimentary-fb-apps-for-everyday-users-for-2024/"><u>[New] Ignite Your Narratives Complimentary FB Apps for Everyday Users for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-navigating-the-odds-comprehensive-take-on-vegas-pro-2021/"><u>[New] Navigating the Odds Comprehensive Take on Vegas Pro 2021</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-rekindle-ambition-top-10-motivational-moments/"><u>[Updated] 2024 Approved Rekindle Ambition Top 10 Motivational Moments</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-ultimate-gaming-adventure-list-ghost-of-tsushimas-allies/"><u>[Updated] In 2024, Ultimate Gaming Adventure List – Ghost of Tsushima's Allies</u></a></li>
-<li><a href="https://app-tips.techidaily.com/ai-transforms-business-strategies-how-many-marketing-departments-adapt-learn-with-zdnet/"><u>AI Transforms Business Strategies: How Many Marketing Departments Adapt? - Learn with ZDNet</u></a></li>
-<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Poco M6 Pro 4G? | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/funimate-masterclass-gameplay-enhancement/"><u>Funimate Masterclass Gameplay Enhancement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-customization-and-seo-success/"><u>Harnessing the Power of Cookiebot for Advanced Site Customization and SEO Success</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-herangehensweisen-an-die-prozessanalytik-ein-detaillierter-vergleich-zwischen-den-fuhrenden-methoden-pdf-abbyy/"><u>Innovative Herangehensweisen an Die Prozessanalytik: Ein Detaillierter Vergleich Zwischen Den Führenden Methoden (PDF) - ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-strategies-needed-adapting-trade-finance-for-emerging-market-hurdles/"><u>Innovative Strategies Needed: Adapting Trade Finance for Emerging Market Hurdles</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/integrity-and-ethics/"><u>Integrity and Ethics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/interactive-online-conference-expert-tips-and-strategies-for-streamlining-accounts-payable-operations/"><u>Interactive Online Conference: Expert Tips & Strategies for Streamlining Accounts Payable Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-cutting-edge-tracking-tools-for-enhanced-performance-and-engagement/"><u>Leveraging Cutting-Edge Tracking Tools for Enhanced Performance and Engagement</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/master-your-pc-with-toms-hardware-wisdom-and-guidance/"><u>Master Your PC with Tom's Hardware Wisdom and Guidance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-initial-paperwork-through-vantage-solutions/"><u>Mastering the Art of Initial Paperwork Through Vantage Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/navigating-privacy-laws-with-abbyys-gdpr-ready-data-processing-addendum/"><u>Navigating Privacy Laws with ABBYY's GDPR-Ready Data Processing Addendum</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-bots-boosting-your-sites-performance/"><u>Optimized with Automated Bots: Boosting Your Site's Performance</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-add-shimmer-to-photos-illustrators-motion-blur-guide/"><u>[New] 2024 Approved Add Shimmer to Photos Illustrator's Motion Blur Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-big-talkers-quick-backup-of-preferred-speeches/"><u>Asia's Big Talkers: Quick Backup of Preferred Speeches</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/detailed-privacy-and-protection-overview-your-guide-to-enhanced-security-measures/"><u>Detailed Privacy and Protection Overview: Your Guide to Enhanced Security Measures</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/discovering-abbyy-teams-of-athletes-more-than-just-their-profession/"><u>Discovering ABBYY Teams of Athletes: More than Just Their Profession</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortless-bill-settlement-with-abbyy-enabled-mobile-banking-application/"><u>Effortless Bill Settlement with ABBYY-Enabled Mobile Banking Application</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortless-business-automation-harnessing-the-power-of-zero-coding-ai-tools/"><u>Effortless Business Automation: Harnessing the Power of Zero-Coding AI Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-digital-marketing-with-the-cookiebot-advantage/"><u>Enhance Your Digital Marketing with the Cookiebot Advantage</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-xiaomi-mix-fold-3-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Xiaomi Mix Fold 3 Phone Screen?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-realme-11-pro-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Realme 11 Pro to Outlook | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-the-basics-motion-graphics-framework-for-2024/"><u>Mastering the Basics Motion Graphics Framework for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-cuts-big-impact-top-editors-for-youtube-short-videos-on-mobile-for-2024/"><u>Short Cuts, Big Impact Top Editors for YouTube Short Videos on Mobile for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-perils-of-faux-youtube-supporter-purchases-for-2024/"><u>The Perils of Faux YouTube Supporter Purchases for 2024</u></a></li>
 </ul></div>
 

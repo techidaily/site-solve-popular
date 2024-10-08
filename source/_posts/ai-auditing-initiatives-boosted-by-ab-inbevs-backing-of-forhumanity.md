@@ -1,7 +1,7 @@
 ---
 title: AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity
-date: 2024-09-29T07:18:33.094Z
-updated: 2024-10-03T00:40:02.340Z
+date: 2024-10-01T17:57:44.999Z
+updated: 2024-10-08T18:52:09.423Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8d4f635de6f8288e79a21d2dcf9027cad8747323c88b4f310acedbe966d2fadc.jpg
@@ -45,10 +45,10 @@ Consultez ces liens pour :
 * [Plus d’informations sur la conformité à l’IA](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À PROPOS D’ABBYY
@@ -56,16 +56,10 @@ Consultez ces liens pour :
 ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous combinons l'innovation et l'expérience pour transformer les informations issues de documents stratégiques en résultats exploitables et pertinents, dans plus de 200 langues et en temps réel. Nous permettons à plus de 10 000 entreprises dans le monde, y compris de nombreuses entreprises du classement Fortune 500, d'avoir un impact majeur là où cela compte le plus : l'expérience client, l'excellence opérationnelle et la compétitivité. ABBYY est une entreprise mondiale dont le siège social se trouve à Milpitas, en Californie, et qui dispose de bureaux dans 14 pays. ABBYY est le partenaire [officiel d’intelligente automation du club de football féminin d'Arsenal](https://tools.techidaily.com/abbyy/products/). Pour plus d'informations, consultez le site www.abbyy.com/company et rejoignez-nous sur [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware?ref%5Fsrc=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) et [Facebook](https://www.facebook.com/ABBYYsoft/?locale=fr%5FFR).
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À PROPOS DE FORHUMANITY
@@ -89,19 +83,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-effortless-offline-access-best-youtube-playlist-downloaders/"><u>[New] 2024 Approved Effortless Offline Access Best YouTube Playlist Downloaders</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-navigate-high-speed-stories-on-instagram-effectively/"><u>[Updated] Navigate High-Speed Stories on Instagram Effectively</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-beginners-bonanza-affordable-profitable-channel-options/"><u>2024 Approved Beginner's Bonanza Affordable, Profitable Channel Options</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-capture-and-store-every-sound-on-pc-download-x-recorder/"><u>In 2024, Capture & Store Every Sound on PC - Download X-Recorder</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-ios-leaders-the-10-ultimate-video-apps-to-know/"><u>In 2024, IOS Leaders The 10 Ultimate Video Apps to Know</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/interactive-online-conference-expert-tips-and-strategies-for-streamlining-accounts-payable-operations/"><u>Interactive Online Conference: Expert Tips & Strategies for Streamlining Accounts Payable Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-cutting-edge-tracking-tools-for-enhanced-performance-and-engagement/"><u>Leveraging Cutting-Edge Tracking Tools for Enhanced Performance and Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-initial-paperwork-through-vantage-solutions/"><u>Mastering the Art of Initial Paperwork Through Vantage Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/navigating-privacy-laws-with-abbyys-gdpr-ready-data-processing-addendum/"><u>Navigating Privacy Laws with ABBYY's GDPR-Ready Data Processing Addendum</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-bots-boosting-your-sites-performance/"><u>Optimized with Automated Bots: Boosting Your Site's Performance</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcome-your-iphone-dilemma-with-these-effective-methods-for-fixing-hey-siri-not-responding/"><u>Overcome Your iPhone Dilemma with These Effective Methods for Fixing 'Hey Siri' Not Responding</u></a></li>
-<li><a href="https://win-able.techidaily.com/solving-the-black-screen-dilemma-nba-2k21-troubleshooting-guide-release/"><u>Solving the Black Screen Dilemma: NBA 2K21 Troubleshooting Guide Release</u></a></li>
-<li><a href="https://android-frp.techidaily.com/top-5-realme-note-50-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Realme Note 50 Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://win-answers.techidaily.com/ultimate-guide-to-overcoming-minecraft-pc-crashes-and-freezes-expert-advice-for-gamers-updated/"><u>Ultimate Guide to Overcoming Minecraft PC Crashes and Freezes - Expert Advice for Gamers (Updated )</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harnessing-monetization-potential-with-youtube-ad-strategies/"><u>[New] 2024 Approved Harnessing Monetization Potential with YouTube Ad Strategies</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-step-by-step-guide-to-compliant-twitter-media-posts/"><u>[New] In 2024, Step-by-Step Guide to Compliant Twitter Media Posts</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-capture-unrooted-android-sounds-4-techniques-for-2024/"><u>[Updated] Capture Unrooted Android Sounds 4 Techniques for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-tailoring-your-youtube-videos-with-customized-text-and-link-embeddings/"><u>[Updated] Tailoring Your YouTube Videos with Customized Text & Link Embeddings</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-boosting-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Boosting Your Site with Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-backbone-of-personalized-web-interactions/"><u>Cookiebot: The Backbone of Personalized Web Interactions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-efficient-and-smart-powering-behind-your-web-analytics/"><u>Cookiebot: The Efficient and Smart Powering Behind Your Web Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cut-invoice-processing-time-in-half-using-norco-technology/"><u>Cut Invoice Processing Time in Half Using Norco Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/detailed-privacy-and-protection-overview-your-guide-to-enhanced-security-measures/"><u>Detailed Privacy and Protection Overview: Your Guide to Enhanced Security Measures</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-art-of-photo-edits-a-newcomers-guide-to-lunapic/"><u>In 2024, The Art of Photo Edits A Newcomer’s Guide to LunaPic</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/rewriting-the-rulebook-on-language-models-meet-palm-2-by-google/"><u>Rewriting the Rulebook on Language Models – Meet PaLM 2 by Google</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/secure-your-media-download-vimeo-to-mp4-for-2024/"><u>Secure Your Media Download Vimeo to MP4 for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/skyward-elite-unified-ultra-hd-multi-touch-panels-for-2024/"><u>Skyward Elite Unified, Ultra HD Multi-Touch Panels for 2024</u></a></li>
 </ul></div>
 

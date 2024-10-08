@@ -1,7 +1,7 @@
 ---
 title: ABBYY Unveils New Web Application for Scanning and Organizing Business Cards in the Cloud
-date: 2024-09-27T09:59:43.258Z
-updated: 2024-10-03T10:47:34.140Z
+date: 2024-10-06T17:54:19.077Z
+updated: 2024-10-08T17:57:35.971Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/94367d0839b4e8bd552f4ff0b46203c6692aa9dd549da1507965a6ba4039d0e6.png
@@ -70,26 +70,28 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-reviews.techidaily.com/yakuza-like-a-dragon-game-review-a-non-negotiable-rpg-adventure/"><u>'Yakuza: Like a Dragon' Game Review: A Non-Negotiable RPG Adventure</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-a-comprehensive-guide-to-mastering-vivocuts-new-capabilities/"><u>[Updated] In 2024, A Comprehensive Guide to Mastering VivoCut's New Capabilities</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-guide-to-quantum-hdr/"><u>[Updated] The Ultimate Guide to Quantum HDR</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-firefoxs-leading-screen-snapshot-apps/"><u>2024 Approved Firefox's Leading Screen Snapshot Apps</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-close-look-at-star-wars-squadrons-experience-the-thrill-of-hyper-realistic-space-skirmishes/"><u>A Close Look At Star Wars Squadrons – Experience the Thrill of Hyper-Realistic Space Skirmishes</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-unveiling-the-magic-of-films-mood-with-colors/"><u>In 2024, Unveiling the Magic of Film's Mood with Colors</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-vivo-y36-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Vivo Y36 | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-enhanced-user-experience-websites-boosted-using-the-powerful-cookiebot-platform/"><u>Leverage Enhanced User Experience: Websites Boosted Using the Powerful Cookiebot Platform</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-cookiebot-technology-for-improved-website-engagement/"><u>Leveraging Cookiebot Technology for Improved Website Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/master-your-connections-using-ios-12-features-for-business-cards-tips-from-abbyb-log/"><u>Master Your Connections Using iOS 12 Features for Business Cards - Tips From ABBYB Log</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximize-engagement-with-advanced-analytics-the-cookiebot-integration-advantage/"><u>Maximize Engagement with Advanced Analytics: The Cookiebot Integration Advantage</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximizing-page-visibility-a-guide-to-advanced-seo-techniques/"><u>Maximizing Page Visibility: A Guide to Advanced SEO Techniques</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/ultimate-compatibility-for-your-hp-color-laserjet-pro-mfp-download-latest-drivers-here/"><u>Ultimate Compatibility for Your HP Color LaserJet Pro MFP - Download Latest Drivers Here!</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-8-essential-video-metadata-editors-for-mac-users-updated-2023/"><u>Updated 8 Essential Video Metadata Editors for Mac Users (Updated 2023)</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-breaking-ground-in-vr-content-development/"><u>[New] Breaking Ground in VR Content Development</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-srt-file-playback-windows-and-mac-integration-for-2024/"><u>[New] SRT File Playback Windows & Mac Integration for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-y27s-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/avoiding-common-nocturnal-photography-errors/"><u>Avoiding Common Nocturnal Photography Errors</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/desamorcez-votre-gestion-des-credits-immobiliers-grace-a-levolutif-et-performant-service-de-dematerialisation-la-caisse-depargne-bretagne-pays-de-loire/"><u>Désamorcez Votre Gestion Des Crédits Immobiliers Grâce À L'évolutif Et Performant Service De Dématérialisation La Caisse D’Epargne Bretagne Pays De Loire</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-your-site-performance-using-cookiebot-technology/"><u>Elevate Your Site Performance Using Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/empowering-website-insights-with-cookiebot-advanced-tracking-solutions-for-improved-seo/"><u>Empowering Website Insights with Cookiebot: Advanced Tracking Solutions for Improved SEO</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-site-performance-with-our-cookiebot-integrated-tools/"><u>Enhance Site Performance with Our Cookiebot Integrated Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-website-traffic-analysis-with-our-advanced-cookiebot-technology-solutions/"><u>Enhance Website Traffic Analysis with Our Advanced Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-by-cookiebot-solutions/"><u>Enhanced by Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-multifunctional-toshiba-printer-with-built-in-abbyy-ocr-technology/"><u>Enhanced Multifunctional Toshiba Printer with Built-In ABBYY OCR Technology</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-vr-surgical-training-and-planning-systems/"><u>In 2024, VR Surgical Training and Planning Systems</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mpeg-to-wmv-converter-online-free-fast-secure-video-transform-service/"><u>MPEG to WMV Converter Online: FREE Fast, Secure Video Transform Service</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-poco-c55-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Poco C55? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/trouble-with-iphone-6s-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>Trouble with iPhone 6s Swipe-Up? Try These 11 Solutions</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

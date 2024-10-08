@@ -1,7 +1,7 @@
 ---
 title: "ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み"
-date: 2024-10-02T10:25:51.130Z
-updated: 2024-10-03T10:09:53.313Z
+date: 2024-10-04T17:50:10.881Z
+updated: 2024-10-08T18:06:33.279Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7d954d5ef5beb31b578dcda4509d16e23f0ef0d1b79a76b01e4834ddb01328ea.jpg
@@ -24,13 +24,6 @@ thumbnail: https://thmb.techidaily.com/7d954d5ef5beb31b578dcda4509d16e23f0ef0d1b
 ## 環境省が推進する SDGs（持続可能な開発目標）
 
 ![Sustainable Development Goals](https://static1.abbyy.com/abbyycommedia/34588/logo-410x100.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 出典： [持続可能な開発目標（SDGs）の推進（環境省）](http://www.env.go.jp/policy/sdgs/index.html)
 
@@ -59,15 +52,22 @@ SDGsでは以下の17のゴールが設定されています。
 17. パートナーシップで目標を達成しよう
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYYの8番と10番の取り組みについて
 
 ![Sustainable Development Goals 働きがいも経済成長も](https://static1.abbyy.com/abbyycommedia/34584/13907-icon-8.png) ![Sustainable Development Goals 人や国の不平等をなくそう](https://static1.abbyy.com/abbyycommedia/34585/13907-icon-10.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ABBYYは、これまで教育とキャリア開発の面で不平等を減らすために、さまざまなバックグラウンドを持つ人々をサポートしてきました。私たちは多様性を重視し、採用と昇進の決定を行う際にも平等な機会を提供しております。
 
@@ -79,15 +79,22 @@ ABBYYは、社内の包摂的な文化をサポートすることに重点を置
 
 一部の地域では、さまざまな能力を持つ人々や貧しい家庭や農村地域からの学生を雇用するための特別なプロジェクトがあります。 また、地域に根付いたチャリティー活動（クリスマス関連のチャリティーなど）も実施しています。デジタルインテリジェンス企業として、技術人材の育成に取り組んでいます。一部の地域では、教育活動を推進し、恵まれない／過小評価されている人々のためのメンターシッププログラムや奨学金を通じての技術人材育成をサポートしています。
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ABBYYの13番と15番の取り組みについて
 
 ![Sustainable Development Goals 気候変動に具体的な対策を](https://static1.abbyy.com/abbyycommedia/34586/13907-icon-13.png) ![Sustainable Development Goals 陸の豊かさも守ろう](https://static1.abbyy.com/abbyycommedia/34587/13907-icon-15.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 私たちはデジタルインテリジェンス企業として、ペーパーレスのビジネスプロセスにつながるデジタルトランスフォーメーション（DX）の推進に取り組んでいます。ABBYYのデジタルテクノロジーは、デジタル（ハードコピーではなく）ドキュメントに焦点を当てることにより、お客様がより環境に優しいものになるように支援します。
@@ -103,19 +110,6 @@ ABBYYは、サステナビリティの重要性を従業員に思い出させる
 このようにABBYYは、これまでも、これからもSDGsに積極的に取り組んでまいります。
 
 [カスタマエクスペリエンス](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -180,18 +174,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-cyber-sensation-the-rise-of-videoviral-tweets/"><u>[New] 2024 Approved Cyber Sensation The Rise of #VideoViral Tweets</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-capturing-beats-studio-mac-basics-for-2024/"><u>[New] Capturing Beats Studio Mac Basics for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-proper-mac-photo-tips-identifying-and-comparing-the-top-5-techniques/"><u>[Updated] 2024 Approved Proper Mac Photo Tips Identifying and Comparing The Top 5 Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-engage-more-dissuade-less-top-6-ways-to-increase-watch-time-and-stayers-for-2024/"><u>[Updated] Engage More, Dissuade Less Top 6 Ways to Increase Watch Time and Stayers for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-mp3-recording-made-simple-with-skype-for-free/"><u>[Updated] MP3 Recording Made Simple with Skype for FREE</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/carlsberg-accelere-son-debut-en-mer-avec-la-technologie-abbyy-un-nouveau-partenariat-industriel/"><u>Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Website's User Engagement</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-becoming-a-confident-content-creator-youtubes-top-tips/"><u>[New] 2024 Approved Becoming a Confident Content Creator YouTube's Top Tips</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-perfecting-bio-linking-a-complete-system-on-tiktok/"><u>[New] In 2024, Perfecting Bio Linking A Complete System on TikTok</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unleash-the-mixer-in-you-20-free-custom-luts-for-dji-minis-and-airs/"><u>[New] Unleash the Mixer in You 20 Free, Custom LUTs for DJI Minis & Airs</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-active-screen-capture-pro-does-it-reign-supreme/"><u>[Updated] In 2024, Active Screen Capture Pro Does It Reign Supreme?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-art-of-crafting-exclusive-cover-photos-on-instagram/"><u>[Updated] Mastering the Art of Crafting Exclusive Cover Photos on Instagram</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-enhanced-personalization-and-engagement/"><u>Cookiebot-Enabled Sites: Enhanced Personalization & Engagement</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-optimizing-your-site-with-advanced-analytics/"><u>Cookiebot-Enhanced: Optimizing Your Site with Advanced Analytics</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/creating-compelling-valorant-thumbnails-for-digital-viewers-for-2024/"><u>Creating Compelling Valorant Thumbnails for Digital Viewers for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/tailor-your-tweets-exceptional-video-to-twitch-tools-for-2024/"><u>Tailor Your Tweets Exceptional Video to Twitch Tools for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-quality-videos-a-guide-to-apple-device-screen-recording/"><u>Crafting Quality Videos A Guide to Apple Device Screen Recording</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Google Pixel 7a? | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-enhancing-online-personalization/"><u>Driven by Cookiebot: Enhancing Online Personalization</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-with-innovative-cookiebot-technology/"><u>Driven with Innovative Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-online-experience-with-cookiebot-power-solutions-for-superior-user-targeting-and-retention/"><u>Elevate Online Experience with Cookiebot Power Solutions for Superior User Targeting and Retention</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/embracing-innovative-mobility-learn-with-us-on-the-abbyy-blog/"><u>Embracing Innovative Mobility - Learn with Us on the ABBYY Blog</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-online-performance-using-the-powerful-features-of-cookiebot-technology/"><u>Enhance Online Performance Using the Powerful Features of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-with-advanced-automation-powered-by-the-cutting-edge-cookiebot-technology/"><u>Enhanced with Advanced Automation: Powered by the Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723000714706-football-manager-2022-wont-launch-heres-why-and-how-its-fixed/"><u>Football Manager 2022 Won't Launch? Here's Why and How It's Fixed</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/swift-download-of-razer-mamba-drivers-simple-steps-inside/"><u>Swift Download of Razer Mamba Drivers - Simple Steps Inside</u></a></li>
 </ul></div>
 

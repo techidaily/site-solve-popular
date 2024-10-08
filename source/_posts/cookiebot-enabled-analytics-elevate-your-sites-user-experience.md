@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled Analytics: Elevate Your Site's User Experience"
-date: 2024-10-02T03:56:36.114Z
-updated: 2024-10-03T01:44:15.188Z
+date: 2024-10-07T17:50:43.769Z
+updated: 2024-10-08T18:20:40.768Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/756e6cbc4b4a2e3ac30671657870528bb336d9b2f0f8b2cf5d7bebdde4893059.jpg
@@ -20,10 +20,16 @@ BPO and Shared Services | Document Processing
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Costain Transforms Its Finance Department Using ABBYY Intelligent Document Processing
@@ -33,15 +39,22 @@ BPO and Shared Services | Document Processing
 [![Costain Transforms Its Finance Department Using ABBYY Content Intelligence](https://static5.abbyy.com/abbyycommedia/37723/costain-case-study-intelligent-document-processing-en_tn_556x303.jpg)](https://www.youtube.com/watch?v=w708adcpE-A) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Customer Overview
 
 ![Costain Group PLC](https://static1.abbyy.com/abbyycommedia/25139/costain-logo.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name         | Costain Group PLC                           |
 | ------------ | ------------------------------------------- |
@@ -99,22 +112,15 @@ Integration of ABBYY Intelligent Document Processing platform
 
 [![Learn more about ABBYY Vantage](https://static2.abbyy.com/abbyycommedia/24337/mailroom_automation_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static5.abbyy.com/abbyycommedia/37726/costain-case-study-intelligent-document-processing-en_tn_360x162.jpg)](https://static3.abbyy.com/abbyycommedia/37648/costain-case-study-intelligent-document-processing-en.pdf "PDF Version") [PDF Version](https://static3.abbyy.com/abbyycommedia/37648/costain-case-study-intelligent-document-processing-en.pdf "PDF Version") 
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Read the document](https://static3.abbyy.com/abbyycommedia/37648/costain-case-study-intelligent-document-processing-en.pdf "PDF Version") 
@@ -144,15 +150,15 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-record-holders-the-epitome-of-reddit-engagement-10-threads/"><u>[New] 2024 Approved Record Holders The Epitome of Reddit Engagement (10 Threads)</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ow-youtubes-creative-commons-shapes-video-production-for-2024/"><u>[New] How YouTube's Creative Commons Shapes Video Production for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-scouring-deals-low-priced-gopro-cameras/"><u>[New] Scouring Deals Low-Priced GoPro Cameras</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-airborne-mass-movers-selecting-the-best-drones/"><u>In 2024, Airborne Mass Movers Selecting the Best Drones</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-sony-xperia-1-v-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Sony Xperia 1 V Devices</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leveraging-cookiebot-for-superior-conversion-rates-and-seamless-personalization-on-your-website/"><u>Leveraging Cookiebot for Superior Conversion Rates and Seamless Personalization on Your Website</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-seamless-mobile-onboarding-with-strategies-from-the-abbyy-handbook/"><u>Mastering Seamless Mobile Onboarding with Strategies From the ABBYY Handbook</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-crafting-an-effective-online-page-for-search-engines/"><u>Mastering the Art of Crafting an Effective Online Page for Search Engines</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-universal-copy-paste-seamless-sharing-across-devices-and-enhancing-your-fitness-routine-with-indoor-cycling-insights-from-the-abbyy-expertise/"><u>Mastering Universal Copy-Paste: Seamless Sharing Across Devices & Enhancing Your Fitness Routine with Indoor Cycling - Insights From the ABBYY Expertise</u></a></li>
-<li><a href="https://win-able.techidaily.com/step-by-step-guide-exporting-your-music-from-ableton-live-as-mp3s/"><u>Step-by-Step Guide: Exporting Your Music From Ableton Live as MP3s</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-eye-catcher-top-screen-recording-software-reviews/"><u>[New] Eye Catcher Top Screen Recording Software Reviews</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-networked-narrative-recorder-pro/"><u>[Updated] In 2024, Networked Narrative Recorder Pro</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-gleeful-twittersphere/"><u>[Updated] The Gleeful Twittersphere</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevating-industry-standards-ap-automation-success-story-of-siemens-and-abbyy/"><u>Elevating Industry Standards: AP Automation Success Story of Siemens and ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-collaboration-effortlessly-using-abbyy-timeline-5s-new-task-mining-technology/"><u>Enhance Collaboration Effortlessly Using ABBYY Timeline 5’S New Task Mining Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-web-personalization-with-the-power-of-cookiebot-technology/"><u>Enhance Web Personalization with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-marketing-analytics-using-cookiebot-technology/"><u>Enhance Your Marketing Analytics Using Cookiebot Technology</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fodpc-and-mp4/"><u>FODビデオコンテンツのPCからのダウンロード手順 & MP4ファイルへの保存方法</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-tecno-pova-6-pro-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Tecno Pova 6 Pro 5G? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-vivo-y36-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Vivo Y36 | Dr.fone</u></a></li>
 </ul></div>
 

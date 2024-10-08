@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced: Unleash the Power of Automated Conversions"
-date: 2024-10-02T11:50:28.151Z
-updated: 2024-10-02T19:07:44.853Z
+date: 2024-10-05T16:11:51.672Z
+updated: 2024-10-08T16:10:13.893Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c2d68683c182adeb644872ae9b6efd92813d48ae83b60547183327ca40ae4d54.jpg
@@ -36,10 +36,10 @@ So let’s talk a minute about contract language and how it is holding the banki
 AI with ML has been much hyped in recent years, but it often sounds like a solution looking for a problem. AI, in simple terms, is building computer programs (also called ‘computer vision’) to help them find, interpret, make decisions, and take action on complex language embedded in a corpus of data or documents as expert or highly-trained users would. Far from being a replacement for high-paid skilled labor, such as attorneys, paralegals, analysts and consultants, AI with ML helps them scale to global challenges such as LIBOR phase out.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Named entity recognition & extraction has advanced
@@ -51,10 +51,10 @@ LIBOR rates, clauses, and affected parties are all entities in contracts that ar
 ![Why AI Matters in LIBOR Transition](https://static1.abbyy.com/abbyycommedia/28998/11986_picture_848x444.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 With recent advancements in named entity recognition and extraction techniques, such as the ability of data scientists and legal experts to train the software with comprehensive taxonomies and variations (thesaurus, legal codes, aliases), modern AI solutions can be in production in a matter of days or weeks at a fraction of the cost of hiring an army of consultants and legal teams to do the work. LIBOR remediation experts can now help train their ‘virtual legal team’ of AI/ML software and supporting RPA bots to be their army of expert assistants to find, remediate, or flag for additional review all the impacted contracts and legal business entities.
@@ -72,19 +72,19 @@ i _Sinead Cruise, Lawrence White, ‘The End of LIBOR: The Biggest Banking Chall
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Reginald J. Twigg
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -150,16 +150,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-digital-detailing-expert-tips-for-attaching-dates-in-photography/"><u>[New] In 2024, Digital Detailing Expert Tips for Attaching Dates in Photography</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-effortless-techniques-crafting-youtube-shorts-images-on-the-fly-for-2024/"><u>[Updated] Effortless Techniques Crafting YouTube Shorts Images on the Fly for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-digging-into-the-heart-of-recordcast-technology/"><u>[Updated] In 2024, Digging Into the Heart of RecordCast Technology</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-list-of-premium-androidpc-video-editors/"><u>[Updated] The Ultimate List of Premium Android/PC Video Editors</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-11-with-a-mask-on-by-drfone-ios/"><u>How to Unlock iPhone 11 with a Mask On</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximize-engagement-with-advanced-analytics-the-cookiebot-integration-advantage/"><u>Maximize Engagement with Advanced Analytics: The Cookiebot Integration Advantage</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximizing-page-visibility-a-guide-to-advanced-seo-techniques/"><u>Maximizing Page Visibility: A Guide to Advanced SEO Techniques</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimize-with-cookiebot-advanced-tools-for-superior-web-engagement-and-personalization/"><u>Optimize With Cookiebot: Advanced Tools for Superior Web Engagement and Personalization</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-enhancing-your-sites-visibility/"><u>Optimized with Cookiebot Technology: Enhancing Your Site's Visibility</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-the-latest-from-cookiebot-enhance-your-websites-analytics-today/"><u>Optimized with the Latest From Cookiebot: Enhance Your Website's Analytics Today!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/stay-ahead-in-technology-with-toms-comprehensive-hardware-analysis/"><u>Stay Ahead in Technology with Tom's Comprehensive Hardware Analysis</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-strategies-for-maximizing-video-impact-while-staying-in-cc-zone/"><u>[Updated] Strategies for Maximizing Video Impact While Staying in CC Zone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-share-smiles-and-photos-iphones/"><u>2024 Approved Share Smiles & Photos (iPhones)</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-and-blue-prism/"><u>ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-facilitates-consistent-document-management-in-rochlings-sap-system-for-improved-efficiency-latest-industry-news/"><u>ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-showcases-artificial-intelligence-insights-at-the-2018-aiim-event/"><u>ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event</u></a></li>
+<li><a href="https://blog-min.techidaily.com/genc-ve-garip-100-turklu-uygulanabilir-and-sozlesmesiz-tekniksel-indirimi-destekla-muhendisel-video-dijital-ureteci/"><u>Genç Ve Garip - 100% Türklü Uygulanabilir & Sözleşmesiz Tekniksel İndirimi Destekla Mühendisel Video Dijital Üreteci</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-to-ensure-youre-downloading-genuine-chatgpt-programs-on-itunes/"><u>How to Ensure You're Downloading Genuine ChatGPT Programs on iTunes</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-overcome-nvidias-geforce-error-decoding-the-0x0003-issue/"><u>How to Overcome Nvidia's GeForce Error: Decoding the 0X0003 Issue</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/six-best-cinematography-tools-in-uhd-space/"><u>Six Best Cinematography Tools in UHD Space</u></a></li>
+<li><a href="https://win-blog.techidaily.com/the-comprehensive-solution-for-doom-eternal-continuous-crashing/"><u>The Comprehensive Solution for DOOM Eternal Continuous Crashing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unlock-deeper-understanding-with-abbyys-guide-on-elevated-bi-and-process-mining-tactics-ebook/"><u>Unlock Deeper Understanding with ABBYY's Guide on Elevated BI & Process Mining Tactics [eBook]</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721104319235-win10-and-seagate-connection-woes-fix-now/"><u>Win10 & Seagate Connection Woes - Fix Now!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog
-date: 2024-09-30T10:48:34.279Z
-updated: 2024-10-02T17:39:10.109Z
+date: 2024-10-04T18:52:16.951Z
+updated: 2024-10-08T16:15:19.071Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a9de22e1aa59a5e7f9127b24.jpg
@@ -20,19 +20,6 @@ February 04, 2021
 We had a year full of amazing stories that demonstrate the value of Digital Intelligence in the rapidly changing business climate. From transforming customer experience to optimizing process flows, Digital Intelligence has provided businesses with the insight needed to adapt and remain competitive throughout the pandemic. Gaining this deep knowledge of the way people, processes, and content interact is a key competence for the future of work, demonstrated by this year’s stories. If there’s one message that resonated this year the most, it’s that organizations must ramp up innovation to survive and thrive.
 
 Here are our most interesting and favorite Digital Intelligence stories from 2020, in case you missed any of them.
-
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. The Human Touch: The Untapped Opportunity for Making AI Work for Insurance
 
@@ -53,10 +40,10 @@ With social distancing measures in place and businesses across diverse industrie
 [Read the article.](https://www.cmswire.com/digital-experience/social-distancing-has-raised-the-bar-for-the-digital-experience/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Data Insight Plays a Key Role in How ABBYY Supplies Vital Pieces of the RPA Puzzle
@@ -68,10 +55,10 @@ They discussed how ABBYY’s platform identifies process flows, the importance o
 [Read the article](https://siliconangle.com/2020/05/12/data-insight-plays-a-key-role-in-how-abbyy-supplies-vital-pieces-of-the-rpa-puzzle-cubeconversations/) or watch the video below.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. The Need for Digital Intelligence in the Time of Social Distancing
@@ -79,10 +66,10 @@ They discussed how ABBYY’s platform identifies process flows, the importance o
 ![social distancing](https://static1.abbyy.com/abbyycommedia/31669/blog-1262271993-848x444.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 COVID-19 is the defining event of 2020, and with it, ”social distancing” entered our vocabulary for modern commerce, recasting interpersonal and business interactions. Now as part of our social consciousness, social distancing is fueling a growing reliance on virtualization and technologically mediated relationships. While the urgency of social distancing is already putting our technology and process readiness to the test, it raises an important question about how people, process, and content interact in this new normal. Social distancing has made the customer experience an imperative, driving digital transformation by replacing human-to-human with app-defined interactions.
@@ -96,6 +83,13 @@ COVID-19 is the defining event of 2020, and with it, ”social distancing” ent
 The pandemic shifted many IT resources toward business continuity efforts, and many workers and leaders reached the point where they were struggling to ramp up or resume digital transformation projects. Organizations looked to tap into the benefits attained from scaling end-to-end digital transformation but needed direction on the right strategies to accelerate higher-value initiatives. The challenges stem from a lack of understanding of business processes coupled with an inability to turn a company’s data into actionable, valuable information that drives strategic business decisions. ABBYY shared six fundamental steps to help implement digital transformation.
 
 [Read the article.](https://www.cmswire.com/leadership/6-steps-to-revive-your-digital-transformation-projects/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Five Crucial Insurance Questions for the Post-COVID 'New Normal'
 
@@ -172,19 +166,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-in-2024-how-to-create-time-travel-teleportation-effects/"><u>[New] In 2024, How to Create Time Travel Teleportation Effects</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-top-ranked-mac-gif-converter/"><u>[Updated] 2024 Approved Top-Ranked Mac GIF Converter</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-a-fair-assessment-unveiling-recordcasts-capabilities-for-2024/"><u>[Updated] A Fair Assessment Unveiling RecordCast's Capabilities for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-elated-user-entryways-and-exits/"><u>2024 Approved Elated User Entryways & Exits</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-ocr-rpa49/"><u>伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatisierte-rechnungsbearbeitung-fur-energielieferanten-mit-branchenrelevanz-empfehlungen-von-abbyy/"><u>Automatisierte Rechnungsbearbeitung Für Energielieferanten Mit Branchenrelevanz – Empfehlungen Von ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-site-traffic-with-cookiebot-integration-strategies/"><u>Boost Site Traffic with Cookiebot Integration Strategies</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-web-visibility-instantly-using-the-powerful-cookiebot-seo-tech/"><u>Boost Web Visibility Instantly Using the Powerful Cookiebot SEO Tech</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/carlsberg-accelere-son-debut-en-mer-avec-la-technologie-abbyy-un-nouveau-partenariat-industriel/"><u>Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/enhancing-file-visibility-strategic-application-of-descriptions/"><u>Enhancing File Visibility: Strategic Application of Descriptions</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-hot-30i-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Infinix Hot 30i Phone without Any Data Loss</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-samsung-galaxy-s23-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Samsung Galaxy S23</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-the-art-of-visual-flow-with-kinemaster/"><u>[New] Mastering the Art of Visual Flow with Kinemaster</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-tailoring-content-to-engage-an-igtv-video-dimension-blueprint/"><u>[New] Tailoring Content to Engage An IGTV Video Dimension Blueprint</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-youtubers-guide-to-picking-perfect-recording-tools/"><u>2024 Approved The YouTuber's Guide to Picking Perfect Recording Tools</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/amp-up-your-audio-game-with-top-4-budget-convert-apps/"><u>Amp Up Your Audio Game with Top 4 Budget Convert Apps</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-apple-iphone-13-pro-and-ipad-screen-mirroring-app-drfone-by-drfone-ios/"><u>Best Apple iPhone 13 Pro & iPad Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Website's User Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-enhanced-personalization-and-engagement/"><u>Cookiebot-Enabled Sites: Enhanced Personalization & Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-optimizing-your-site-with-advanced-analytics/"><u>Cookiebot-Enhanced: Optimizing Your Site with Advanced Analytics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-your-channels-moniker-youtube-naming-tools-and-tips-for-2024/"><u>Craft Your Channel's Moniker YouTube Naming Tools and Tips for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-enhancing-online-personalization/"><u>Driven by Cookiebot: Enhancing Online Personalization</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-with-innovative-cookiebot-technology/"><u>Driven with Innovative Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-online-experience-with-cookiebot-power-solutions-for-superior-user-targeting-and-retention/"><u>Elevate Online Experience with Cookiebot Power Solutions for Superior User Targeting and Retention</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/embracing-innovative-mobility-learn-with-us-on-the-abbyy-blog/"><u>Embracing Innovative Mobility - Learn with Us on the ABBYY Blog</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-online-performance-using-the-powerful-features-of-cookiebot-technology/"><u>Enhance Online Performance Using the Powerful Features of Cookiebot Technology</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-frame-perfection-top-10-tools-to-edge-your-instagram-content/"><u>In 2024, Frame Perfection Top 10 Tools to Edge Your Instagram Content</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722971545650-quick-access-get-your-ft232r-usb-to-uart-serial-converter-drivers-instantly/"><u>Quick Access: Get Your FT232R USB to UART Serial Converter Drivers Instantly!</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/the-next-gen-mac-data-rescue-stellar-unleashed/"><u>The Next-Gen Mac Data Rescue - Stellar Unleashed</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-xiaomi-redmi-note-12-5g-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Xiaomi Redmi Note 12 5G? | Dr.fone</u></a></li>
 </ul></div>
 

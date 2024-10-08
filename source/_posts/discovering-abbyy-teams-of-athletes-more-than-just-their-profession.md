@@ -1,7 +1,7 @@
 ---
 title: "Discovering ABBYY Teams of Athletes: More than Just Their Profession"
-date: 2024-09-30T16:06:13.260Z
-updated: 2024-10-03T08:57:18.406Z
+date: 2024-10-04T17:40:44.458Z
+updated: 2024-10-08T18:23:43.705Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b88f149e018190d8db992f5fa62ce84a76816eeb035902ad86368ed1da64a17e.jpg
@@ -23,10 +23,10 @@ Welcome to another article in our "Beyond the Job Title" series, where we explor
 ![pierre-abbyy-body-builder-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-sports-enthusiasts-of-abbyy/pierre-abbyy-body-builder-848.png?h=564&w=848)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Pierre Van der Westhuizen's journey in fitness began with a love for tennis and evolved into a lifelong commitment to bodybuilding. He shares his story and insights on how his dedication to fitness impacts his role at ABBYY where he now leads our “Fitness and Nutrition” employee initiative group, inspiring our colleagues and building a community of like-minded individuals in our team.
@@ -48,10 +48,10 @@ When asked this question, Pierre was quick to correct us “bodybuilding is not 
 Bodybuilding has taught Pierre valuable lessons in discipline and consistency. "There really are no secrets, you show up and do the work!" He also highlights how the sport teaches perseverance through challenging tasks and fosters a sense of community and mentorship. These skills translate well into his professional life, helping him approach work with the same dedication and willingness to share knowledge.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Greta Banaityte, Field Marketing and Demand Generation Specialist, UK
@@ -71,6 +71,13 @@ Kickboxing provides Greta with a great way to stay active and unwind, ensuring s
 ##### Are there any skills you developed practicing kickboxing that are transferable to your work at ABBYY, or any learnings that you can apply in your day job?
 
 Several skills and lessons from kickboxing are highly transferable to Greta's work at ABBYY. She highlights patience and stamina as invaluable when managing various marketing situations. "Kickboxing has taught me the importance of perseverance," she notes, explaining how this mindset helps her navigate setbacks. Additionally, kickboxing has shown her not to be intimidated by others, allowing her to approach interactions with courage and determination. “Everyone has their weak spots, and this understanding helps me approach interactions with confidence and assertiveness, ensuring that my voice and ideas are heard within the team”, she told us.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Aniko Biro, Hungary-based Customer Excellence Business Operations Specialist, Hungary
 
@@ -99,22 +106,15 @@ Aniko highlights several transferable skills developed through her gym training:
 * Time Management: Balancing gym time with other responsibilities improves her ability to manage time efficiently, ensuring she stays productive both at work and in her personal life.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Oksana Motrunchyk, Renewals Manager, Ukraine
 
 ![oksana-abbyy-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-sports-enthusiasts-of-abbyy/oksana-abbyy-848.png)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Oksana found her passion in powerlifting, a sport that has significantly influenced her professional life at ABBYY. Here’s how her dedication to powerlifting helps her achieve a better work-life balance and develop essential skills.
 
@@ -193,16 +193,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-boosting-engagement-and-followers-in-igtv-with-smart-hash-tagging/"><u>[New] Boosting Engagement and Followers in IGTV with Smart Hash Tagging</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-precision-editing-perfecting-the-art-of-fades-in-pro/"><u>[New] In 2024, Precision Editing Perfecting the Art of Fades in Pro</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-twitter-vids-deep-dive-a-comprehensive-handbook/"><u>[Updated] 2024 Approved Twitter Vids Deep Dive A Comprehensive Handbook</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-mastering-the-art-of-online-conference-coordination/"><u>2024 Approved Mastering the Art of Online Conference Coordination</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-auditing-initiatives-boosted-by-ab-inbevs-backing-of-forhumanity/"><u>AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-traffic-with-cookiebot-technology-smart-analytics-tools/"><u>Boosting Web Traffic with Cookiebot Technology - Smart Analytics Tools!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-battre-en-regle-les-plateformes-financieres-numeriques-natives-decouvrez-notre-verification-complete-par-abbyy/"><u>Comment Battre en Règle Les Plateformes Financières Numériques Natives : Découvrez Notre Vérification Complète Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-for-seamless-customer-experience-tracking/"><u>Cookiebot-Driven Insights for Seamless Customer Experience Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-leading-ai-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Leading AI Technology</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Honor Magic 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-oppo-find-n3-flip-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Oppo Find N3 Flip Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-peekcapture-review-of-low-res-screen-grabs-for-2024/"><u>[New] PeekCapture Review of Low-Res Screen Grabs for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mobile-mastery-in-thumbnail-creation-for-engaging-youtube-videos-for-2024/"><u>[Updated] Mobile Mastery in Thumbnail Creation for Engaging YouTube Videos for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-peering-into-popularity-twitters-top-videos-for-2024/"><u>[Updated] Peering Into Popularity Twitter’s Top Videos for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/about-lava-yuva-2-frp-bypass-by-drfone-android/"><u>About Lava Yuva 2 FRP Bypass</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/from-alpine-adventures-to-digital-signatures-the-abbyy-guide-on-smartwatch-innovations-and-skiing-apps/"><u>From Alpine Adventures to Digital Signatures: The ABBYY Guide on Smartwatch Innovations and Skiing Apps</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/high-definition-video-refiner-for-pcmacos-for-2024/"><u>High Definition Video Refiner for PC/MacOS for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-14-pro-max-with-imei-code-by-drfone-ios/"><u>How to Unlock iPhone 14 Pro Max with IMEI Code?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-your-infinix-note-30-5g-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Infinix Note 30 5G Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovazione-in-cattolica-assicurazioni-con-elaborazione-documentale-intelligente-per-un-miglioramento-dei-servizi/"><u>Innovazione in Cattolica Assicurazioni Con Elaborazione Documentale Intelligente per Un Miglioramento Dei Servizi</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-and-conversion-use-ocr-technology-with-finereader-pdf/"><u>IPhone Document Scanning & Conversion: Use OCR Technology with FineReader PDF</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-smarter-web-presence-and-seo-success/"><u>Leverage Cookiebot Technology for Smarter Web Presence and SEO Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-tracking-discover-the-power-of-cookiebot-technology/"><u>Optimized with Automated Tracking: Discover the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-next-level-analytics-and-conversion-boost/"><u>Optimized With Cookiebot: Next-Level Analytics & Conversion Boost</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-6-causes-of-a-sluggish-iphone-and-simple-solutions/"><u>Top 6 Causes of a Sluggish iPhone & Simple Solutions</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/twitter-without-smiley-face-linuss-hidden-knowledge-trojan-breakdown-and-ai-errors-examined/"><u>Twitter Without Smiley Face, Linus’s Hidden Knowledge, Trojan Breakdown, & AI Errors Examined.</u></a></li>
 </ul></div>
 

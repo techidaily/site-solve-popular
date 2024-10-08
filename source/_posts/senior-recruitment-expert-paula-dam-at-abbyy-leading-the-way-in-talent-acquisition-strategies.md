@@ -1,7 +1,7 @@
 ---
 title: "Senior Recruitment Expert Paula Dam at ABBYY: Leading the Way in Talent Acquisition Strategies"
-date: 2024-09-27T16:40:29.328Z
-updated: 2024-10-02T16:36:30.027Z
+date: 2024-10-02T17:27:09.176Z
+updated: 2024-10-08T18:53:43.983Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8d42a5be41c7b4a2ee5933ca8170ed38361404ba710cadb2872cd630ac7e122c.jpg
@@ -30,16 +30,10 @@ I am the Senior Talent Acquisition Partner at ABBYY’s regional Asia-Pacific (A
 What I like about my job is engaging with different candidates across the region, building a network and relationship with external stakeholders as well as the internal stakeholders, and more importantly, finding the right talent for our teams!
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What does a typical day look like for you at ABBYY?
@@ -53,10 +47,10 @@ In the evening, I have a catch-up meeting with my manager, Talent Acquisition (T
 ![](https://static1.abbyy.com/abbyycommedia/37164/meet-paula-dam-1.png?width=750&height=570)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What was your previous experience before ABBYY?
@@ -71,6 +65,20 @@ The reason I accepted the offer from ABBYY was due to the company’s stance on 
 
 ![](https://static1.abbyy.com/abbyycommedia/37165/meet-paula-dam-2.png?width=750&height=570)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What keeps you going, and what are some highlights of your journey with ABBYY so far?
 
 Besides what made me join ABBYY, I think another important factor is what’s making me stay. For me, it’s the people – my colleagues in the Singapore office, Japan, and across ABBYY worldwide.
@@ -83,6 +91,13 @@ I am blessed to be part of ABBYY and surrounded by great leaders in the region, 
 
 ![](https://static1.abbyy.com/abbyycommedia/37166/meet-paula-dam-3.png?width=750&height=570)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Your top advice to someone joining ABBYY, and for someone joining ABBYY in a similar role?
 
 If you are someone who likes challenges, wants to make a change, and create something new, ABBYY will give you that opportunity. It’s a place where you will enjoy taking the initiative and figuring out new ways to work as if this is your own business. You are part of ABBYY and ABBYY is part of you.
@@ -90,10 +105,10 @@ If you are someone who likes challenges, wants to make a change, and create some
 ABBYY has more than 30 years in the business yet, in many ways, it maintains a startup mentality. Your experience and ideas will be somehow utilized, and you’ll be a great contribution to our organization. It’s an adult working environment. You just need some principal guidelines, and then you can ride the boat as a ‘captain’ in your field.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### We know that you are living an active lifestyle. Tell us more about it, how do you spend your free time?
@@ -112,29 +127,9 @@ I don’t really believe in wishes coming true or hypotheses. If you want someth
 
 ![](https://static1.abbyy.com/abbyycommedia/37167/meet-paula-dam-4.png?width=750&height=570)
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What is your definition of work-life balance?
 
 It’s when I am excited about starting work in the morning, continue to enjoy it during the day and at the same time have my personal life fulfilled. It's when I am going to sleep happily knowing that I have had a fulfilled and meaningful, yet challenging day!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Lastly, could you recommend us a book/movie/series/ or activity you have recently discovered or are enjoying at the moment? What’s so great about it?
 
@@ -148,13 +143,6 @@ There are two books I recommend:
 * _The Art of Communicating_ by Thich Nhat Hanh
 
 Both books can be easily found on the internet and if you prefer audiobooks, they are available for free on YouTube!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Interested in joining the ABBYY team? Please check the vacancies below and apply!
 
@@ -235,18 +223,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-strategies-for-smooth-clear-sound-in-zoom-powered-podcasts/"><u>[New] 2024 Approved Strategies for Smooth, Clear Sound in Zoom-Powered Podcasts</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-immerse-in-world-heritage-through-vr/"><u>[New] Immerse in World Heritage Through VR</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-top-10-windows-11-webcam-capturers-for-2024/"><u>[Updated] Top 10 Windows 11 Webcam Capturers for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/6-proven-ways-to-unlock-oppo-a78-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Oppo A78 Phone When You Forget the Password</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-dominates-2022-spark-matrix-rankings-by-quadrant-knowledge-solutions-for-advanced-document-analysis/"><u>ABBYY Dominates 2022 SPARK Matrix Rankings by Quadrant Knowledge Solutions for Advanced Document Analysis</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-leadership-in-customer-excellence-meet-larysa-lototska/"><u>ABBYY's Leadership in Customer Excellence: Meet Larysa Lototska</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyyocr/"><u>ABBYY組み込みOCR採用：東芝テックの新シリーズ印刷機</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-asteriaflexicapture-cloud/"><u>ABBYYブログで紹介! ASTERIAとFlexiCapture Cloudに対応した高度な画面分析テンプレート - 最新技術の解説</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-strategy-shifts-global-economys-influence-explored-in-comprehensive-intelligence-automation-overview/"><u>AI Strategy Shifts: Global Economy's Influence Explored in Comprehensive Intelligence Automation Overview</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversions-using-the-latest-cookiebot-technology-features/"><u>Boost Conversions Using the Latest Cookiebot Technology Features</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/cure-for-the-vanished-watch-video-icon-2023-edition-for-2024/"><u>Cure for the Vanished Watch Video Icon, 2023 Edition for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-leverage-smart-organization-in-mematic/"><u>In 2024, Leverage Smart Organization in Mematic</u></a></li>
-<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-from-your-iphone-13-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled From your iPhone 13? How to Fix</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-ultimate-how-to-for-multi-snapping-with-snapchat-for-2024/"><u>[New] The Ultimate How-To for Multi-Snapping with Snapchat for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-unveiling-the-secrets-share-images-professionally-on-youtube-for-2024/"><u>[New] Unveiling the Secrets Share Images Professionally on YouTube for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-achieving-realistic-blur-on-images-using-photoshop-techniques/"><u>[Updated] In 2024, Achieving Realistic Blur on Images Using Photoshop Techniques</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/detecting-fraudulent-gpt-based-messengers-on-your-iphones-app-store/"><u>Detecting Fraudulent GPT-Based Messengers on Your iPhone's App Store</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/discovering-the-digital-core-with-toms-computer-components-guides/"><u>Discovering the Digital Core with Tom’s Computer Components Guides</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortless-business-automation-harnessing-the-power-of-zero-coding-ai-tools/"><u>Effortless Business Automation: Harnessing the Power of Zero-Coding AI Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-digital-marketing-with-the-cookiebot-advantage/"><u>Enhance Your Digital Marketing with the Cookiebot Advantage</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-site-performance-with-the-help-of-cookiebot-technology/"><u>Enhanced Site Performance with the Help of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-business-results-three-key-strategies-with-ai-and-smart-automation/"><u>Enhancing Business Results: Three Key Strategies with AI & Smart Automation</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/experience-advanced-audience-engagement-using-smart-tracking-cookiebot-technology/"><u>Experience Advanced Audience Engagement Using Smart Tracking - Cookiebot Technology</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-iphone-7-backup-password-heres-what-to-do-by-drfone-ios/"><u>Forgot iPhone 7 Backup Password? Heres What to Do</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/geschwindige-zollabwicklung-warentransport-von-uk-nach-eu-beschleunigt-auf-unter-5-minuten/"><u>Geschwindige Zollabwicklung: Warentransport Von UK Nach EU Beschleunigt Auf Unter 5 Minuten</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/get-abbyy-textgrabber-free-new-on-the-fly-translating-capabilities-for-android-devices/"><u>Get ABBYY TextGrabber Free: New On-the-Fly Translating Capabilities for Android Devices</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-12-pro-max-by-phone-number-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 12 Pro Max by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-meizu-21-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Meizu 21 to Roku | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leverage-enhanced-user-experience-websites-boosted-using-the-powerful-cookiebot-platform/"><u>Leverage Enhanced User Experience: Websites Boosted Using the Powerful Cookiebot Platform</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-and-repairing-realtek-sound-output-issues-success-stories/"><u>Troubleshooting and Repairing Realtek Sound Output Issues - Success Stories</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/troubleshooting-apple-tv-for-facebook-content-for-2024/"><u>Troubleshooting Apple TV for Facebook Content for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iuocreodoplusodgplusoctplusodpeodleodreodvoacgombqewmluaipuevptog44ki44ow44ot44o86kqn5a6a44ob44kn44od44kv44oq44k544oi44gn6kal44gk44gr44kl5paw44gx44ge5lql5qw25/"><u>キャッシュフロー最適化戦略: アブビー認定チェックリストで見つける新しい事業機会</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内
-date: 2024-09-27T08:11:47.839Z
-updated: 2024-10-02T19:46:40.972Z
+date: 2024-10-01T16:06:26.693Z
+updated: 2024-10-08T16:33:27.709Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d9925e82a959f50569bbd42483d903b11385c17bd02f16f205258c110d37af55.jpg
@@ -48,10 +48,10 @@ ABBYY Proof of Identityの詳細は、[こちら](https://tools.techidaily.com/a
 _1 Gartner、「Buyer’s Guide for Identity Proofing（身元保証のためのバイヤーズガイド）」（2021年4月7日発行）_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYYについて
@@ -67,10 +67,16 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 報道関係者お問い合わせ先
@@ -97,18 +103,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-anglers-guide-to-premium-fishing-cameras/"><u>[New] 2024 Approved Angler’s Guide to Premium Fishing Cameras</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-crafting-captivating-content-the-power-of-hashtagging-in-gaming-yt/"><u>[New] In 2024, Crafting Captivating Content The Power of Hashtagging in Gaming YT</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-green-thumbs-up-the-best-farming-titles-for-group-playtime-for-2024/"><u>[Updated] Green Thumbs Up The Best Farming Titles for Group Playtime for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/becoming-a-onestream-pro-tips-and-tricks-from-the-pros/"><u>Becoming a OneStream Pro Tips and Tricks From the Pros</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/dvdpalntsc/"><u>DVDフォーマットのPAL/NTSC変換について学ぶ - ステップバイステップチュートリアル</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evolving-towards-process-intelligence-insightful-strategies-from-abbyys-leading-expert/"><u>Evolving Towards Process Intelligence: Insightful Strategies From ABBYY's Leading Expert</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-artificial-intelligence-frontiers-at-abbyy-event-shaping-tomorrows-tech-landscape/"><u>Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-troubleshoot-and-repair-disconnected-media-on-windows-systems/"><u>How To: Troubleshoot and Repair Disconnected Media on Windows Systems</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-youtubes-shorts-thumbnail-dilemnas-and-quick-fixes/"><u>In 2024, YouTube's Shorts Thumbnail Dilemnas & Quick Fixes</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/laymans-how-to-initiating-your-membership-on-the-playstation-community-site/"><u>Layman's How-To: Initiating Your Membership on the PlayStation Community Site</u></a></li>
-<li><a href="https://win11.techidaily.com/unveiling-driver-verifier-within-win11-control-panel/"><u>Unveiling Driver Verifier Within Win11 Control Panel</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-8-best-5k-monitors-for-you-for-2024/"><u>[New] 8 Best 5K Monitors for You for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-professional-video-tweaks-with-these-top-8-free-editing-apps/"><u>[New] In 2024, Professional Video Tweaks with These Top 8 Free Editing Apps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-charting-the-differences-in-youtubes-ownership-and-cc-models/"><u>[Updated] 2024 Approved Charting the Differences in YouTube's Ownership and CC Models</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-big-sur-unveiled-your-guide-to-a-flawless-mac-os-shift/"><u>2024 Approved Big Sur Unveiled Your Guide to a Flawless Mac OS Shift</u></a></li>
+<li><a href="https://fox-http.techidaily.com/complete-evaluation-the-dji-inspire-1-unveiled-for-2024/"><u>Complete Evaluation The DJI Inspire 1 Unveiled for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-automation-enhancing-your-digital-marketing-efforts/"><u>Cookiebot-Driven Automation: Enhancing Your Digital Marketing Efforts</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-solutions-enhanced-site-traffic-and-conversion/"><u>Cookiebot-Driven Solutions | Enhanced Site Traffic & Conversion</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-websites-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's Analytics & Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-boosting-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Boosting Your Site with Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-backbone-of-personalized-web-interactions/"><u>Cookiebot: The Backbone of Personalized Web Interactions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-efficient-and-smart-powering-behind-your-web-analytics/"><u>Cookiebot: The Efficient and Smart Powering Behind Your Web Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cut-invoice-processing-time-in-half-using-norco-technology/"><u>Cut Invoice Processing Time in Half Using Norco Technology</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-samsung-galaxy-z-flip-5-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Samsung Galaxy Z Flip 5? Fixed | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/premier-mobile-platforms-for-enhanced-dji-cinematography-for-2024/"><u>Premier Mobile Platforms for Enhanced DJi Cinematography for 2024</u></a></li>
 </ul></div>
 

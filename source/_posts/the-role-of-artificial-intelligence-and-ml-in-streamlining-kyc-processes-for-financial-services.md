@@ -1,7 +1,7 @@
 ---
 title: The Role of Artificial Intelligence & ML in Streamlining KYC Processes for Financial Services.
-date: 2024-10-01T21:13:58.501Z
-updated: 2024-10-02T16:44:31.771Z
+date: 2024-10-01T17:54:09.036Z
+updated: 2024-10-08T17:48:03.561Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/88c6b83c6e65598f301ec5b1e8fb9b13fd16a0c81d9ff03972a4b84d06ac7c03.jpg
@@ -20,10 +20,10 @@ La banque est le secteur d’activité le plus coûteux en matière de cyberatta
 Les institutions financières s’appuient de plus en plus sur l’automatisation, les technologies mobiles et les interactions sans contact pour gagner en productivité, mais ces mesures peuvent aussi être sources de nouvelles vulnérabilités que les cybercriminels exploitent. Comment les institutions financières peuvent-elles contrecarrer avec succès le flux constant d’attaques ?
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Télécharger maintenant!
@@ -37,16 +37,10 @@ Téléchargez cet eBook pour découvrir comment la Digital Intelligence permet a
 * Découvrir les schémas de comportements suspects dans les processus
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Merci de votre intérêt pour ABBYY.
@@ -56,10 +50,10 @@ Téléchargez cet eBook pour découvrir comment la Digital Intelligence permet a
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
@@ -131,18 +125,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-comparing-the-gopro-max-360-and-hero-11-determining-the-superior-gopro-video-camera/"><u>[New] Comparing the GoPro Max 360 and Hero 11 Determining the Superior GoPro Video Camera</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-mastering-memory-allocation-elevating-minecraft-experience/"><u>[New] In 2024, Mastering Memory Allocation Elevating Minecraft Experience</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-step-by-step-to-maximizing-adobe-storages-and-exploring-more/"><u>2024 Approved Step-by-Step to Maximizing Adobe Storages and Exploring More</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/accessing-global-events-facebook-live-on-roku-devices-for-2024/"><u>Accessing Global Events Facebook Live on Roku Devices for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-un-logiciel-dabbyy-optimise-le-travail-des-cabinets-davocats-londoniens-pour-la-gestion-efficace-de-procedures-essentielles/"><u>Comment Un Logiciel D'ABBYY Optimise Le Travail Des Cabinets D’avocats Londoniens Pour La Gestion Efficace De Procédures Essentielles</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-elevate-your-sites-user-experience/"><u>Cookiebot-Enabled Analytics: Elevate Your Site's User Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-user-experience-enhancement/"><u>Cookiebot-Enabled User Experience Enhancement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-cutting-edge-analytics/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Cutting-Edge Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-drive-better-conversions-with-smart-traffic/"><u>Cookiebot-Enhanced: Drive Better Conversions with Smart Traffic</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/drive-engagement-using-the-advanced-capabilities-of-cookiebot/"><u>Drive Engagement Using the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Lava Yuva 2 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/launching-into-creation-equipment-essentials-for-youtubers/"><u>Launching Into Creation Equipment Essentials for YouTubers</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/samsung-and-sk-hynix-cease-ddr3-manufacturing-prioritizing-the-surge-in-hbm3-memory-chip-demand/"><u>Samsung & SK Hynix Cease DDR3 Manufacturing: Prioritizing the Surge in HBM3 Memory Chip Demand</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-fb-content-design-the-right-orientation-for-your-videos/"><u>[New] 2024 Approved FB Content Design The Right Orientation for Your Videos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-downloading-youtubes-iconic-icons-via-web-windowsmac-methods-for-2024/"><u>[New] Downloading YouTube's Iconic Icons via Web, Windows/Mac Methods for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-video-lessons-to-visual-gigs-youtube-videos-converted-seamlessly/"><u>[New] In 2024, From Video Lessons to Visual Gigs YouTube Videos Converted Seamlessly</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-analyzing-the-precision-of-yis-4k-actioncam/"><u>[Updated] Analyzing the Precision of Yi's 4K ActionCam</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-audiences-in-motion-analyzers-for-2024/"><u>[Updated] Audiences in Motion Analyzers for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-unleash-potential-secrets-for-career-growth-in-designing/"><u>[Updated] Unleash Potential Secrets for Career Growth in Designing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leveraging-cookiebot-technology-for-improved-website-engagement/"><u>Leveraging Cookiebot Technology for Improved Website Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/master-your-connections-using-ios-12-features-for-business-cards-tips-from-abbyb-log/"><u>Master Your Connections Using iOS 12 Features for Business Cards - Tips From ABBYB Log</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-the-art-of-running-vintage-software-on-your-latest-windows-11-system/"><u>Mastering the Art of Running Vintage Software on Your Latest Windows 11 System</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/maximize-engagement-with-advanced-analytics-the-cookiebot-integration-advantage/"><u>Maximize Engagement with Advanced Analytics: The Cookiebot Integration Advantage</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/maximizing-page-visibility-a-guide-to-advanced-seo-techniques/"><u>Maximizing Page Visibility: A Guide to Advanced SEO Techniques</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimize-with-cookiebot-advanced-tools-for-superior-web-engagement-and-personalization/"><u>Optimize With Cookiebot: Advanced Tools for Superior Web Engagement and Personalization</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-enhancing-your-sites-visibility/"><u>Optimized with Cookiebot Technology: Enhancing Your Site's Visibility</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-the-latest-from-cookiebot-enhance-your-websites-analytics-today/"><u>Optimized with the Latest From Cookiebot: Enhance Your Website's Analytics Today!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimizing-microsoft-sharepoint-workflows-with-cutting-edge-ocr-capabilities-from-abbyy-experts/"><u>Optimizing Microsoft SharePoint Workflows with Cutting-Edge OCR Capabilities From ABBYY Experts</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/our-selection-of-the-cream-of-the-crop-in-iphone-gps-software/"><u>Our Selection of the Cream of the Crop in iPhone GPS Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/penning-podcasts-to-perfection-a-compreomed-writers-guide/"><u>Penning Podcasts to Perfection A Compreomed Writer’s Guide</u></a></li>
 </ul></div>
 

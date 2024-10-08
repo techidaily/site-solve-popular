@@ -1,7 +1,7 @@
 ---
 title: "Enhanced with Advanced Automation: Powered by the Cutting-Edge Cookiebot Technology"
-date: 2024-09-29T16:00:44.073Z
-updated: 2024-10-02T17:41:13.347Z
+date: 2024-10-05T17:49:06.080Z
+updated: 2024-10-08T17:03:27.760Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b19b440ee033b062893436bff7c73d55af4b510d997596576ac31f3af838cbea.jpg
@@ -35,13 +35,6 @@ _Edd Berry, Programme Finance Director, Manchester University NHS Foundation Tru
 
 [Watch the recent webinar: Revolutionize Your Document Processes with No-Code Technology](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Growing catalog of pre-trained skills
 
 Last year, we introduced the [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/), providing users with access to a catalog of pre-trained document skills (models) and other assets like connectors. And thanks to the Vantage capability to further train document skill models, customers can further train skills on their own documents. This saves a significant amount of time up front with training skill models and makes it possible to achieve the desired accuracy that results in less human work.
@@ -62,10 +55,10 @@ The latest set of new document skills include:
 All these skills are available to try out simply by downloading them from the [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Vantage release 2.3 highlights
@@ -75,6 +68,13 @@ All these skills are available to try out simply by downloading them from the [A
 In the latest [Vantage release](https://tools.techidaily.com/abbyy/products/), we’re continuing to invest in several key areas, including the core artificial intelligence (AI) document understanding technology that powers Vantage pre-trained classification and document skills, the human-in-the-loop user experience to get work done, and lastly, investing heavily into developing and improving existing pre-trained document skill models.
 
 Together, these enhancements make it easier to deploy IDP solutions taking a no-code / low-code approach. Take, for example, processing data from invoices. This not only starts with identifying the vendor invoice and extracting data but often requires detecting the start and end of many invoices in one PDF file. Available in the Vantage release is a new document splitting skill, where Vantage will auto-detect the start and end of a multi-page document like an invoice, eliminating any manual work that would otherwise be required.
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Turn your documents into actionable data
 
@@ -86,13 +86,6 @@ The ability to extract table data can be challenging with documents like invoice
 
 It is also worth highlighting the latest ABBYY announcement on [ABBYY Proof of Identity](https://tools.techidaily.com/abbyy/products/), delivering instant identity proofing and affirmation as part of customer onboarding, new account opening, claims, and enrollment processes. It is the point where the customer provides proof of their identity via ID cards, photos, and supporting documents, so the business can determine that they are who they say they are.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Get started today!
 
 We’re very excited about the latest [Vantage](https://tools.techidaily.com/abbyy/products/) 2.3 release as we continue to advance the core AI document understanding technology, build pre-trained skills (models), and align with businesses to simplify document automation. You can learn more about all this exciting release by registering for the upcoming [Vantage 2.3 webinar](https://tools.techidaily.com/abbyy/products/) and try out the new capabilities in your Vantage tenant or [request a demo](https://tools.techidaily.com/abbyy/products/).
@@ -101,13 +94,20 @@ We’re very excited about the latest [Vantage](https://tools.techidaily.com/abb
 
 ![Bill Galusha ABBYY](https://static5.abbyy.com/abbyycommedia/25718/billgalusha-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Bill Galusha
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -173,20 +173,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://solve-popular.techidaily.com/boosting-web-traffic-with-cookiebot-technology-smart-analytics-tools/"><u>Boosting Web Traffic with Cookiebot Technology - Smart Analytics Tools!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-battre-en-regle-les-plateformes-financieres-numeriques-natives-decouvrez-notre-verification-complete-par-abbyy/"><u>Comment Battre en Règle Les Plateformes Financières Numériques Natives : Découvrez Notre Vérification Complète Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-for-seamless-customer-experience-tracking/"><u>Cookiebot-Driven Insights for Seamless Customer Experience Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-leading-ai-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Leading AI Technology</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-capture-video-like-a-pro-on-modern-laptops-for-2024/"><u>[New] Capture Video Like a Pro on Modern Laptops for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-how-to-live-stream-xbox-to-facebook-live/"><u>[Updated] In 2024, How to Live Stream Xbox to Facebook Live</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-iconic-inning-cameo-examination/"><u>[Updated] In 2024, Iconic Inning - Cameo Examination</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-unleash-the-power-of-automated-conversions/"><u>Cookiebot-Enhanced: Unleash the Power of Automated Conversions</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/cookiebot-unleashing-advanced-tracking-solutions-for-your-websites-success/"><u>Cookiebot: Unleashing Advanced Tracking Solutions for Your Website's Success</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/data-driven-personalization-through-smart-analytics-solutions/"><u>Data-Driven Personalization Through Smart Analytics Solutions</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-pictures-from-oppo-reno-11-pro-5g-by-fonelab-android-recover-pictures/"><u>Easy steps to recover deleted pictures from Oppo Reno 11 Pro 5G.</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-3-easy-methods-to-unlock-icloud-locked-iphone-6sipadipod-by-drfone-ios/"><u>In 2024, 3 Easy Methods to Unlock iCloud Locked iPhone 6s/iPad/iPod</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Nokia 150 (2023) | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Share/Fake Location on WhatsApp for Apple iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-poco-c55-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Poco C55 | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-no-cost-treasures-aplus-ae-template-collections/"><u>In 2024, No-Cost Treasures A+ AE Template Collections</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/reinstate-crystal-clear-zoom-sound/"><u>Reinstate Crystal-Clear Zoom Sound</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/why-are-your-video-shorts-thumbnails-not-showing-in-2024/"><u>Why Are Your Video Shorts' Thumbnails Not Showing, In 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/demystifying-rpa-insights-from-the-abbyy-experts-guide/"><u>Demystifying RPA: Insights From the ABBYY Expert's Guide</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/desamorcez-votre-gestion-des-credits-immobiliers-grace-a-levolutif-et-performant-service-de-dematerialisation-la-caisse-depargne-bretagne-pays-de-loire/"><u>Désamorcez Votre Gestion Des Crédits Immobiliers Grâce À L'évolutif Et Performant Service De Dématérialisation La Caisse D’Epargne Bretagne Pays De Loire</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Oppo A78 5G? | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-your-site-performance-using-cookiebot-technology/"><u>Elevate Your Site Performance Using Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/empowering-website-insights-with-cookiebot-advanced-tracking-solutions-for-improved-seo/"><u>Empowering Website Insights with Cookiebot: Advanced Tracking Solutions for Improved SEO</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-site-performance-with-our-cookiebot-integrated-tools/"><u>Enhance Site Performance with Our Cookiebot Integrated Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-website-traffic-analysis-with-our-advanced-cookiebot-technology-solutions/"><u>Enhance Website Traffic Analysis with Our Advanced Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://fox-that.techidaily.com/improve-cellular-connection-fast-follow-these-essential-tips-for-enhanced-performance/"><u>Improve Cellular Connection Fast - Follow These Essential Tips for Enhanced Performance</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-tecno-spark-20-proplus-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Tecno Spark 20 Pro+ PC | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-android-and-iphone-select-top-tier-mobile-multimedia-tools/"><u>In 2024, Android & iPhone Select Top-Tier Mobile Multimedia Tools</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-motorola-moto-e13-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Motorola Moto E13 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-in-this-article-we-are-going-to-take-you-through-15-best-apps-you-can-use-to-cartoon-yourself-and-increase-the-number-of-likes-your-posts-on-all/"><u>New In 2024, In This Article We Are Going to Take You Through 15 Best Apps You Can Use to Cartoon Yourself and Increase the Number of Likes Your Posts on All Major Social Media Platforms Are Getting</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-least-expensive-skyvault-service-for-big-files-for-2024/"><u>The Least Expensive SkyVault Service for Big Files for 2024</u></a></li>
 </ul></div>
 

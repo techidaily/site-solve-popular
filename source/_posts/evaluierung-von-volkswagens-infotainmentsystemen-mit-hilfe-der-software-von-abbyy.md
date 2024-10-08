@@ -1,7 +1,7 @@
 ---
 title: Evaluierung Von Volkswagens Infotainmentsystemen Mit Hilfe Der Software Von ABBYY
-date: 2024-09-27T17:14:11.778Z
-updated: 2024-10-03T05:24:07.894Z
+date: 2024-10-06T18:06:19.718Z
+updated: 2024-10-08T16:07:58.942Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3092233dd7a3eec690ede8061b1cb9bd7087808138a5d4f0dd6cc9938518b6ac.jpg
@@ -19,13 +19,6 @@ Automotive | Testing Automation/Machine Vision
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Der Volkswagen Konzern testet seine Infotainment-Systeme mit ABBYY FineReader Engine
 
 Automobilbranche | Machine Vision 
@@ -33,10 +26,10 @@ Automobilbranche | Machine Vision
 ![](https://static1.abbyy.com/abbyycommedia/14844/cs-vw-556x303.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Über den Kunden
@@ -44,10 +37,10 @@ Automobilbranche | Machine Vision
 ![Volkswagen Konzern](https://static2.abbyy.com/abbyycommedia/1003/vw_155x80.gif) 
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name                  | Volkswagen Konzern                                                                     |
@@ -98,10 +91,10 @@ Die Testabteilung stellte hohe Anforderungen an den Einsatz der ABBYY OCR Engine
 [![FineReader Engine](https://static2.abbyy.com/abbyycommedia/14346/3-finereader-engine.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FineReader Engine](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
@@ -117,6 +110,13 @@ Die Testabteilung stellte hohe Anforderungen an den Einsatz der ABBYY OCR Engine
 ###### Like, share or repost
 
 Teilen  True ?  : "" 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
@@ -139,17 +139,19 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-from-laughter-to-devices-downloading-twitters-animated-fun/"><u>[Updated] In 2024, From Laughter to Devices Downloading Twitter's Animated Fun</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-premier-imagery-capture-insight/"><u>2024 Approved Premier Imagery Capture Insight</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-global-idp/"><u>ABBYY Global IDPトレンドの最新発表:成果報告書解説</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-presente-ses-innovantes-technologies-ia-pour-lextraction-de-donnees-au-salon-banque-and-innovation-evenement-cle-2018/"><u>ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-advanced-language-translator-powered-by-ntt-docomo-features-ocr-for-multilingual-support/"><u>ABBYY's Advanced Language Translator - Powered by NTT DOCOMO, Features OCR for Multilingual Support</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-sdgs/"><u>ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/double-location-dongle-all-to-know-about-apple-iphone-15ipad-gps-spoofing-drfone-by-drfone-virtual-ios/"><u>Double Location Dongle All to Know About Apple iPhone 15/iPad GPS Spoofing | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/dynamic-dividends-boosting-social-media-roi-with-fb-ad-animations-for-2024/"><u>Dynamic Dividends Boosting Social Media ROI with FB Ad Animations for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Realme C67 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/iphones-finest-leading-cost-free-photo-layout-apps-ranked/"><u>IPhone's Finest Leading Cost-Free Photo Layout Apps Ranked</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/trasforma-i-tuoi-video-mov-in-mp3-gratuitamente-online-utilizzando-il-servizio-affidabile-di-movavi/"><u>Trasforma I Tuoi Video MOV in MP3 Gratuitamente Online Utilizzando Il Servizio Affidabile Di Movavi</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-the-ultimate-list-of-lego-stop-motion-experts-for-2024/"><u>Updated The Ultimate List of Lego Stop Motion Experts for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-breaking-into-twitter-live-your-strategy/"><u>[New] Breaking Into Twitter Live Your Strategy</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-examining-the-effectiveness-of-selfie-validation-on-instagram-for-2024/"><u>[New] Examining the Effectiveness of Selfie Validation on Instagram for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-techniques-for-effective-capturing-of-chat-conversations/"><u>[Updated] Techniques for Effective Capturing of Chat Conversations</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/become-an-engaging-speaker-on-google-meet-platforms/"><u>Become an Engaging Speaker on Google Meet Platforms</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Website's User Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-enhanced-personalization-and-engagement/"><u>Cookiebot-Enabled Sites: Enhanced Personalization & Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-optimizing-your-site-with-advanced-analytics/"><u>Cookiebot-Enhanced: Optimizing Your Site with Advanced Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-enhancing-online-personalization/"><u>Driven by Cookiebot: Enhancing Online Personalization</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-with-innovative-cookiebot-technology/"><u>Driven with Innovative Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/elevate-online-experience-with-cookiebot-power-solutions-for-superior-user-targeting-and-retention/"><u>Elevate Online Experience with Cookiebot Power Solutions for Superior User Targeting and Retention</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-from-apple-iphone-14-plus-by-drfone-ios/"><u>How To Remove the Two Factor Authentication From Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-resolve-audio-issues-crackling-sounds-on-pc-windows-1/"><u>How to Resolve Audio Issues: Crackling Sounds on PC (Windows 1</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Itel S23+? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unleash-creativity-harnessing-gs-power-in-kinemaster/"><u>Unleash Creativity Harnessing GS Power in KineMaster</u></a></li>
 </ul></div>
 

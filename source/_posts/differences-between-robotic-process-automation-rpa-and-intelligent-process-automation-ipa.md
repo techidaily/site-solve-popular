@@ -1,7 +1,7 @@
 ---
 title: Differences Between Robotic Process Automation (RPA) and Intelligent Process Automation (IPA)
-date: 2024-09-26T03:55:54.286Z
-updated: 2024-10-03T03:51:22.396Z
+date: 2024-10-06T17:07:30.342Z
+updated: 2024-10-08T16:34:11.020Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6490fa2e8c158c917a608e37e654c53e5a410f7e37ed3b9237ae0e8dd67dcf2f.jpg
@@ -34,6 +34,13 @@ Jump to:
 [RPA vs. IPA: Which is best for your business?](https://tools.techidaily.com/abbyy/products/)  
 [Frequently asked questions](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What is RPA?
 
 **![How RPA Works - Robotic Process Automation](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/rpa-vs-ipa-2024-update/rpa-vs-ipa-how-rpa-works.png)**
@@ -41,6 +48,13 @@ Jump to:
 **Robotic process automation, or [RPA](https://tools.techidaily.com/abbyy/products/), is a technology that uses software robots to automate mundane, repetitive tasks typically performed by human workers**. These tasks may include data entry, moving files, or responding to simple customer queries. 
 
 With RPA, businesses can perform rule-based tasks at a faster speed and higher volume. RPA software integrates seamlessly with businesses' existing applications and systems. This makes it a cost-effective solution to streamline operational processes and free up employees to focus on value-adding activities.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How it works
 
@@ -68,23 +82,9 @@ RPA offers several benefits that help to eliminate process inefficiencies within
 
 **![How Intelligent Process Automation Works](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/rpa-vs-ipa-2024-update/how-intelligent-process-automation-works.png)**
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Intelligent process automation, or [IPA](https://tools.techidaily.com/abbyy/products/), is an advanced form of automation. It combines AI technologies, such as intelligent document processing, process mining, task mining, machine learning, natural language processing, and advanced analytics with automation technologies such as RPA to streamline complex business processes and mimic intelligent human decision-making.**
 
 Unlike [RPA](https://tools.techidaily.com/abbyy/products/), which focuses on automating repetitive tasks, IPA specializes in complex processes that involve unstructured data, decision-making, and learning from data over time.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How it works 
 
@@ -111,13 +111,6 @@ IPA offers significant benefits by merging RPA's structured automation with adva
 * **Scalability:** IPA offers the same scalability benefits as RPA, but on a broader scale. It enables businesses to automate more complex tasks and gather insights into customer and system user behaviors.
 * **Greater visibility and control:** Unlike RPA, IPA works with both structured and unstructured data. This gives businesses the ability to see and automate all their critical document-centric processes.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What’s the difference between RPA and IPA?
 
 The difference between [RPA](https://tools.techidaily.com/abbyy/products/) and IPA is that RPA automates repetitive, rule-based tasks, while IPA combines RPA with advanced AI technologies to automate more complex processes. RPA uses software bots to automate tasks that involve structured data, and typically are used for data entry, processing transactions, and responding to simple customer queries. The bots follow predefined rules and workflows, which is ideal for processes that don't need detailed analysis. 
@@ -133,16 +126,10 @@ IPA extends the capabilities of RPA by combining it with AI technologies, such a
 IPA is more suitable than RPA for tasks that may need in-depth analysis, such as claims handling and or loan processing.
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### RPA vs. IPA
@@ -154,22 +141,15 @@ IPA is more suitable than RPA for tasks that may need in-depth analysis, such as
 | **Process improvement**         | Automates repetitive tasks to improve efficiency | Optimizes complex processes to boost productivity, add visibility into real-time operations, and ensure compliance |
 | **Scalability**                 | Easily scaled for high-volume repetitive tasks   | Scales to handle more complex, dynamic operations                                                                  |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Examples of RPA and IPA in business processes
 
 Intelligent process automation (IPA) transforms business operations by enhancing efficiency and accuracy. Here are three examples of how RPA and IPA technologies are used in different industries.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### RPA in financial services
@@ -184,11 +164,25 @@ IPA can play a crucial role in reducing the manual tasks involved in [insurance]
 
 IPA also provides detailed insights into the operational performance of insurance processes. With this data, insurance businesses can identify further opportunities for process optimization.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### IPA in healthcare
 
 By leveraging IPA, [healthcare](https://tools.techidaily.com/abbyy/products/) providers can improve the quality and speed of patient care delivery. IPA automates processes such as patient registration, referral management, and claims processing, reducing the administrative burden on employees and facilitating efficient, accurate delivery of patient services.
 
 Healthcare institutions can also use IPA technology to improve the processes that drive healthcare delivery. Purpose-built AI solutions identify valuable areas for improvement and expedite the flow of information that improves patient outcomes and revenue cycle management. 
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## RPA vs. IPA: Which is best for your business?
 
@@ -297,22 +291,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-toptiktok-eats-10-famous-feast-fads/"><u>[New] 2024 Approved TopTiktok Eats 10 Famous Feast Fads</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-final-cut-pros-best-combo-of-10-vfx-plug-ins/"><u>[New] In 2024, Final Cut Pro's Best Combo of 10 VFX Plug-Ins</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-activating-built-in-recorders-on-mate-and-p-series-phones-mate-1020-p2010/"><u>[Updated] 2024 Approved Activating Built-In Recorders on Mate and P Series Phones (Mate 10/20; P20/10)</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-50plus-best-practices-in-video-text-design/"><u>[Updated] 50+ Best Practices in Video Text Design</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-a-beginners-guide-to-making-attractive-video-thumbnails-for-social-media-platforms/"><u>[Updated] A Beginner's Guide to Making Attractive Video Thumbnails for Social Media Platforms</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-gabrielle-lukianchuk-as-new-cmo-driving-company-expansion/"><u>ABBYY Welcomes Gabrielle Lukianchuk as New CMO, Driving Company Expansion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyyabbyy-proof-of-identity/"><u>ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-productivity-key-strategies-for-your-center-of-excellence-with-abbyy-plus-blue-prism-live-session/"><u>Boosting Productivity - Key Strategies for Your Center of Excellence with ABBYY + Blue Prism Live Session</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-twins-and-process-simulation-exploring-business-opportunity-expansion/"><u>Digital Twins and Process Simulation - Exploring Business Opportunity Expansion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/emotional-intelligence/"><u>Emotional Intelligence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/munchen-nutzt-abbyy-fur-die-modernisierung-und-digitale-speicherung-von-baurechnungen/"><u>München Nutzt ABBYY Für Die Modernisierung Und Digitale Speicherung Von Baurechnungen</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/revolutionize-virtual-participation-with-top-10-free-recorder-software/"><u>Revolutionize Virtual Participation with Top 10 Free Recorder Software</u></a></li>
-<li><a href="https://driver-download.techidaily.com/speedy-internet-on-windows-how-to-install-updated-gigabit-ethernet-usb-3n-driver/"><u>Speedy Internet on Windows: How to Install Updated Gigabit Ethernet USB 3.n Driver</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-tecno-spark-go-2023-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Tecno Spark Go (2023) Device</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/troubleshoot-and-reinstall-ralink-drivers-a-complete-walkthrough-for-windows-systems/"><u>Troubleshoot and Reinstall Ralink Drivers: A Complete Walkthrough for Windows Systems</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-the-legal-framework-abbyys-cloud-product-terms-end-to-end-privacy-standards-and-gdpr-provisions-explained/"><u>Understanding the Legal Framework: ABBYY's Cloud Product Terms, End-to-End Privacy Standards & GDPR Provisions Explained</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unleash-dynamic-user-experiences-with-cookiebot-technology/"><u>Unleash Dynamic User Experiences with Cookiebot Technology</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-smirk-studio-memomaker/"><u>[New] Smirk Studio MemoMaker</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-ultimate-picks-the-best-online-tools-for-downloading-vimeo-videos-for-2024/"><u>[New] Ultimate Picks The Best Online Tools for Downloading Vimeo Videos for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/update-wdcsam64prewin8sys-core-isolation-deactivated/"><u>[Update] wdcsam64_prewin8.sys: Core Isolation Deactivated</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/1716107367954-updated-in-2024-how-to-watch-facebook-live-on-roku/"><u>[Updated] In 2024, How to Watch Facebook Live on Roku</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-tegakiflexicaptureocr-abbyy/"><u>「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automatische-dokumentverarbeitung-in-wilmington-mit-abbyy-software/"><u>Automatische Dokumentverarbeitung in Wilmington Mit ABBYY Software</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-conversion-rates-using-innovative-cookiebot-tracking-solutions/"><u>Boost Conversion Rates Using Innovative Cookiebot Tracking Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-success-boost-your-sites-visibility-and-conversions/"><u>Cookiebot-Driven Success: Boost Your Site's Visibility and Conversions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-solutions-optimized-user-experience-with-advanced-tracking/"><u>Cookiebot-Enabled Solutions: Optimized User Experience with Advanced Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-site-with-advanced-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Site with Advanced Analytics and Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-secret-ingredient-behind-tailored-user-experiences/"><u>Cookiebot: The Secret Ingredient Behind Tailored User Experiences</u></a></li>
+<li><a href="https://fox-links.techidaily.com/crafting-engaging-dialogues-for-your-vlog-showcase/"><u>Crafting Engaging Dialogues for Your Vlog Showcase</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/digital-twin-evolution-brochure-unlocking-innovations-with-abbyy/"><u>Digital Twin Evolution Brochure - Unlocking Innovations with ABBYY</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-xiaomi-redmi-note-12-5g-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Xiaomi Redmi Note 12 5G Device</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-proven-recorders-ioss-leading-screenshot-tools/"><u>In 2024, Proven Recorders IOS's Leading Screenshot Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-process-to-eliminate-a-business-profile-from-fb/"><u>Simplified Process to Eliminate a Business Profile From FB</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solving-the-problem-steps-to-prevent-overwatch-2-from-crashing-on-your-computer/"><u>Solving the Problem: Steps to Prevent Overwatch 2 From Crashing on Your Computer</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-science-of-audience-retention-on-tweets-for-2024/"><u>The Science of Audience Retention on Tweets for 2024</u></a></li>
 </ul></div>
 

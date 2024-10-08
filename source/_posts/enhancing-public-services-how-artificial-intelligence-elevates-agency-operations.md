@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations"
-date: 2024-10-01T04:56:22.220Z
-updated: 2024-10-03T08:18:00.934Z
+date: 2024-10-04T17:57:10.239Z
+updated: 2024-10-08T16:30:02.234Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3bd086f6ddbea0000b61dea6630a396d485fdb4d681690353291c54c1139b976.png
@@ -22,10 +22,10 @@ Share
 When you think about industries known for outstanding customer service, government may not spring to the top of the list. Because government agencies don’t face the same competitive pressures as private-sector businesses, they’ve historically had little incentive to devote time and resources to improving experiences for their constituents. But today, public-sector organizations are facing pressures to modernize their services and improve experiences for both citizens and employees, and artificial intelligence (AI) is leading the way in driving progress towards their goals.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Keeping up with constituents
@@ -33,13 +33,6 @@ When you think about industries known for outstanding customer service, governme
 When the pandemic forced brick-and-mortar service providers to close their doors, traditionally in-person services in industries such as banking, dining, education, and even healthcare quickly became widely available via digital platforms. This development produced a dramatic shift in customer expectations, and suddenly the concept of taking time off work to stand in line at a government office came to be viewed as a glaring anachronism.
 
 [As Sha Hwang and Annelies Goger of the Brookings Institution recently noted](https://www.brookings.edu/blog/the-avenue/2022/01/12/want-to-restore-trust-in-government-start-with-customer-experience/), “The frustration many Americans experience in even the most basic interactions with government—like renewing a driver’s license or filing taxes—fractures trust in our institutions, which is already near historic lows.” In an effort to turn the tide, United States President Joe Biden signed [an executive order calling on federal agencies to make services—particularly digital services—easier to use](https://www.whitehouse.gov/briefing-room/statements-releases/2021/12/13/fact-sheet-putting-the-public-first-improving-customer-experience-and-service-delivery-for-the-american-people/), more modernized, and more transparent.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Retaining top talent
 
@@ -60,10 +53,10 @@ The approach made the research firm’s list of [Top 10 Government Technology Tr
 As government organizations explore strategies for achieving their TX goals, many are looking to the private sector for inspiration, and many of those inspiring stories center around the use of artificial intelligence. In businesses across industries, technologies such as machine learning, natural language processing (NLP), and natural language understanding (NLU) are enabling transformative experiences that benefit customers and employees alike. Here are just a few examples of AI-driven technologies that are helping businesses build a better TX.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Customer-facing chatbots
@@ -84,9 +77,23 @@ Intelligent process automation enables employees to benefit from faster, smoothe
 
 When customers contact a business, machine learning and NLP tools can “listen in” to determine the caller’s intent, evaluate their emotional state, and even detect possible fraudulent behavior. For example, [Deloitte’s Behavioral and Emotion Analytics Tool (BEAT)](https://www.deloitte.com/global/en/Industries/financial-services/perspectives/gx-ai-and-risk-management.html), developed for the financial services industry, monitors voice interactions to devise a “risk score” based on word choice, rate of speech, and other factors. The higher the score, the more the agent can be on alert for a potential complaint or possible fraudulent activity.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Identity proofing and affirmation
 
 For industries at high risk for fraud, such as banking and insurance, offering mobile services such as customer onboarding and claim filing presents the dilemma of how to ensure that users are who they claim to be. With [identity proofing and identity affirmation](https://tools.techidaily.com/abbyy/products/), users provide proof of their identity via identification (ID) cards, photos, and supporting documents, and AI-based tools step in to read, verify, and authenticate the submissions, including facial matching against a real-time “selfie.” Employees are freed from the tedious task of reviewing and verifying customer documents, and customers can enjoy historically in-person-only services with a few taps on their smartphones.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Government use case: Mobile identity verification for DMV offices
 
@@ -96,31 +103,24 @@ A secure mobile application can eliminate the need to go to the DMV office and w
 
 The California DMV has adopted this approach for its services, and the results have been impressive. “We’ve gone from 28 minutes per Real ID transaction to about 10 minutes,” [Ajay Gupta, chief digital transformation officer at the California DMV recently told GCN](https://gcn.com/state-local/2021/01/how-ai-helped-californias-dmv-adapt-to-covid-closures/315928/). “AI-driven pre-screening is one of the reasons why we are able to do that. It also reduced customer visits because there are reduced returning customers due to incomplete documentation.”
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Proving Identity in an Increasingly Remote World
 
 Infographic
 
 [Download infographic](https://static1.abbyy.com/abbyycommedia/36372/infographic-proofofidentity-proving-identity-in-an-increasingly-remote-world-en.pdf "Download infographic") 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Choosing the right solutions
 
 As government entity leaders begin exploring AI tools that can help them achieve their TX goals, they will quickly recognize that a single solution can involve many moving parts. Comprehensive identity proofing and affirmation, for example, encompasses ID reading, ID verification, biometric authentication, document analysis, and many other capabilities. While individual products are available to handle each of these requirements, the hassle of juggling multiple licenses with multiple vendors could erode some of the productivity benefits that AI has to offer.
 
 Working with a single vendor, on the contrary, enables organizations to avoid the headaches of the piecemeal approach and discover additional advantages. For example, integration of all the various components has already been done, which is good news for the IT department, and if an issue does arise, they have a single point of contact for troubleshooting. Furthermore, organizations only have to get approval for a single provider—a definite plus for the government sector, where vendor approval processes can be lengthy and labor intensive.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Turning government entities into TX leaders
 
@@ -129,10 +129,16 @@ Government organizations can no longer cling to legacy citizen and employee expe
 ![Bruceorcutt 99X99](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Bruce Orcutt
@@ -185,6 +191,13 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Customer Point of View: Approach Automation Step by Step**](https://tools.techidaily.com/abbyy/products/)
@@ -194,13 +207,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![Three Ways AI Is Making Employees Happier](https://static2.abbyy.com/abbyycommedia/36944/ai_happier_employees_1160730188_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -285,18 +291,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/2023s-leading-facebook-lite-video-downloader-tools-for-2024/"><u>2023'S Leading Facebook Lite Video Downloader Tools for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-unleash-your-devices-full-potential-capture-and-store-youtube-streams-flawlessly/"><u>2024 Approved Unleash Your Device's Full Potential Capture and Store YouTube Streams Flawlessly</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-insights-sync-your-wireless-headset-with-ease-and-keep-passwords-protected/"><u>ABBYY Insights: Sync Your Wireless Headset with Ease and Keep Passwords Protected</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-ocr-software-development-kit-advanced-automatic-document-scanning-and-interpretation/"><u>Abbyy OCR Software Development Kit: Advanced Automatic Document Scanning & Interpretation</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-web-application-for-scanning-and-organizing-business-cards-in-the-cloud/"><u>ABBYY Unveils New Web Application for Scanning and Organizing Business Cards in the Cloud</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-anthony-macciola-as-their-latest-appointment-chief-innovation-officer/"><u>ABBYY Welcomes Anthony Macciola as Their Latest Appointment: Chief Innovation Officer</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/acers-predator-triton-300-se-evaluation-compact-powerhouse-meets-exceptional-price-performance-ratio/"><u>Acer's Predator Triton 300 SE Evaluation: Compact Powerhouse Meets Exceptional Price-Performance Ratio</u></a></li>
-<li><a href="https://win11.techidaily.com/avoiding-clutter-smart-note-management-for-windows/"><u>Avoiding Clutter: Smart Note Management for Windows</u></a></li>
-<li><a href="https://program-issues.techidaily.com/battle-against-frozen-screens-solving-the-stuck-on-loading-problem-in-cold-war-across-platforms/"><u>Battle Against Frozen Screens: Solving the 'Stuck On Loading' Problem in Cold War Across Platforms</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/elevating-your-gopro-footage-through-color-grading/"><u>Elevating Your GoPro Footage Through Color Grading</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/hero5-black-in-action-essential-shooting-advice-for-amazing-results-for-2024/"><u>Hero5 Black in Action Essential Shooting Advice for Amazing Results for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-pause-life360-location-sharing-for-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Infinix Smart 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-metaverse-versus-multimetase-analyzing-their-core-disparities/"><u>In 2024, Metaverse Versus MultiMetase Analyzing Their Core Disparities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/por-que-vs-por-que-a-language-conundrum-solved/"><u>'Por Que' Vs 'Por Qué': A Language Conundrum Solved</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nlock-your-potential-youtube-thumbnail-creation-on-macos/"><u>[New] Unlock Your Potential YouTube Thumbnail Creation on macOS</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-effortless-access-to-videos-find-your-perfect-chromium-extension-for-fb-vids/"><u>[Updated] In 2024, Effortless Access to Videos Find Your Perfect Chromium Extension for FB Vids</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-and-the-power-of-fresh-data-understanding-its-consequences-for-everyone/"><u>ChatGPT and the Power of Fresh Data: Understanding Its Consequences for Everyone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-garmin-venu-assessment-your-ultimate-all-day-activity-and-wellness-monitor/"><u>Comprehensive Garmin Venu Assessment: Your Ultimate All-Day Activity & Wellness Monitor</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-boost-your-online-traffic-and-engagement/"><u>Cookiebot-Enabled Sites: Boost Your Online Traffic and Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-site-performance/"><u>Cookiebot-Enhanced Site Performance</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhance-your-site-with-powerful-tracker-technology/"><u>Cookiebot: Enhance Your Site with Powerful Tracker Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhancing-your-website-with-smart-tracking-technology/"><u>Cookiebot: Enhancing Your Website with Smart Tracking Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/customized-advertising-with-the-advanced-capabilities-of-cookiebot/"><u>Customized Advertising with the Advanced Capabilities of Cookiebot</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/die-neuesten-mining-fahigkeiten-von-abbyy-timeline-cu-verbesserte-integration-von-menschlichen-ressourcen-prozessen-und-inhalten/"><u>Die Neuesten Mining-Fähigkeiten Von ABBYY Timeline Cu: Verbesserte Integration Von Menschlichen Ressourcen, Prozessen Und Inhalten</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/differences-between-robotic-process-automation-rpa-and-intelligent-process-automation-ipa/"><u>Differences Between Robotic Process Automation (RPA) and Intelligent Process Automation (IPA)</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/digitale-revolution-mit-5-leitsatzen-expertenchecklisten-von-abbyy-jetzt-verfugbar-machen/"><u>Digitale Revolution Mit 5 Leitsätzen: Expertenchecklisten Von ABBYY Jetzt Verfügbar Machen!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effiziente-automationstechnologien-im-versicherungssektor/"><u>Effiziente Automa­tionstechnologien Im Versicherungssektor</u></a></li>
+<li><a href="https://extra-information.techidaily.com/metaverse-chronicles-exploring-infinite-worlds-through-film/"><u>Metaverse Chronicles Exploring Infinite Worlds Through Film</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-solution-repair-d3dx939dll-file-absence-error-quickly-and-effectively/"><u>Step-by-Step Solution: Repair D3DX9_39.dll File Absence Error Quickly & Effectively</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-7-emerging-cybersecurity-trends-to-watch-in-the-coming-year/"><u>Top 7 Emerging Cybersecurity Trends to Watch in the Coming Year</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-photos-from-motorola-g54-5g-by-fonelab-android-recover-photos/"><u>Undelete lost photos from Motorola G54 5G.</u></a></li>
 </ul></div>
 

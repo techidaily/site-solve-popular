@@ -1,7 +1,7 @@
 ---
 title: "Enhancing User Experience Through Smart Tracking: The Power Behind Cookiebot Solutions"
-date: 2024-09-27T11:31:37.890Z
-updated: 2024-10-03T03:18:53.931Z
+date: 2024-10-01T16:06:19.114Z
+updated: 2024-10-08T17:27:35.326Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/30c3f68025cf60445ca0af9503de0d05421151fac72dff09f39b3449e1fcd630.jpg
@@ -22,10 +22,10 @@ Since 1909, scientists of the National Institute of Meteorology of Brazil (INMET
 Brazil, the largest country in South America, sits within the tropics. Its territory boasts three types of climate: equatorial, subtropical and tropical. The development of almost all branches of the Brazilian economy, and especially of agriculture, depends on a variety of weather conditions. Therefore, it is important for specialists to analyze and accurately predict possible changes in weather conditions. Forecasts are also needed to ensure the safety of aircraft, pilots and passengers, to protect ships and sailors, for the proper organization of fisheries and the development of tourism.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Deploying technology to rescue the past
@@ -37,10 +37,10 @@ Until recently, these documents were kept in paper form. Archives with records w
 In 2010, INMET decided to digitize its entire archive of weather observations - 3 million pages or 4 billion characters - including notebooks, books and microfilms. The first step was collecting all records stored in different cities across Brazil. This was achieved in 2011, with help from the Institute's employees, who transported the documents to Brasilia and housed them in a 1500-square-meter storage area in the INMET building. During the next stage, the institute's specialists began to process and the restore the records, some of which were badly damaged. The final stage before digitization involved cataloging of all records and making it easy to find a diary of weather observations in the repository.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Forward, to digitization
@@ -50,10 +50,10 @@ INMET kicked off its digitization efforts in 2012, by inviting Flexdoc, a Brazil
 To streamline and simplify this process, Flexdoc turned to ABBYY FlexiCapture Engine in 2014\. The first advantage is that the FC Engine enabled workers to use multiple scanners and feed results into one solution. Therefore, Flexdoc employees scanned pages from the weather observation diaries using 12 ATIZ BookDrive PR and Plustek OpticPro A360 scanners. They then teamed up with INMET specialists to check the quality of the scanned images after which the results were imported into the system based on the ABBYY FlexiCapture Engine. Flexdoc employees provided the templates developed by ABBYY FlexiCapture for processing the documents, while ABBYY's OCR technologies helped define and overlay templates for documents, find necessary fields in them and extract data. In decrepit documents or hand-written records, OCR technologies could not always recognize a field requiring digitization to be performed manually by Flexdoc employees.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Making everyone happy
@@ -67,10 +67,10 @@ _By Elizaveta Titarenko_
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [OCR](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -136,21 +136,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-cutting-edge-vr-game-development-tools/"><u>[New] 2024 Approved Cutting-Edge VR Game Development Tools</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-quick-clips-the-facebook-trend/"><u>[New] Quick Clips The Facebook Trend</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iuoajoodhplusocuoocvplusodqplusodleocqeodvoodoos9noaikoobruwwgumwgowutuodquocueodidrkv53pmbrjgrvjgqjgrjg7zjgplkuk3lv4pjgajjgzfjgzjg4hjgqfjg4pjgqjg6rjgrnjg4j1/"><u>「デジタルフォーム作成の専門家リスト:保険セクターを中心としたチェックリストガイド」</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boosting-web-traffic-with-cookiebot-technology-a-game-changer-for-seo-success/"><u>Boosting Web Traffic with Cookiebot Technology: A Game Changer for SEO Success</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/comprehensive-walkthrough-for-bulk-tiktok-download/"><u>Comprehensive Walkthrough for Bulk TikTok Download</u></a></li>
-<li><a href="https://win-answers.techidaily.com/continuously-chilled-cosmos-navigating-through-an-ever-freezing-expanse/"><u>Continuously Chilled Cosmos: Navigating Through an Ever-Freezing Expanse</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/demystifying-bingchattercrypto-tokens-insights-into-identifying-potential-digital-deception-in-blockchain-ventures/"><u>Demystifying BingChatterCrypto Tokens: Insights Into Identifying Potential Digital Deception in Blockchain Ventures</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/detailed-guides-to-hardware-products-toms-hardware-insight/"><u>Detailed Guides to Hardware Products - Tom's Hardware Insight</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-say-good-morning-in-10-different-languages/"><u>How To Say Good Morning In 10 Different Languages</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-sudden-shadow-immediate-copyright-issue/"><u>In 2024, Sudden Shadow Immediate Copyright Issue</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-with-ocr-convert-pdfs-and-jpgs-using-finereader/"><u>IPhone Document Scanning with OCR: Convert PDFs & JPGs Using FineReader</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-improved-online-traffic-and-user-interaction/"><u>Leverage Cookiebot Technology for Improved Online Traffic & User Interaction</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-perfecting-virtual-presentations-key-practices-for-using-skypes-screen-share-feature/"><u>[New] 2024 Approved Perfecting Virtual Presentations Key Practices for Using Skype’s Screen Share Feature</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-optimize-your-music-experience-the-best-apps-for-turning-spotify-into-youtube/"><u>[New] Optimize Your Music Experience The Best Apps for Turning Spotify Into YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-freeframe-forum-a-collectors-paradise-for-budget-friendly-backgrounds/"><u>[Updated] In 2024, The FreeFrame Forum A Collector's Paradise for Budget-Friendly Backgrounds</u></a></li>
+<li><a href="https://games-able.techidaily.com/avoid-bluetooth-disconnecting-on-series-x-controllers/"><u>Avoid Bluetooth Disconnecting on Series X Controllers</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-site-traffic-with-cookiebot-integration-strategies/"><u>Boost Site Traffic with Cookiebot Integration Strategies</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-web-visibility-instantly-using-the-powerful-cookiebot-seo-tech/"><u>Boost Web Visibility Instantly Using the Powerful Cookiebot SEO Tech</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/carlsberg-accelere-son-debut-en-mer-avec-la-technologie-abbyy-un-nouveau-partenariat-industriel/"><u>Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel</u></a></li>
+<li><a href="https://discover-great.techidaily.com/comparing-avchd-and-mp4-a-deep-dive-into-video-quality-file-sizes-and-device-support/"><u>Comparing AVCHD and MP4: A Deep Dive Into Video Quality, File Sizes, and Device Support</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
+<li><a href="https://apple-account.techidaily.com/forgot-your-apple-id-password-and-email-from-apple-iphone-7-plus-heres-the-best-fixes-by-drfone-ios/"><u>Forgot Your Apple ID Password and Email From Apple iPhone 7 Plus? Heres the Best Fixes</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/gamers-guide-to-downloading-xbox-wireless-adapter-software-swiftly-and-smoothly/"><u>Gamers' Guide to Downloading Xbox Wireless Adapter Software Swiftly and Smoothly</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-audio-experience-budget-friendly-asmr-mics-reviewed-for-2024/"><u>Ultimate Audio Experience Budget-Friendly ASMR Mics Reviewed for 2024</u></a></li>
 </ul></div>
 

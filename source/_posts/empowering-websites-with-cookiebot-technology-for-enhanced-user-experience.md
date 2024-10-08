@@ -1,7 +1,7 @@
 ---
 title: Empowering Websites with Cookiebot Technology for Enhanced User Experience
-date: 2024-09-28T17:15:21.101Z
-updated: 2024-10-03T07:12:13.677Z
+date: 2024-10-01T16:46:00.893Z
+updated: 2024-10-08T18:47:16.114Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a05de89bd7149842bbd8e67a6.jpg
@@ -31,20 +31,6 @@ AI OCRは常に進化しており、クラウド上のサービスも多く、�
 
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35333/clovaocr-content-1-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## FlexiCaptureは複雑な文書の処理が可能
 
 FlexiCaptureは、複雑な文書にも広く対応しており、他では取得できないフォーマットでも、定型、非定型問わずに、読み取り可能です。これは、一般的なAI OCRに用いられている学習による解析だけでなく、人間が見て判断するように、特定の文字からの相対位置や何行目、何列目といった表構造の中での位置、スキャン時に発生する解像度のばらつきや傾きの補正などの機能FlexiCaptureが有しているからです。加えて、上記の機能により文書を誤認識してしまった際にもロジカルに原因追及が可能となっています。
@@ -54,10 +40,10 @@ FlexiCaptureは、複雑な文書にも広く対応しており、他では取�
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35332/clovaocr-content-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FlexiCaptureは検証機能も充実
@@ -67,6 +53,13 @@ AI OCRを導入するためには新たな業務が必要となります。す�
 一般的なOCRサービスはこの検証が考慮されていない場合が多く、あっても簡易的なものである場合がほとんどです。一方、FlexiCaptureは独自の検証画面をローカルプログラム、Web UIの両方で用意しており、対象のフィールドを切り出しての検証も可能なので、検証を行う人が文書の内容を把握することなく作業を行うことも可能です。
 
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35331/clovaocr-content-3-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FlexiCaptureは業務使用に最適
 
@@ -82,6 +75,13 @@ CLOVA OCRは横書きや縦書きだけでなく、丸く湾曲して書かれ�
 
 また、FlexiCaptureと連携したときに、項目単位の細かな設定が必要ないことも特徴の一つです。CLOVA OCR（General）以外のエンジンとの連携では、項目ごとにどんな文字が入るか、文字数はどうかなど細かい調整が必要ですが、CLOVA OCR（General）との連携では、どんな項目も同じ設定で簡単に行うことができます。
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## まとめ
 
 FlexiCaptureは単体でも認識、検証、ワークフローにおいて優れた機能を有しておりますが、手書き日本語文字に対応していないこともあり、日本語OCRに関して不十分な点があります。一方でAI OCRのフレームワークとしては、FlexiCaptureは優れた点を有しており、CLOVA OCRと組み合わせることで高精度の手書き日本語認識を実現することが可能な上、FlexiCaptureの様々な優れた機能を使用することが可能です。
@@ -95,10 +95,16 @@ FlexiCaptureは単体でも認識、検証、ワークフローにおいて優�
 [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -164,20 +170,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-capturing-attention-a-step-by-step-guide-to-social-media-promotion/"><u>[New] Capturing Attention A Step-by-Step Guide to Social Media Promotion</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-chrome-extensions-best-5-facebook-video-downloaders-for-chrome/"><u>[New] Chrome Extensions | Best 5 Facebook Video Downloaders for Chrome</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-huawei-p60-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Huawei P60 Activity | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/accelerate-video-transcoding-with-speedy-nvidia-tool/"><u>Accelerate Video Transcoding with Speedy Nvidia Tool</u></a></li>
-<li><a href="https://techtrends.techidaily.com/android-and-wi-fi-authentication-hiccups-strategies-to-restore-your-internet-access/"><u>Android and Wi-Fi Authentication Hiccups: Strategies to Restore Your Internet Access</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-marketing-analytics-using-cookiebot-technology/"><u>Enhance Your Marketing Analytics Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-engagement-with-cookiebot-technology-integration/"><u>Enhancing Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evolving-towards-process-intelligence-insightful-strategies-from-abbyys-leading-expert/"><u>Evolving Towards Process Intelligence: Insightful Strategies From ABBYY's Leading Expert</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/fixing-the-frustrating-lag-in-your-league-of-legends-gameplay/"><u>Fixing the Frustrating Lag in Your League of Legends Gameplay</u></a></li>
-<li><a href="https://windows11.techidaily.com/how-to-fix-the-the-application-encountered-an-unrecoverable-error-in-roblox-on-windows/"><u>How to Fix the “The Application Encountered an Unrecoverable Error in Roblox on Windows</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-about-oppo-a79-5g-frp-bypass-by-drfone-android/"><u>In 2024, About Oppo A79 5G FRP Bypass</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-cutting-edge-of-content-tips-for-the-trendy-tiktoker/"><u>The Cutting Edge of Content Tips for the Trendy TikToker</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-enlarging-images-preserving-pixel-perfection/"><u>[New] 2024 Approved Enlarging Images Preserving Pixel Perfection</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-checklist-of-key-elements-in-tagging-a-video/"><u>[New] In 2024, The Ultimate Checklist of Key Elements in Tagging a Video</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-depth-the-full-spectrum-of-toolwiz-apps-capabilities-2023-for-2024/"><u>[New] In Depth The Full Spectrum of Toolwiz App's Capabilities, 2023 for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-creating-compelling-cost-free-youtube-intros/"><u>[Updated] 2024 Approved Creating Compelling, Cost-Free YouTube Intros</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-top-tools-and-strategies-for-capturing-streaming-audio-webwide-for-2024/"><u>[Updated] Top Tools & Strategies for Capturing Streaming Audio Webwide for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-mastering-gaming-snaps-top-5-windows-11-tactics/"><u>2024 Approved Mastering Gaming Snaps Top 5 Windows 11 Tactics</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-mastering-medias-closing-chapters/"><u>2024 Approved Mastering Media's Closing Chapters</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/at-leading-annual-summit-abbyy-showcases-advanced-ml-and-ai-technologies-for-future-success/"><u>At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-website-performance-with-cookiebot-integration-the-key-to-successful-seo-strategies/"><u>Boost Website Performance with Cookiebot Integration - The Key to Successful SEO Strategies</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-automation-enhancing-your-digital-marketing-efforts/"><u>Cookiebot-Driven Automation: Enhancing Your Digital Marketing Efforts</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-solutions-enhanced-site-traffic-and-conversion/"><u>Cookiebot-Driven Solutions | Enhanced Site Traffic & Conversion</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-websites-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's Analytics & Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-boosting-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Boosting Your Site with Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-backbone-of-personalized-web-interactions/"><u>Cookiebot: The Backbone of Personalized Web Interactions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-resolving-common-instagram-video-glitches/"><u>In 2024, Resolving Common Instagram Video Glitches</u></a></li>
 </ul></div>
 

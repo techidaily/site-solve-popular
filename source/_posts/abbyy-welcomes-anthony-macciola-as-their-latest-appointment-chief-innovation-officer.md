@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Welcomes Anthony Macciola as Their Latest Appointment: Chief Innovation Officer"
-date: 2024-09-28T03:42:28.813Z
-updated: 2024-10-03T09:37:23.938Z
+date: 2024-10-01T16:36:26.839Z
+updated: 2024-10-08T18:53:30.974Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bfe527075b76486c457bb40593f28ebdf4420fa39a7d079da9e7faa5dde71ba1.jpg
@@ -61,31 +61,31 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-managing-moments-in-live-streams-an-obs-timer-guide/"><u>[New] In 2024, Managing Moments in Live Streams An OBS Timer Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-maximized-speed-the-prime-10-choices-of-srt-upgrades-for-pcs-and-macs/"><u>[New] Maximized Speed The Prime 10 Choices of SRT Upgrades for PCs & Macs</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-essential-gaming-gear-keyboards-for-less-than-100/"><u>[Updated] In 2024, Essential Gaming Gear Keyboards for Less Than $100</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-mastering-your-video-projects-with-superior-recorder-software/"><u>[Updated] In 2024, Mastering Your Video Projects with Superior Recorder Software</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/elevate-presentations-with-these-10-best-destinations-for-free-templates/"><u>Elevate Presentations with These 10 Best Destinations for Free Templates</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/fixing-the-asmtxhcisystem-error-resolving-microsofts-blue-screen-of-death-issues/"><u>Fixing the ASMTXHCISystem Error: Resolving Microsoft's Blue Screen of Death Issues</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-itel-p40-is-unlocked-by-drfone-android/"><u>How To Check if Your Itel P40 Is Unlocked</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-oppo-a79-5g-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Oppo A79 5G FRP</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimize-with-cookiebot-advanced-tools-for-superior-web-engagement-and-personalization/"><u>Optimize With Cookiebot: Advanced Tools for Superior Web Engagement and Personalization</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-enhancing-your-sites-visibility/"><u>Optimized with Cookiebot Technology: Enhancing Your Site's Visibility</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-the-latest-from-cookiebot-enhance-your-websites-analytics-today/"><u>Optimized with the Latest From Cookiebot: Enhance Your Website's Analytics Today!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-microsoft-sharepoint-workflows-with-cutting-edge-ocr-capabilities-from-abbyy-experts/"><u>Optimizing Microsoft SharePoint Workflows with Cutting-Edge OCR Capabilities From ABBYY Experts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimizing-web-experiences-with-advanced-cookiebot-technology/"><u>Optimizing Web Experiences with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/peak-matrix-2019-abbyy-stands-out-in-everest-groups-rankings-of-leading-idp-tools-and-applications/"><u>Peak Matrix™ 2019: ABBYY Stands Out in Everest Group's Rankings of Leading IDP Tools and Applications</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/protect-your-data-understanding-the-abbyy-cloud-agreement-for-gdpr-adherence/"><u>Protect Your Data: Understanding the ABBYY Cloud Agreement for GDPR Adherence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/the-future-of-digital-transformation-insights-from-the-2018-abbyy-technology-summit-on-content-intelligence/"><u>The Future of Digital Transformation: Insights From the 2018 ABBYY Technology Summit on Content Intelligence</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-6-must-read-digital-intelligence-insights-of-2020-featured-on-the-abbyy-blog/"><u>Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-tips-and-criteria-for-choosing-the-perfect-projector-for-you/"><u>Top Tips and Criteria for Choosing the Perfect Projector for You</u></a></li>
-<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-risk-free-strategies-for-youtube-to-mp4-file-conversion/"><u>[New] In 2024, Risk-Free Strategies for YouTube to MP4 File Conversion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dial-up-the-impact-with-50-free-branding-graphics/"><u>[Updated] 2024 Approved Dial Up the Impact with 50 FREE Branding Graphics</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-optimize-performance-mac-screen-recording-made-easy/"><u>[Updated] 2024 Approved Optimize Performance Mac Screen Recording Made Easy</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-video-splitting-wins-ranking-recorder-titans/"><u>[Updated] 2024 Approved Video Splitting Wins Ranking Recorder Titans?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-leap-into-the-future-a-guide-for-windows-11-installation/"><u>[Updated] Leap Into the Future A Guide for Windows 11 Installation</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-accounting-efficiency-with-advanced-automated-solutions/"><u>Enhancing Accounting Efficiency with Advanced Automated Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-financial-stability-with-ai-driven-bank-compliance-measures-and-resilience-tactics/"><u>Enhancing Financial Stability with AI-Driven Bank Compliance Measures and Resilience Tactics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-robotic-process-automation-efficiency-with-advanced-process-analytics-insights-from-the-abbyy-experience/"><u>Enhancing Robotic Process Automation Efficiency with Advanced Process Analytics: Insights From the ABBYY Experience</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-tools/"><u>Enhancing User Experience Through Smart Data Collection Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-a-look-into-the-efficiency-of-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Data Collection: A Look Into the Efficiency of Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-with-advanced-cookiebot-technology/"><u>Enhancing User Experience with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/excellence-recognized-and-best-practices-established/"><u>Excellence Recognized and Best Practices Established!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/from-alpine-adventures-to-digital-signatures-the-abbyy-guide-on-smartwatch-innovations-and-skiing-apps/"><u>From Alpine Adventures to Digital Signatures: The ABBYY Guide on Smartwatch Innovations and Skiing Apps</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-gimbal-mastery-seamless-camera-handling-and-tracking/"><u>In 2024, Gimbal Mastery Seamless Camera Handling & Tracking</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-video-assisted-teaching-an-insightful-guidebook/"><u>In 2024, Video-Assisted Teaching An Insightful Guidebook</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovazione-in-cattolica-assicurazioni-con-elaborazione-documentale-intelligente-per-un-miglioramento-dei-servizi/"><u>Innovazione in Cattolica Assicurazioni Con Elaborazione Documentale Intelligente per Un Miglioramento Dei Servizi</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-photo-perfection-applying-stylish-borders-for-2024/"><u>Instagram Photo Perfection Applying Stylish Borders for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-intel-iris-xe-drivers-for-microsoft-windows-operating-systems/"><u>Latest Intel Iris Xe Drivers for Microsoft Windows Operating Systems</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/xavc-s-vs-avchd-showdown-assessing-pros-cons-in-various-performance-dimensions/"><u>XAVC-S Vs. AVCHD Showdown: Assessing Pros, Cons in Various Performance Dimensions</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

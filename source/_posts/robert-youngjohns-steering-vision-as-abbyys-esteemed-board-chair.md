@@ -1,7 +1,7 @@
 ---
 title: "Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair"
-date: 2024-09-28T00:53:57.276Z
-updated: 2024-10-02T20:31:01.109Z
+date: 2024-10-06T18:28:55.962Z
+updated: 2024-10-08T16:44:27.915Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/157145562d322ac42b18debf7cc17b6e328143a79a361dfc0ab65e3b0afbaf26.jpg
@@ -22,10 +22,10 @@ Robert has over 40 years of experience as an executive in the technology industr
 Robert holds a Master’s degree with honors in Physics and Philosophy from Oxford University.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -47,17 +47,19 @@ Robert holds a Master’s degree with honors in Physics and Philosophy from Oxfo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-fast-track-to-short-video-treasure-troves-free-access/"><u>[New] 2024 Approved Fast Track to Short Video Treasure Troves (Free Access)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-five-ideas-of-winter-youtube-background-to-warm-up-your-videos/"><u>[New] 2024 Approved Five Ideas of Winter YouTube Background to Warm Up Your Videos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-secrets-to-updating-your-facebook-banner/"><u>[Updated] 2024 Approved Secrets to Updating Your Facebook Banner</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-mastering-audio-best-practices-for-ipodcasting-interviews-on-ios-devices-for-2024/"><u>[Updated] Mastering Audio Best Practices for iPodcasting Interviews on iOS Devices for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-streamlight-solutions-best-for-video-illumination/"><u>[Updated] Streamlight Solutions Best for Video Illumination</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ai-ocr-rpa49/"><u>伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-presente-ses-innovantes-technologies-ia-pour-lextraction-de-donnees-au-salon-banque-and-innovation-evenement-cle-2018/"><u>ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyys-advanced-language-translator-powered-by-ntt-docomo-features-ocr-for-multilingual-support/"><u>ABBYY's Advanced Language Translator - Powered by NTT DOCOMO, Features OCR for Multilingual Support</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-sdgs/"><u>ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automatisierte-rechnungsbearbeitung-fur-energielieferanten-mit-branchenrelevanz-empfehlungen-von-abbyy/"><u>Automatisierte Rechnungsbearbeitung Für Energielieferanten Mit Branchenrelevanz – Empfehlungen Von ABBYY</u></a></li>
-<li><a href="https://win11.techidaily.com/reviving-broken-registry-elements-on-windows-11/"><u>Reviving Broken Registry Elements on Windows 11</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-digital-deviation-expert-strategies-to-rotate-videos-on-youtube/"><u>[New] 2024 Approved Digital Deviation Expert Strategies to Rotate Videos on YouTube</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-perfect-phone-videos-your-diy-youtube-journey/"><u>[New] Perfect Phone Videos Your DIY YouTube Journey</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-twilight-portraiture-techniques-your-guide-to-stunning-images/"><u>[New] Twilight Portraiture Techniques Your Guide to Stunning Images</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-expert-subtitle-transformation-made-simple-top-10-lists/"><u>[Updated] In 2024, Expert Subtitle Transformation Made Simple - Top 10 Lists</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/nef-bmp/"><u>「オンラインでのNEF転送 - BMP形式へ自由申し出」</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-edgeresolve-pixelperfect-booster-windowsmacos/"><u>2024 Approved EdgeResolve PixelPerfect Booster (Windows/MacOS)</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-collaborative-venture-with-apponfly-elevating-document-processing-solutions/"><u>ABBYY Unveils New Collaborative Venture with AppOnFly: Elevating Document Processing Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automate-your-leads-with-cookiebot-enabled-solutions/"><u>Automate Your Leads with Cookiebot-Enabled Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automated-customer-engagement-with-cookiebot-technology/"><u>Automated Customer Engagement with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-traffic-with-cookiebot-powerful-site-engagement-tools/"><u>Boost Traffic with Cookiebot - Powerful Site Engagement Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-engagement-with-cookiebot-technology-for-tailored-content-delivery/"><u>Boosting Engagement with Cookiebot Technology for Tailored Content Delivery</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/combining-power-of-abbyy-with-alteryx-for-enhanced-data-management-and-process-automation-solutions/"><u>Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions</u></a></li>
+<li><a href="https://common-error.techidaily.com/quick-fix-tips-overcoming-startup-keyboard-issues-on-your-pc/"><u>Quick Fix Tips: Overcoming Startup Keyboard Issues on Your PC</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-ultimate-macos-manual-for-ootd-videographers-for-2024/"><u>The Ultimate MacOS Manual for OOTD Videographers for 2024</u></a></li>
 </ul></div>
 

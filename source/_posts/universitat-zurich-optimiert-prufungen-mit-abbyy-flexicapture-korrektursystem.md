@@ -1,7 +1,7 @@
 ---
 title: Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem
-date: 2024-09-28T16:00:39.433Z
-updated: 2024-10-03T11:37:05.932Z
+date: 2024-10-03T16:37:04.278Z
+updated: 2024-10-08T18:38:45.187Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/99ddeff4dd981a34b1bf66d98e84fae1038add51e63fa5e698f7136621990952.jpg
@@ -18,10 +18,10 @@ Education/Research
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY FlexiCapture unterstützt die Universität Zürich bei der Prüfungskorrektur
@@ -32,16 +32,10 @@ Education/Research
 | -------------------------------------------------------------- | ------------------------------------------------------------- |  |
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name                                                           | UNIVERSITÄT ZÜRICH (UZH)                                      |  |
@@ -68,13 +62,6 @@ Deutliche Zeitersparnis bei der Korrektur von Prüfungsbögen sowie starke Arbei
 
 **An Universitäten werden jedes Semester zahlreiche schriftliche Prüfungen mit 1.000 und mehr teilnehmenden durchgeführt – entsprechend zeitaufwändig und umfangreich sind manuelle korrekturaufgaben, mit denen Dozierende belastet werden. Ein effizientes Management der Unterlagen wird so schnell zum Prüfstein für die Verwaltung. Die Universität Zürich unterstützt diese Prozesse daher mit [ABBYY Flexicapture](https://tools.techidaily.com/abbyy/products/) zur elektronischen Verarbeitung und entlastet durch die automatisierte Formularauswertung der Prüfungen ihre Mitarbeiter.**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Herausforderung
 
 Der Bologna-Prozess zur Schaffung eines einheitlichen europäischen Hochschulraums hat wegen der damit einhergehenden, veränderten Modalitäten der Leistungsbewertung zu einem signifikanten Anstieg schriftlicher Prüfungen an den europäischen Hochschulen geführt.
@@ -82,13 +69,6 @@ Der Bologna-Prozess zur Schaffung eines einheitlichen europäischen Hochschulrau
 Kommt dann noch - wie im Falle der Universität Zürich - ein stetiger Anstieg der Studierendenzahlen hinzu, so resultieren daraus andauernde, signifikante Mehraufwände für die Dozierenden beim korrekturprozess. Neben dieser punktuellen Belastung der Dozierenden besteht die Gefahr negativer Auswirkungen auf den Lehrbetrieb als Ganzes.
 
 Aus diesen Gründen hat die Leitung der Universität Zürich bereits vor einigen jahren beschlossen, ein gesamtuniversitäres Projekt zur elektronischen Unterstützung schriftlicher Prüfungen zu lancieren. Im rahmen dieses Projekts sollen die organisatorischen und technischen Voraussetzungen geschaffen werden, um das Management schriftlicher Prüfungen bestmöglich mit elektronischen Mitteln zu unterstützen. Vordringliches Ziel dieses Ansatzes ist es, eine nachhaltige und spürbare entlastung der Dozierenden bei Vorbereitung, Durchführung und korrektur schriftlicher Prüfungen zu schaffen.
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Lösung
 
@@ -117,6 +97,13 @@ Der hohe Funktionsumfang von ABBYY FlexiCapture wurde bereits in der Pilotphase 
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -124,6 +111,13 @@ Der hohe Funktionsumfang von ABBYY FlexiCapture wurde bereits in der Pilotphase 
 [Kontakt ›](https://tools.techidaily.com/abbyy/products/)
 
 Teilen 
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
@@ -146,18 +140,22 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-discover-the-best-sound-alterers-7-high-quality-vocal-editing-apps/"><u>[New] 2024 Approved Discover the Best Sound Alterers 7 High-Quality Vocal Editing Apps</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-pioneering-filmmakers-using-vimeo-for-live-captures/"><u>[Updated] 2024 Approved Pioneering Filmmakers Using Vimeo for Live Captures</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-amazon-kindle-paperwhite-user-guide/"><u>Comprehensive Amazon Kindle Paperwhite User Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Website's User Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-sites-enhanced-personalization-and-engagement/"><u>Cookiebot-Enabled Sites: Enhanced Personalization & Engagement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-optimizing-your-site-with-advanced-analytics/"><u>Cookiebot-Enhanced: Optimizing Your Site with Advanced Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-enhancing-online-personalization/"><u>Driven by Cookiebot: Enhancing Online Personalization</u></a></li>
-<li><a href="https://extra-information.techidaily.com/googles-portal-for-efficient-podcast-submission/"><u>Google's Portal for Efficient Podcast Submission</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-use-meta-ai-in-instagram/"><u>How to Use Meta AI in Instagram</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-poco-f5-pro-5g-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Poco F5 Pro 5G to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-routes-turning-pinterest-vids-into-music-files-for-2024/"><u>Ultimate Routes Turning Pinterest Vids Into Music Files for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-itel-p55-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Itel P55 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-elevate-your-earning-game-youtube-on-facebook-revenue-strategies/"><u>[New] 2024 Approved Elevate Your Earning Game YouTube on Facebook Revenue Strategies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-unlock-youtube-insights-via-social-blade-mastering-your-video-metrics/"><u>[New] 2024 Approved Unlock YouTube Insights via Social Blade Mastering Your Video Metrics</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-maximize-engagement-auto-resized-videos-from-mac-for-instagram/"><u>[New] In 2024, Maximize Engagement Auto-Resized Videos From Mac for Instagram</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-catching-life-in-motion-iphones-burst-capability/"><u>[Updated] Catching Life in Motion IPhone's Burst Capability</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-with-advanced-automation-powered-by-the-cutting-edge-cookiebot-technology/"><u>Enhanced with Advanced Automation: Powered by the Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/expanded-pdf-handling-in-latest-abbyys-finereader-version-14-for-improved-document-processing/"><u>Expanded PDF Handling in Latest ABBYY's FineReader Version 14 for Improved Document Processing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/experience-personalized-content-with-our-cookiebot-integration/"><u>Experience Personalized Content with Our Cookiebot Integration</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/forbes-insight-transitioning-from-traditional-documents-to-advanced-digital-process-analytics/"><u>Forbes Insight: Transitioning From Traditional Documents to Advanced Digital Process Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/harness-the-power-of-cookiebot-for-optimized-web-traffic-growth/"><u>Harness the Power of Cookiebot for Optimized Web Traffic Growth</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-vivo-y17s-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo Y17s Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-the-ultimate-list-of-free-online-video-trimmers-2023-edition/"><u>In 2024, The Ultimate List of Free Online Video Trimmers 2023 Edition</u></a></li>
+<li><a href="https://win-able.techidaily.com/installing-loonatons-unleashed-with-trusted-aio-streams-on-your-kodi-device-complete-tutorial/"><u>Installing Loonatons Unleashed with Trusted AIO Streams on Your Kodi Device - Complete Tutorial</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iphone-scan-and-convert-documents-with-ocr-technology-perfectpdf-tools/"><u>IPhone Scan & Convert Documents with OCR Technology - PerfectPDF Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/les-avantages-de-rpa-pour-les-entreprises-francaises-une-etude-revelatrice-dun-retour-sur-investissement-positif-des-la-premiere-annee-informations-par-abby29/"><u>Les Avantages De RPA Pour Les Entreprises Françaises : Une Étude Révélatrice D'un Retour Sur Investissement Positif Dès La Première Année - Informations Par ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/les-dernieres-avancees-de-machine-learning-sur-la-solution-flexicapture-optimiser-avec-abbyy-technologie/"><u>Les Dernières Avancées De Machine Learning Sur La Solution FlexiCapture - Optimiser Avec ABBYY Technologie</u></a></li>
+<li><a href="https://win-trending.techidaily.com/mastering-your-microsoft-365-plan-with-windows-11-expert-tips-and-strategies-according-to-zdnet/"><u>Mastering Your Microsoft 365 Plan with Windows 11: Expert Tips and Strategies According to ZDNet</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-guide-identifying-and-fixing-iphone-screen-response-failures/"><u>Troubleshooting Guide: Identifying and Fixing iPhone Screen Response Failures</u></a></li>
 </ul></div>
 

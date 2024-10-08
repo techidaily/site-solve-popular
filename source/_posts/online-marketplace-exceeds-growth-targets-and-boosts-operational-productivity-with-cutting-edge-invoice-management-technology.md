@@ -1,7 +1,7 @@
 ---
 title: Online Marketplace Exceeds Growth Targets and Boosts Operational Productivity with Cutting-Edge Invoice Management Technology
-date: 2024-09-26T01:05:49.493Z
-updated: 2024-10-02T20:19:32.216Z
+date: 2024-10-03T18:01:29.121Z
+updated: 2024-10-08T17:23:32.243Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f5fbbf41453d9824bf6879798120e6de2082db27f668f4cb2a72d45c0fe37f64.jpg
@@ -20,10 +20,10 @@ Other | Accounts Payable Automation
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Top online retailer speeds growth and improves operating efficiency with invoice automation
@@ -37,10 +37,10 @@ Other | Accounts Payable Automation
 ![pcRush](https://static4.abbyy.com/abbyycommedia/15413/pcrush_168.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name                  | pcRush                           |
@@ -51,13 +51,6 @@ Other | Accounts Payable Automation
 #### Partner Overview
 
 ![Todologix](https://static1.abbyy.com/abbyycommedia/15414/todologix.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name | Todologix                                      |
 | ---- | ---------------------------------------------- |
@@ -121,26 +114,27 @@ As for the future, Dy is confident in FlexiCapture’s ongoing benefits: “As w
 
 [![4-flexicapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![1-accounts-payable](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Accounts Payable](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![(19) eFileCabinet-2](https://static5.abbyy.com/abbyycommedia/15570/19-efilecabinet-2.png)](https://static2.abbyy.com/abbyycommedia/1007/fc%5Fpcrush%5Fecommerce%5F2014%5Fusa.pdf "PDF version") [PDF version](https://static2.abbyy.com/abbyycommedia/1007/fc%5Fpcrush%5Fecommerce%5F2014%5Fusa.pdf "PDF version") 
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [read more](https://static2.abbyy.com/abbyycommedia/1007/fc%5Fpcrush%5Fecommerce%5F2014%5Fusa.pdf "PDF version") 
 
@@ -173,17 +167,21 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-expert-methods-for-capturing-and-streaming-sports-gems/"><u>[Updated] 2024 Approved Expert Methods for Capturing and Streaming Sports Gems</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-imageinstinct-a-compreehensive-guide-for-instagram-size-control-for-2024/"><u>[Updated] ImageInstinct A Compreehensive Guide for Instagram Size Control for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/effortless-installation-arduino-mega-2560-driver-software-for-immediate-use/"><u>Effortless Installation: Arduino Mega 2560 Driver Software for Immediate Use</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/exploring-toms-tech-reviews-comprehensive-gadget-insights/"><u>Exploring Tom's Tech Reviews: Comprehensive Gadget Insights</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/forbes-insight-transitioning-from-traditional-documents-to-advanced-digital-process-analytics/"><u>Forbes Insight: Transitioning From Traditional Documents to Advanced Digital Process Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harness-the-power-of-cookiebot-for-optimized-web-traffic-growth/"><u>Harness the Power of Cookiebot for Optimized Web Traffic Growth</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-elevate-your-gaming-experience-with-these-5-techniques-on-windows-11/"><u>In 2024, Elevate Your Gaming Experience with These 5 Techniques on Windows 11</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-scan-and-convert-documents-with-ocr-technology-perfectpdf-tools/"><u>IPhone Scan & Convert Documents with OCR Technology - PerfectPDF Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/les-avantages-de-rpa-pour-les-entreprises-francaises-une-etude-revelatrice-dun-retour-sur-investissement-positif-des-la-premiere-annee-informations-par-abby29/"><u>Les Avantages De RPA Pour Les Entreprises Françaises : Une Étude Révélatrice D'un Retour Sur Investissement Positif Dès La Première Année - Informations Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/les-dernieres-avancees-de-machine-learning-sur-la-solution-flexicapture-optimiser-avec-abbyy-technologie/"><u>Les Dernières Avancées De Machine Learning Sur La Solution FlexiCapture - Optimiser Avec ABBYY Technologie</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolving-baldurs-gate-3-top-6-strategies-to-tackle-excessive-cpu-demands-updated-guide/"><u>Resolving Baldur's Gate 3: Top 6 Strategies to Tackle Excessive CPU Demands - Updated Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/shing-video-potential-with-effective-tagging-techniques-on-youtube-for-2024/"><u>Unleashing Video Potential with Effective Tagging Techniques on YouTube for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-distraction-free-deliberations-perfecting-backdrop-blur-on-mobile-devices/"><u>[New] In 2024, Distraction-Free Deliberations Perfecting Backdrop Blur on Mobile Devices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-instant-video-post-how-to-turn-mp3s-into-youtube-playables/"><u>[New] In 2024, Instant Video Post How to Turn MP3s Into YouTube Playables</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-optimal-sound-systems-under-100-for-immersive-gameplay/"><u>2024 Approved Optimal Sound Systems Under $100 for Immersive Gameplay</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unveiling-ig-reels-vs-ig-stories-essential-insights/"><u>2024 Approved Unveiling IG Reels vs IG Stories Essential Insights</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/sap-intelligent-rpa-abbyy-abbyy/"><u>高度な文書処理技術と組み合わせた、SAP Intelligent RPA にABBYYを統合する方法 | ABBYYの技術解説</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-collaborative-venture-with-apponfly-elevating-document-processing-solutions/"><u>ABBYY Unveils New Collaborative Venture with AppOnFly: Elevating Document Processing Solutions</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/apple-tv-and-fandango-a-perfect-match-for-movie-lovers-watch-here/"><u>Apple TV and Fandango: A Perfect Match for Movie Lovers – Watch Here!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-a59-5g-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from A59 5G</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/offworld-trading-company-the-ultimate-survival-manual-for-rising-economic-titans/"><u>Offworld Trading Company - The Ultimate Survival Manual for Rising Economic Titans</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/strategies-doptimisation-de-la-chaine-logistique-comment-les-donnees-facilitent-le-reinventer-grace-a-abbyy/"><u>Stratégies D'Optimisation De La Chaîne Logistique: Comment Les Données Facilitent Le Réinventer Grâce À ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/strengthen-business-continuity-with-effective-process-enhancement/"><u>Strengthen Business Continuity with Effective Process Enhancement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/top-subcontracting-options-for-enhanced-abbyy-software-solutions/"><u>Top Subcontracting Options for Enhanced ABBYY Software Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/transformez-la-lecture-de-vos-recus-en-temps-reel-grace-a-lia-abbyy-sphere-numerique/"><u>Transformez La Lecture De Vos Reçus en Temps Réel Grâce À L'IA : ABBYY Sphère Numérique</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ultimate-guide-cleaning-and-formatting-data-for-efficient-ai-model-training/"><u>Ultimate Guide: Cleaning and Formatting Data for Efficient AI Model Training</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/video-creation-for-all-ages-crafting-your-first-10-youtube-videos/"><u>Video Creation for All Ages Crafting Your First 10 YouTube Videos</u></a></li>
 </ul></div>
 

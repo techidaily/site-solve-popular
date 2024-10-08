@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting"
-date: 2024-10-01T08:07:56.935Z
-updated: 2024-10-03T04:29:00.163Z
+date: 2024-10-04T18:48:53.367Z
+updated: 2024-10-08T16:23:21.543Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/876e753e27077574ad25291cd756f73dd324e0088d395c4f6b7d4b1f29dc8396.jpg
@@ -27,19 +27,6 @@ thumbnail: https://thmb.techidaily.com/876e753e27077574ad25291cd756f73dd324e0088
 
 [記事はこちら](https://innotechtoday.com/are-business-analysts-ready-for-the-new-digital-era/)
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Onboarding Your Digital Workforce - デジタル労働力（例えばRPA）の導入活動
 
 昨年、RPAは爆発的に需要が増加しましたが、多くの企業は依然としてたくさんのRPAプロジェクトが当初考えていたように機能せず失敗していることに気づきました。 私たちは、デジタルワーカー（RPA）を適切に導入し、彼らのパフォーマンスを注意深く監視して、デジタルワーカー（RPA）が最大限に活用されていることを確認する必要があることを学びました。 Chief Executiveでは、弊社CEOより、デジタルワーカー(RPA)がしっかりと仕事をこなしているかを確認する方法について語られています。
@@ -47,10 +34,10 @@ thumbnail: https://thmb.techidaily.com/876e753e27077574ad25291cd756f73dd324e0088
 [記事はこちら](https://chiefexecutive.net/onboarding-your-digital-workforce/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Coronavirus Pandemic Reveals the Need for a Broader Digital Front Door - 新型コロナ感染流行は、より幅広いデジタルの導線、入り口の必要性を明らかにしました
@@ -69,13 +56,6 @@ Enterprise Talkでは、ABBYYのAIエバンジェリストであるIvan Yamschik
 
 [記事はこちら](https://enterprisetalk.com/interview/ai-and-automation-enabling-remote-working-during-the-covid-19-crisis/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Will COVID-19 Change Opinions About Automation Adoption? - 新型コロナ感染流行は自動化の採用に関して影響を与えますか？
 
 ITProTodayでは、新型コロナ感染流行が続く中、この通常ではない時期にビジネスを継続するためには自動化の採用が一気に行われなければならないという証拠がいくつかあることについて話しました。 新型コロナウイルスの大流行は、創造的なソリューションを必要とするビジネス環境を生み出し、それらのソリューションの一部は自動化によってもたらされました。これは、今ビジネスを継続するために必要なソリューションが、さまざまな分野でデジタルへの移行を加速していることを示しています。
@@ -87,15 +67,22 @@ ITProTodayでは、新型コロナ感染流行が続く中、この通常では�
 ![work from home family](https://static1.abbyy.com/abbyycommedia/31774/6_gettyimages-1207391933.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 組織は、どんなタイプの作業環境がモチベーション、生産性、および作業満足度を得られるかについて、従業員の好みに耳を傾け、理解することで、従業員が従事する職場文化を作り出すことができます。これは、混乱や根本的な変化のときに特に重要です。 ReadWriteのコラムでは、新しい時代の仕事をリードするために、機敏で迅速に適応でき、従業員のやる気を引き出し、最高の人材を引き付ける魅力的な職場環境を構築できる組織が、どのようにして良いポジションに立てるかをお話しています。
 
 [記事はこちら](https://readwrite.com/2020/08/25/knowing-wfh-preferences-key-to-employee-recruitment-and-retention/)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7\. Want to be a Leader in the Digital-First Era? Upskill Your Workforce - デジタルファースト時代のリーダーになるためのスキルアップ
 
@@ -114,10 +101,10 @@ ITProTodayでは、新型コロナ感染流行が続く中、この通常では�
 **非構造的文書の処理にはABBYY FlexiCaptureが最適です。詳しくは[こちら](https://tools.techidaily.com/abbyy/products/)。**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\. How Task Mining Can Turbocharge Your Productivity - タスクマイニングによってどのように生産性を上げることができるのか？
@@ -133,6 +120,13 @@ ITProTodayでは、新型コロナ感染流行が続く中、この通常では�
 ### 10\. Six Professions That Should Get Their Own Robot in 2021 - 2021年にロボット化されるべき6つの職業
 
 ![team meeting via video call](https://static1.abbyy.com/abbyycommedia/31776/8_gettyimages-1248192282.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 最近の統計によると、新型コロナ感染危機により、41％の企業がAI（人工知能）に目を向け、新しいデジタルな働き方を導入しています。 Digital Intelligenceを方針として掲げるABBYYのプロダクトマーケティング部長であるBill Galushaが、Innovation＆Tech Todayにおいて、この変化の影響について説明し、従業員達が新しい同僚としてボットを迎える可能性を述べております。
 
@@ -203,24 +197,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unbeatable-wingspan-top-10-durable-aerial-vehicles/"><u>[New] 2024 Approved Unbeatable Wingspan Top 10 Durable Aerial Vehicles</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-breaking-through-boundaries-optimizing-videos-for-maximum-traction/"><u>[New] Breaking Through Boundaries Optimizing Videos for Maximum Traction</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-the-art-of-preserving-instagram-live-moments/"><u>[New] In 2024, Mastering the Art of Preserving Instagram Live Moments</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-validate-video-rights-a-guide-to-pre-uploading-on-tiktok/"><u>[Updated] 2024 Approved Validate Video Rights A Guide to Pre-Uploading on TikTok</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-start-chatting-in-real-time-learn-live-on-instagram-for-2024/"><u>[Updated] Start Chatting in Real-Time Learn Live on Instagram for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evolving-towards-process-intelligence-insightful-strategies-from-abbyys-leading-expert/"><u>Evolving Towards Process Intelligence: Insightful Strategies From ABBYY's Leading Expert</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-artificial-intelligence-frontiers-at-abbyy-event-shaping-tomorrows-tech-landscape/"><u>Exploring Artificial Intelligence Frontiers at ABBYY Event: Shaping Tomorrow's Tech Landscape</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-customization-and-seo-success/"><u>Harnessing the Power of Cookiebot for Advanced Site Customization and SEO Success</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-xiaomi-redmi-12-5g-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Xiaomi Redmi 12 5G If I Forgot Security Code or Password? | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-xiaomi-redmi-a2plus-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Xiaomi Redmi A2+ | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-herangehensweisen-an-die-prozessanalytik-ein-detaillierter-vergleich-zwischen-den-fuhrenden-methoden-pdf-abbyy/"><u>Innovative Herangehensweisen an Die Prozessanalytik: Ein Detaillierter Vergleich Zwischen Den Führenden Methoden (PDF) - ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-strategies-needed-adapting-trade-finance-for-emerging-market-hurdles/"><u>Innovative Strategies Needed: Adapting Trade Finance for Emerging Market Hurdles</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/integrity-and-ethics/"><u>Integrity and Ethics</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/redundancy-and-reliability-features-ensure-that-the-system-activates-in-an-emergency-and-alerts-first-responders-promptly/"><u>Redundancy and Reliability Features Ensure that the System Activates in an Emergency and Alerts First Responders Promptly.</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/spread-the-word-about-our-favorite-no-cost-av-converter-software-for-easy-sharing/"><u>Spread the Word About Our Favorite No-Cost AV Converter Software for Easy Sharing</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/unlock-your-dvds-converting-physical-media-to-digital-files-for-2024/"><u>Unlock Your DVDs Converting Physical Media to Digital Files for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-prime-catchy-headline-creator/"><u>[New] Prime Catchy Headline Creator</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-visual-storytelling-for-instagram-mastering-fcpx-edits/"><u>[New] Visual Storytelling for Instagram Mastering FCPX Edits</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/2020abbyy7/"><u>2020年の世界的な成功事例：ABBYYで展開したプロセスインテリジェンスストーリートップ7</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-settle-down-with-our-best-10-chill-titles/"><u>2024 Approved Settle Down with Our Best 10 Chill Titles</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbeyy-news-update-viele-europaer-verbringen-die-meiste-zeit-mit-abgelehnten-tatigkeiten-im-arbeitsalltag-eine-weite-sichtbarkeit/"><u>ABBEYY News Update: Viele Europäer Verbringen Die Meiste Zeit Mit Abgelehnten Tätigkeiten Im Arbeitsalltag - Eine Weite Sichtbarkeit</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyys-invoice-processing-software-boosts-operational-efficiency-in-the-energy-sector/"><u>ABBYY's Invoice Processing Software Boosts Operational Efficiency in the Energy Sector</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-europe-201/"><u>AI Europe 201</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ameliorer-les-resultats-de-la-robotique-de-processus-assistee-par-ordinateur-rpa-analyse-et-techniques-avancees-chez-abbyy/"><u>Améliorer Les Résultats De La Robotique De Processus Assistée Par Ordinateur (RPA) - Analyse Et Techniques Avancées Chez ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/at-leading-annual-summit-abbyy-showcases-advanced-ml-and-ai-technologies-for-future-success/"><u>At Leading Annual Summit, ABBYY Showcases Advanced ML and AI Technologies for Future Success</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/conquering-consumer-attention-metaverse-marketing-tips-for-2024/"><u>Conquering Consumer Attention Metaverse Marketing Tips for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enjoy-your-fitness-routine-with-garmin-vivoactive-3-exercise-plus-live-streaming/"><u>Enjoy Your Fitness Routine with Garmin Vivoactive 3: Exercise + Live Streaming</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-6s-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 6s Without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-xiaomi-14-pro-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Xiaomi 14 Pro Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-expert-reviews-best-game-capture-apps/"><u>In 2024, Expert Reviews Best Game Capture Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-leading-video-kick-offs-the-best-16-youtube-vlogs-to-increase-views/"><u>In 2024, Leading Video Kick-Offs The Best 16 YouTube Vlogs to Increase Views</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/revolutionizing-supply-chain-management-with-cutting-edge-tech-insights-from-an-abbyy-authority/"><u>Revolutionizing Supply Chain Management with Cutting-Edge Tech: Insights From an ABBYY Authority</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/revolutionizing-team-dynamics-exploring-ais-role-in-reshaping-todays-work-environment-insights-from-abbyy/"><u>Revolutionizing Team Dynamics: Exploring AI's Role in Reshaping Today's Work Environment - Insights From ABBYY</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/ultimate-guide-to-professional-vfx-software-the-leading-10-options-reviewed/"><u>Ultimate Guide to Professional VFX Software: The Leading 10 Options Reviewed</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/utilizing-cookiebot-technology-for-optimized-site-customization-and-improved-engagement/"><u>Utilizing Cookiebot Technology for Optimized Site Customization and Improved Engagement</u></a></li>
 </ul></div>
 

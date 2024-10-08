@@ -1,7 +1,7 @@
 ---
 title: "ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める"
-date: 2024-09-28T05:55:46.913Z
-updated: 2024-10-02T21:07:06.702Z
+date: 2024-10-07T17:35:06.282Z
+updated: 2024-10-08T17:40:35.511Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/560da63c54300a3a876ba2cfdab00c7431c7174d8c1f2c53836ffd296ae56332.jpg
@@ -18,10 +18,10 @@ thumbnail: https://thmb.techidaily.com/560da63c54300a3a876ba2cfdab00c7431c7174d8
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY TimelineをBlue Prism Captureに統合し、  
@@ -102,16 +102,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-boosting-video-visibility-by-sending-imovie-content-to-vimeo/"><u>[New] Boosting Video Visibility by Sending iMovie Content to Vimeo</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-smartphone-skills-producing-engaging-youtube-thumbnails/"><u>[New] In 2024, Smartphone Skills Producing Engaging YouTube Thumbnails</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-your-personalized-playlist-blueprint-for-youtube/"><u>[New] In 2024, Your Personalized Playlist Blueprint for YouTube</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-freezing-gameplay-essential-pc-screen-snaps/"><u>[Updated] 2024 Approved Freezing Gameplay Essential PC Screen Snaps</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-hilarious-snapchat-emotive-graphics-viral-edition/"><u>[Updated] In 2024, Hilarious Snapchat Emotive Graphics Viral Edition</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-business-excellence-by-mastering-process-mapping-assessment-and-simulation-tactics/"><u>Elevate Business Excellence by Mastering Process Mapping, Assessment & Simulation Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevating-industry-standards-ap-automation-success-story-of-siemens-and-abbyy/"><u>Elevating Industry Standards: AP Automation Success Story of Siemens and ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-collaboration-effortlessly-using-abbyy-timeline-5s-new-task-mining-technology/"><u>Enhance Collaboration Effortlessly Using ABBYY Timeline 5’S New Task Mining Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-web-personalization-with-the-power-of-cookiebot-technology/"><u>Enhance Web Personalization with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Meizu 21 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-9-essential-apps-for-pulling-youtube-videos-android/"><u>[Updated] 9 Essential Apps for Pulling YouTube Videos (Android)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-broadcast-elegance-gamers-guide-to-using-obs/"><u>[Updated] In 2024, Broadcast Elegance Gamers' Guide to Using OBS</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-disableremove-youtube-shorts-permanently/"><u>How to Disable/Remove YouTube Shorts Permanently?</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-vivo-v27-pro-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Vivo V27 Pro without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-the-activation-lock-on-your-ipad-and-apple-iphone-11-without-apple-account-by-drfone-ios/"><u>How to Remove the Activation Lock On your iPad and Apple iPhone 11 without Apple Account</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-repair-acrocefexe-application-issues-effectively/"><u>How to Repair AcroCEF.exe Application Issues Effectively</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leveraging-cutting-edge-tracking-tools-for-enhanced-performance-and-engagement/"><u>Leveraging Cutting-Edge Tracking Tools for Enhanced Performance and Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-initial-paperwork-through-vantage-solutions/"><u>Mastering the Art of Initial Paperwork Through Vantage Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/navigating-privacy-laws-with-abbyys-gdpr-ready-data-processing-addendum/"><u>Navigating Privacy Laws with ABBYY's GDPR-Ready Data Processing Addendum</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-automated-bots-boosting-your-sites-performance/"><u>Optimized with Automated Bots: Boosting Your Site's Performance</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/revolutionizing-supply-chain-management-with-cutting-edge-tech-insights-from-an-abbyy-authority/"><u>Revolutionizing Supply Chain Management with Cutting-Edge Tech: Insights From an ABBYY Authority</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/revolutionizing-team-dynamics-exploring-ais-role-in-reshaping-todays-work-environment-insights-from-abbyy/"><u>Revolutionizing Team Dynamics: Exploring AI's Role in Reshaping Today's Work Environment - Insights From ABBYY</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/stepwise-process-enhancing-document-editing-via-googles-speech-to-text-for-2024/"><u>Stepwise Process Enhancing Document Editing via Google's Speech-to-Text for 2024</u></a></li>
 </ul></div>
 

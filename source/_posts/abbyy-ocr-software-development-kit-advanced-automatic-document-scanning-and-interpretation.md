@@ -1,7 +1,7 @@
 ---
 title: "Abbyy OCR Software Development Kit: Advanced Automatic Document Scanning & Interpretation"
-date: 2024-09-28T17:15:46.713Z
-updated: 2024-10-03T10:00:47.287Z
+date: 2024-10-04T17:59:45.635Z
+updated: 2024-10-08T17:54:49.806Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1477ca2012895e861bfdb26b444c7a0eb6d638cc1df6527be4105c5f43b0af39.jpg
@@ -20,10 +20,10 @@ Integrate AI-powered OCR features into your applications
 ![FRE_Visual](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/finereader-engine/fre_visual.jpg?h=500&iar=0&w=2560)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Automated document analysis
@@ -39,10 +39,10 @@ As a result, the ABBYY FineReader Engine is able to specify text areas and field
 The results of this analysis are used for document structure and layout retrieval if documents are processed for further reuse – which means that the documents need be exactly reconstructed. All pictures and diagrams will be preserved in their original form - without recognizing the text inside pictures or logos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Manual blocks specification for field-level recognition
@@ -122,15 +122,14 @@ Page URL
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-unveiling-top-10-camcorders-in-depth-reviews-for-2024/"><u>[New] Unveiling Top 10 Camcorders In-Depth Reviews for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-top-viral-tactics-key-tags-for-boosting-youtube-short-clips/"><u>[Updated] In 2024, Top Viral Tactics Key Tags for Boosting YouTube Short Clips</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-step-by-step-audio-fading-in-lumafusion-software/"><u>[Updated] Step-by-Step Audio Fading in Lumafusion Software</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-step-by-step-mastering-ppros-full-screen-preview-for-2024/"><u>[Updated] Step-by-Step Mastering PPro's Full Screen Preview for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-vivo-x100-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Vivo X100 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/experience-advanced-audience-engagement-using-smart-tracking-cookiebot-technology/"><u>Experience Advanced Audience Engagement Using Smart Tracking - Cookiebot Technology</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/exploring-6-exquisite-eastern-themed-homes-in-mc-for-2024/"><u>Exploring 6 Exquisite Eastern Themed Homes in MC for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/geschwindige-zollabwicklung-warentransport-von-uk-nach-eu-beschleunigt-auf-unter-5-minuten/"><u>Geschwindige Zollabwicklung: Warentransport Von UK Nach EU Beschleunigt Auf Unter 5 Minuten</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/get-abbyy-textgrabber-free-new-on-the-fly-translating-capabilities-for-android-devices/"><u>Get ABBYY TextGrabber Free: New On-the-Fly Translating Capabilities for Android Devices</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iuocreodoplusodgplusoctplusodpeodleodreodvoacgombqewmluaipuevptog44ki44ow44ot44o86kqn5a6a44ob44kn44od44kv44oq44k544oi44gn6kal44gk44gr44kl5paw44gx44ge5lql5qw25/"><u>キャッシュフロー最適化戦略: アブビー認定チェックリストで見つける新しい事業機会</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-flavorful-follows-top-food-vloggers-to-track/"><u>[New] 2024 Approved Flavorful Follows Top Food Vloggers to Track</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-facebooks-2023-vision-mastering-the-art-of-short-videos/"><u>[New] Facebook's 2023 Vision Mastering the Art of Short Videos</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-photos-jpg-png-on-ios-to-pdf-the-easy-steps/"><u>[New] From Photos (JPG, PNG) on iOS to PDF The Easy Steps</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-unleash-the-power-of-automated-conversions/"><u>Cookiebot-Enhanced: Unleash the Power of Automated Conversions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-unleashing-advanced-tracking-solutions-for-your-websites-success/"><u>Cookiebot: Unleashing Advanced Tracking Solutions for Your Website's Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/data-driven-personalization-through-smart-analytics-solutions/"><u>Data-Driven Personalization Through Smart Analytics Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/demystifying-rpa-insights-from-the-abbyy-experts-guide/"><u>Demystifying RPA: Insights From the ABBYY Expert's Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-mastering-selfies-on-instagram-a-guide/"><u>In 2024, Mastering Selfies on Instagram A Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tackling-lack-of-access-to-network-router-site/"><u>Tackling Lack of Access to Network Router Site</u></a></li>
 </ul></div>
 

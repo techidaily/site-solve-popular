@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Global IDPトレンドの最新発表:成果報告書解説"
-date: 2024-09-25T19:42:58.174Z
-updated: 2024-10-03T03:38:35.305Z
+date: 2024-10-06T18:45:08.974Z
+updated: 2024-10-08T17:31:19.160Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7a938c8213dc5d370405bab4afa736e010a188d2f4d2dd7c34adab834ad1c13.jpg
@@ -58,16 +58,10 @@ ABBYYは、2023年1月から3月までの初期データに基づき、今後、
 ABBYY IDPの導入とパーソナライズに関する詳細については、[www.abbyy.com/resources/report/global-intelligent-document-processing-trends-outcomes-report](https://tools.techidaily.com/abbyy/products/)にアクセスして、レポートの全編とインフォグラフィックをダウンロードしてください。
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYYについて
@@ -75,10 +69,10 @@ ABBYY IDPの導入とパーソナライズに関する詳細については、[w
 ABBYYは、貴社の情報を有効に運用するお手伝いをします。 当社のソリューションは、あらゆる文書、あらゆるフォーマット、あらゆる言語、あらゆる時間のデータを、インテリジェントな実用的成果へと変換します。 当社は、世界10,000社以上の企業をサポートし、その中にはフォーチュン500に名を連ねる企業も多数含まれており、最も重要な分野で当社との提携による恩恵を得ることができます。 ABBYYは、米国に本社を置き、世界14カ国にオフィスを構えるグローバル企業です。 詳細については、[www.abbyy.com/ja/company](https://tools.techidaily.com/abbyy/products/)をご参照ください。 [LinkedIn](https://www.linkedin.com/company/abbyy)、[Twitter](https://twitter.com/ABBYY%5FSoftware)、[Facebook](https://www.facebook.com/ABBYYsoft)でのフォローもお待ちしております。
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 報道関係者お問い合わせ先
@@ -104,20 +98,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-immersive-experience-logging-top-tips-and-techniques-for-minecraft-recordings/"><u>[New] Immersive Experience Logging Top Tips & Techniques for Minecraft Recordings</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-tiktok-essential-factors-for-mac-users/"><u>[New] Mastering TikTok Essential Factors for Mac Users</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-the-art-of-perfect-video-quality-in-zoom-sessions/"><u>[Updated] 2024 Approved The Art of Perfect Video Quality in Zoom Sessions</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-framerate-and-quality-in-game-recorders-explored/"><u>[Updated] Framerate and Quality in Game Recorders Explored</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-syncing-symphony-with-images-a-facebook-media-guide/"><u>2024 Approved Syncing Symphony with Images - A Facebook Media Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-background-screen-video-recording-full-guide/"><u>[New] Background Screen Video Recording Full Guide</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/1-govee-all-season-led-light-strings-evaluation-comprehensive-guide-for-enchanting-yule-and-yuletide-adornments/"><u>1. Govee All-Season LED Light Strings Evaluation: Comprehensive Guide for Enchanting Yule and Yuletide Adornments</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-ocr-rpa49/"><u>伝票管理にAI OCRの活用がもたらす変革: RPA併用で年間4.9万時間減少達成</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/abbyy-presente-ses-innovantes-technologies-ia-pour-lextraction-de-donnees-au-salon-banque-and-innovation-evenement-cle-2018/"><u>ABBYY Présente Ses Innovantes Technologies IA Pour L'extraction De Données Au Salon Banque & Innovation - Événement Clé 2018</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/abbyys-advanced-language-translator-powered-by-ntt-docomo-features-ocr-for-multilingual-support/"><u>ABBYY's Advanced Language Translator - Powered by NTT DOCOMO, Features OCR for Multilingual Support</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/abbyy-sdgs/"><u>ABBYY社における世界的な持続可能性への道: SDGs達成へ向けた取り組み</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-motorola-edge-40-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Motorola Edge 40</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/netflix-speed-management-for-enhanced-viewing-for-2024/"><u>Netflix Speed Management for Enhanced Viewing for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolve-your-pcs-endless-loop-in-preparing-windows-for-a-fresh-start/"><u>Resolve Your PC's Endless Loop in Preparing Windows for a Fresh Start</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-vivo-x100-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Vivo X100 Phones? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-vivo-y78plus-t1-edition-by-drfone-android/"><u>In 2024, How to Bypass FRP on Vivo Y78+ (T1) Edition?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/insight-into-lgs-360-camera-updates-and-features-for-todays-photographers/"><u>Insight Into LG's 360 Camera Updates and Features for Today's Photographers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/lgs-leap-into-limitless-vision-the-4k-spectacle-of-the-31mu97-b-for-2024/"><u>LG's Leap Into Limitless Vision - The 4K Spectacle of the 31MU97-B for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/manage-srt-files-in-winmac-environments/"><u>Manage SRT Files in Win/Mac Environments</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
 <li><a href="https://solve-popular.techidaily.com/understanding-pages-in-digital-marketing-key-concepts-for-seo-success/"><u>Understanding Pages in Digital Marketing: Key Concepts for SEO Success</u></a></li>
 </ul></div>

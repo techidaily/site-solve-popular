@@ -1,7 +1,7 @@
 ---
 title: ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools
-date: 2024-09-28T23:29:22.489Z
-updated: 2024-10-03T07:21:03.849Z
+date: 2024-10-06T17:48:13.848Z
+updated: 2024-10-08T17:47:20.133Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8b677f86d933a2dc57f7b5d236aa4e6146da7e283f8be4d58f50e47e9bc2eba3.jpg
@@ -42,10 +42,10 @@ Auf dem ABBYY AI Summit wird Pery erläutern, wie Unternehmen KI-Compliance-Risi
 Weitere Informationen darüber, wie Ihr Unternehmen KI-konform werden kann, finden Sie unter <https://www.abbyy.com/de/solutions/financial-services/kyc/>.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY 
@@ -55,10 +55,10 @@ ABBYY macht Ihre Informationen mit speziell entwickelter KI nutzbar. Unsere Lös
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden. 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ForHumanity
@@ -82,18 +82,19 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-creators-currency-how-to-turn-streams-into-dollars/"><u>[Updated] In 2024, The Creator’s Currency How To Turn Streams Into Dollars</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-reverberation-artisan-collection/"><u>[Updated] Reverberation Artisan Collection</u></a></li>
-<li><a href="https://review-topics.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-zte-nubia-flip-5g-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your ZTE Nubia Flip 5G in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-marketing-analytics-using-cookiebot-technology/"><u>Enhance Your Marketing Analytics Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-engagement-with-cookiebot-technology-integration/"><u>Enhancing Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-seamless-aspect-ratio-adaptation-in-dev-workflows/"><u>In 2024, Seamless Aspect Ratio Adaptation in Dev Workflows</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/realtime-recording-titans/"><u>RealTime Recording Titans</u></a></li>
-<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-oppo-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from Oppo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swedish-sound-system-decoded-quickly/"><u>Swedish Sound System Decoded Quickly</u></a></li>
-<li><a href="https://some-skills.techidaily.com/ultimate-list-of-phone-editors-for-gopro-content-for-2024/"><u>Ultimate List of Phone Editors for GoPro Content for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unraveling-the-mystery-how-did-crowdstrike-spark-windows-major-security-breach-historical-insights-from-zdnet/"><u>Unraveling the Mystery: How Did CrowdStrike Spark Windows' Major Security Breach ? Historical Insights From ZDNet</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-become-audio-prodigy-installing-vrecorder-made-ahead/"><u>[New] Become Audio-Prodigy - Installing VRecorder Made Ahead</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-viewers-delight-discovering-top-6-engaging-content-formats-for-2024/"><u>[New] Viewer's Delight Discovering Top 6 Engaging Content Formats for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-scale-up-achieving-extended-facebook-coverage-for-2024/"><u>[Updated] Scale Up Achieving Extended Facebook Coverage for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-quick-and-easy-increase-or-decrease-story-video-speed/"><u>2024 Approved Quick and Easy Increase or Decrease Story Video Speed</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-efficiency-in-financial-transactions-with-abbyys-innovative-automation-technology/"><u>Enhancing Efficiency in Financial Transactions with ABBYY's Innovative Automation Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-tracking-the-power-behind-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Tracking: The Power Behind Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/evaluierung-von-volkswagens-infotainmentsystemen-mit-hilfe-der-software-von-abbyy/"><u>Evaluierung Von Volkswagens Infotainmentsystemen Mit Hilfe Der Software Von ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/exploring-tomorrows-job-landscape-with-rpa-insights-from-abbyys-timeline-infobook/"><u>Exploring Tomorrow's Job Landscape with RPA: Insights From ABBYY's Timeline Infobook</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-vivo-v27-pro-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Vivo V27 Pro</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-android-guide-inverting-video-playback/"><u>In 2024, Android Guide Inverting Video Playback</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/innovative-ai-driven-document-handling-for-modern-banking-systems/"><u>Innovative AI-Driven Document Handling for Modern Banking Systems</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722844445387-simplified-steps-accessing-and-customizing-androids-quick-settings-menu/"><u>Simplified Steps: Accessing and Customizing Android's Quick Settings Menu</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-nubia-red-magic-9-proplus-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Nubia Red Magic 9 Pro+ Phone Pattern Lock</u></a></li>
 </ul></div>
 

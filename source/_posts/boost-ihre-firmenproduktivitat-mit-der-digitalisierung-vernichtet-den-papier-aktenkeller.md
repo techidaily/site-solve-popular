@@ -1,7 +1,7 @@
 ---
 title: Boost Ihre Firmenproduktivität Mit Der Digitalisierung - Vernichtet Den Papier-Aktenkeller!
-date: 2024-09-25T17:56:24.385Z
-updated: 2024-10-02T19:57:03.114Z
+date: 2024-10-03T18:43:33.825Z
+updated: 2024-10-08T17:55:47.664Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3e3d11024602b266406d40d71c2e14542454419c94adae0ee9c1f0200c006c8b.jpg
@@ -20,10 +20,10 @@ Mining, Oil & Gas
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Großes Unternehmensarchiv schafft Aktenkeller ab und erhöht Produktivität durch Digitalisierungsprojekt
@@ -34,10 +34,10 @@ Mining, Oil & Gas
 | ----------------------------------------------------------------- | ------------------------------------------------ |  |
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name                                                              | Apache Corporation                               |  |
@@ -46,16 +46,16 @@ Mining, Oil & Gas
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Herausforderung
 
 Das Papieraufkommen in den Archivabteilungen des Unternehmens an den Standorten Houston und Calgary nahm überhand. „Die Akten in unseren Archiven stapelten sich bis an die Decke. In Anbetracht der Quadratmeterpreise für diese Lager bestand akuter Bedarf, von Papier auf elektronische Daten umzustellen“, sagt Jim Fields, Datenqualitäts - manager in Apaches Firmenarchiv in Houston, Texas. „Außerdem mussten wir unsere Daten besser sichern, durch elektronische Sicherungskopien.” Im Calgary-Büro von Apache wurde bereits seit 2005 elektronisch archiviert. Dies betraf Hunderte von Dokumententypen, von umfangreichen Betriebsakten bis hin zu technischen Zeichnungen. Die Akten waren eine Mischung aus gescannten Dateien sowie Dokumenten, die die Absender-Unternehmen bereits mittels OCR-Technologie digitalisiert hatten. Die elektronische Aktenablage war das eine Thema. Das andere war die Herausforderung, in diesen Akten Daten suchen und finden zu können. Einfache OCR-Desktop-Produkte kamen gelegentlich im Houston Office zum Einsatz. Nun ging es um das Aufsetzen eines in sich geschlossenen und abgestimmten Systems, um die Archivierung routinemäßig und effizient abzuwickeln. Die Anschaffung eines Servers war der erste Schritt in diese Richtung.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Lösung
 
@@ -69,13 +69,6 @@ Der Einsatz von Recognition Server bei Apache macht einen kompletten Archivraum 
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -83,6 +76,13 @@ Der Einsatz von Recognition Server bei Apache macht einen kompletten Archivraum 
 [Kontakt ›](https://tools.techidaily.com/abbyy/products/)
 
 Teilen 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
@@ -105,19 +105,18 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-optimizing-your-podcasts-rss-feed-performance-and-structure/"><u>[New] Optimizing Your Podcast's RSS Feed Performance and Structure</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-quick-tips-streamlined-processes-for-iphones-screening/"><u>[New] Quick Tips Streamlined Processes for Iphone's Screening</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-visual-excellence-criteria-for-top-10-smartphones-with-high-resolution-cameras/"><u>[Updated] In 2024, Visual Excellence Criteria for Top 10 Smartphones with High-Resolution Cameras</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-battre-en-regle-les-plateformes-financieres-numeriques-natives-decouvrez-notre-verification-complete-par-abbyy/"><u>Comment Battre en Règle Les Plateformes Financières Numériques Natives : Découvrez Notre Vérification Complète Par ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-for-seamless-customer-experience-tracking/"><u>Cookiebot-Driven Insights for Seamless Customer Experience Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-site-with-leading-ai-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Leading AI Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-unleash-the-power-of-automated-conversions/"><u>Cookiebot-Enhanced: Unleash the Power of Automated Conversions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-unleashing-advanced-tracking-solutions-for-your-websites-success/"><u>Cookiebot: Unleashing Advanced Tracking Solutions for Your Website's Success</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/data-driven-personalization-through-smart-analytics-solutions/"><u>Data-Driven Personalization Through Smart Analytics Solutions</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/essential-podcast-scriptwriting-skills-demystified-examples-included/"><u>Essential Podcast Scriptwriting Skills Demystified (Examples Included)</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-5-solutions-for-oneplus-ace-2v-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For OnePlus Ace 2V Unlock Without Password</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Nokia C110? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/wingetui-masterclass-enhancing-windows-11s-application-handling/"><u>WingetUI Masterclass: Enhancing Windows 11'S Application Handling</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-the-insiders-guide-to-perfected-picture-hues/"><u>[Updated] 2024 Approved The Insider's Guide to Perfected Picture Hues</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-peak-craft-space-25-appraisal/"><u>2024 Approved Peak Craft Space 25 Appraisal</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1725286742511-dvdmac/"><u>無料ソフトでDVDをMac上で安全にコピーする詳細マニュアル!</u></a></li>
+<li><a href="https://discover-best.techidaily.com/abbyy-welcomes-leadership-shift-with-the-introduction-of-a-seasoned-cmo/"><u>ABBYY Welcomes Leadership Shift with the Introduction of a Seasoned CMO</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exploring-slomos-full-potential-a-compre-written-context-for-2024/"><u>Exploring SloMo's Full Potential A Compre Written Context for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/free-hevc-h265-video-codec-download-ultra-hd-and-8k-playback/"><u>Free HEVC H.265 Video Codec Download - Ultra HD & 8K Playback</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-videos-from-iphone-xr-without-backup-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Videos from iPhone XR Without Backup? | Stellar</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimized-with-cookiebot-technology-elevate-your-websites-performance-and-analytics/"><u>Optimized with Cookiebot Technology: Elevate Your Website's Performance & Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/pioneering-techniques-to-transform-your-obs-studio-projects-for-2024/"><u>Pioneering Techniques to Transform Your OBS Studio Projects for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/redefining-accounts-payable-the-synergy-of-automation-and-content-knowledge/"><u>Redefining Accounts Payable: The Synergy of Automation and Content Knowledge</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
 </ul></div>
 
