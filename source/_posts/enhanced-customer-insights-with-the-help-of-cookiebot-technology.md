@@ -1,7 +1,7 @@
 ---
 title: Enhanced Customer Insights with the Help of Cookiebot Technology
-date: 2024-10-02T16:34:53.046Z
-updated: 2024-10-08T17:31:19.262Z
+date: 2024-10-11T19:27:39.712Z
+updated: 2024-10-14T19:03:00.642Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a23b6166dff1d71405deccff3c580ba47c280d1fae23b982db1e3d6f2479cd12.jpg
@@ -29,6 +29,13 @@ For organizations to leverage these powerful tools it is vital that they speak t
 
 However, the content needs to be transformed into more than a mere digital facsimile but should also contain information structured in a way that these enabling technologies can both understand and, more importantly, act upon.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Content Intelligence
 
 In order to do this, it is first necessary to classify the nature of the content, i.e. determine what it represents and, therefore, identify the context of the information it contains. This can be achieved by _Content Intelligence_ through utilization of AI algorithms capable of automating this time-consuming activity.
@@ -43,13 +50,6 @@ If all the documents of a particular type were identical, e.g. copies of the sam
 
 The ability to accommodate such diversity comes from a combination AI and business rules to identify, extract and validate the information within the content regardless of the specific layout. The accuracy of the information is maximized through additional validation with external databases, e.g. a vendor database for invoices.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Machine Learning
 
 While a degree of training is necessary during implementation, the system also “self-trains” as an inherent part of the systems normal operations. It does this by incorporating the input from data verification operators.
@@ -58,13 +58,6 @@ This ensures that the accuracy of the information extracted is maintained at an 
 
 What this all means is, that the original content, through _Content_ _Intelligence,_ is now able to speak the right language to technologies such as BPM, RPA and IoT.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Example: Setting Up E-Bill Payment
 
 One of the advantages of web-based banking, is the ability of customers to take control of banking transactions that used require talking to a representative of the bank.
@@ -72,13 +65,6 @@ One of the advantages of web-based banking, is the ability of customers to take 
 If a customer wishes to set up an automatic payment to, for example, their Electricity provider, they need to enter a variety of information regarding the provider and their account information.
 
 The customer can use their Electricity Bill to initiate and automate the setup of an electronic bill payment.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Paperless Billing
 
@@ -92,6 +78,13 @@ Once the bank, receives the email, FlexiCapture processes the attachment, automa
 
 This extracted information is passed to an RPA application to configure the automated payment and await final activation. Given that the request came in via email, the customer is notified via their Customer Banking Portal and is prompted to confirm the activation of the automatic payment.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Paper-based Billing
 
 Not all customers of vendors avail themselves of paperless billing. Consequently, a mechanism is required to automatically extract information from a paper bill in a manner that enhance the total customer experience.
@@ -99,6 +92,13 @@ Not all customers of vendors avail themselves of paperless billing. Consequently
 In this use case, customer can capture the paper bill directly from their mobile banking app and send the resulting image directly to FlexiCapture as shown below in Figure 3.
 
 ![Talking to robots 3](https://static1.abbyy.com/abbyycommedia/25295/talking-to-robots-abbyy-blog-3.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Figure 3 - Setting up e-Billing via Mobile Banking App using paper-based bill_
 
@@ -108,13 +108,6 @@ This extracted information is passed to an RPA application to configure the auto
 
 The activated automated payment is then displayed in the customer banking portal.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Accelerate Digital Transformation by Speaking the Right Language
 
 By speaking the right language, it is possible to transition seamlessly from the Analog to the Digital Realm. This can enable Bank and all other organization provide the level of synchronous and near synchronous transaction that today’s customers demand
@@ -122,6 +115,13 @@ By speaking the right language, it is possible to transition seamlessly from the
 _**by Carl Hillier, Product Group Head for Data Capture**_
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -186,22 +186,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/updated-automated-text-transcription-powerpoints-new-edge/"><u>[Updated] Automated Text Transcription PowerPoint's New Edge</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-recording-your-display-essential-tips-for-effective-screen-capture/"><u>[Updated] In 2024, Recording Your Display Essential Tips for Effective Screen Capture</u></a></li>
-<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-motorola-moto-g24-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Motorola Moto G24 to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-conversions-using-the-latest-cookiebot-technology-features/"><u>Boost Conversions Using the Latest Cookiebot Technology Features</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-un-logiciel-dabbyy-optimise-le-travail-des-cabinets-davocats-londoniens-pour-la-gestion-efficace-de-procedures-essentielles/"><u>Comment Un Logiciel D'ABBYY Optimise Le Travail Des Cabinets D’avocats Londoniens Pour La Gestion Efficace De Procédures Essentielles</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-elevate-your-sites-user-experience/"><u>Cookiebot-Enabled Analytics: Elevate Your Site's User Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-user-experience-enhancement/"><u>Cookiebot-Enabled User Experience Enhancement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-cutting-edge-analytics/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Cutting-Edge Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-drive-better-conversions-with-smart-traffic/"><u>Cookiebot-Enhanced: Drive Better Conversions with Smart Traffic</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/drive-engagement-using-the-advanced-capabilities-of-cookiebot/"><u>Drive Engagement Using the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://fox-where.techidaily.com/easy-steps-to-customizing-your-androids-display-settings/"><u>Easy Steps to Customizing Your Android's Display Settings</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/effective-team-videos-boosting-channelnode-growth-rate/"><u>Effective Team Videos Boosting Channelnode Growth Rate</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/empowering-websites-with-cookiebot-technology-for-enhanced-user-experience/"><u>Empowering Websites with Cookiebot Technology for Enhanced User Experience</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/how-to-correctly-address-pnpdetected-fatal-errors-in-your-windows-11-setup/"><u>How to Correctly Address PNP_Detected Fatal Errors in Your Windows 11 Setup</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Vivo Y27 4G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/scrutinizing-youtubes-top-viewed-community-inputs/"><u>Scrutinizing YouTube's Top Viewed Community Inputs</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/snapshots-of-progress-windows-10s-new-features-for-2024/"><u>Snapshots of Progress Windows 10'S New Features for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-constructing-captivating-podcast-vignettes/"><u>[New] 2024 Approved Constructing Captivating Podcast Vignettes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-elevate-listener-engagement-seo-strategies-for-podcasts/"><u>[New] 2024 Approved Elevate Listener Engagement Seo Strategies for Podcasts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/levating-your-youtube-comments-with-emoji-skills/"><u>[New] Elevating Your YouTube Comments with Emoji Skills</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-learn-to-record-professional-quality-audio-in-audacity-macos-for-2024/"><u>[New] Learn to Record Professional Quality Audio in Audacity, MacOS for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-revolutionizing-presentation-content-with-automated-transcription/"><u>[New] Revolutionizing Presentation Content with Automated Transcription</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-and-blue-prism/"><u>ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-facilitates-consistent-document-management-in-rochlings-sap-system-for-improved-efficiency-latest-industry-news/"><u>ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/efficiently-excel-essential-productivity-software-for-professionals-on-windows/"><u>Efficiently Excel: Essential Productivity Software for Professionals on Windows</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-expert-review-dynamic-action-recording-tools/"><u>In 2024, Expert Review Dynamic Action Recording Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-smartphone-and-tablet-companion-best-gba-simulators/"><u>In 2024, Smartphone & Tablet Companion Best GBA Simulators</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimizing-web-experiences-with-advanced-cookiebot-technology/"><u>Optimizing Web Experiences with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/peak-matrix-2019-abbyy-stands-out-in-everest-groups-rankings-of-leading-idp-tools-and-applications/"><u>Peak Matrix™ 2019: ABBYY Stands Out in Everest Group's Rankings of Leading IDP Tools and Applications</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/protect-your-data-understanding-the-abbyy-cloud-agreement-for-gdpr-adherence/"><u>Protect Your Data: Understanding the ABBYY Cloud Agreement for GDPR Adherence</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-locating-and-repairing-the-missing-d3dx9toll-error/"><u>Step-by-Step Guide: Locating and Repairing the Missing D3dx9_toll Error</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/the-future-of-digital-transformation-insights-from-the-2018-abbyy-technology-summit-on-content-intelligence/"><u>The Future of Digital Transformation: Insights From the 2018 ABBYY Technology Summit on Content Intelligence</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-10-international-tech-visionaries-share-their-insights-on-artificeial-intelligence/"><u>Top 10 International Tech Visionaries Share Their Insights on Artificeial Intelligence</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/top-6-must-read-digital-intelligence-insights-of-2020-featured-on-the-abbyy-blog/"><u>Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/universitat-zurich-optimiert-prufungen-mit-abbyy-flexicapture-korrektursystem/"><u>Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unlock-deeper-understanding-with-abbyys-guide-on-elevated-bi-and-process-mining-tactics-ebook/"><u>Unlock Deeper Understanding with ABBYY's Guide on Elevated BI & Process Mining Tactics [eBook]</u></a></li>
 </ul></div>
 

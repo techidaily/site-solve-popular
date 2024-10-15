@@ -1,7 +1,7 @@
 ---
 title: How ABBYY's Smart Data Extraction Is Reshaping the Future of Service Businesses
-date: 2024-10-03T17:28:29.906Z
-updated: 2024-10-08T16:06:48.181Z
+date: 2024-10-10T18:40:41.427Z
+updated: 2024-10-14T16:41:27.152Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d0cb748bcb0f62a12329bda108fa11c6c1e0878f52106a0e40a69c79938a6a30.jpg
@@ -29,6 +29,13 @@ Intelligent capture replaces manual capture with fully-automated conversion of d
 * Classification to identify the type of document, based on its content and format
 * Text analytics to extract specific data elements from the document required for the business process
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Intelligent Capture and Digital Transformation
 
 Digital transformation is a fundamental shift of business models and activities onto digital platforms, and requires rethinking and retooling an organization’s end-to-end business processes. Not just impacting internal workers, digital transformation can only occur through significant enablement of customer channels. This requires comprehensive self-service capabilities, where customers create and complete transactions without intervention from workers inside the organization.
@@ -43,10 +50,10 @@ Here are some of the key benefits that intelligent capture brings to digital tra
 * Customers can be offered additional goods and services during their transaction based on content analytics
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Application of Intelligent Capture in the service industry
@@ -56,13 +63,6 @@ There are many possible uses for intelligent capture in service industries:
 * **Invoice processing.** Although invoices are a basic tool for every business, each company may have its own format. Intelligent capture can determine the layout of the invoice, and extract key fields such as supplier number, PO number, due date, line item details and totals.
 * **Contract negotiation and management**, where different versions of contracts, must be carefully reviewed and compared to minimize legal and financial risk. Intelligent capture can automatically identify document sections, and the terms and conditions within that section, to compare with standard clauses.
 * **Employee onboarding**. When a new employee starts with a company, they may have to submit many documents, such as identity and tax forms. Intelligent capture allows them to photograph or submit these using their mobile device, then automatically extract the information and upload it to the HR system.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Points to consider before implementation
 
@@ -75,10 +75,10 @@ However, you also need to ensure that the downstream business processes are as a
 ![Sandy Kemsley](https://static4.abbyy.com/abbyycommedia/25712/sandykemsley-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Sandy Kemsley
@@ -92,16 +92,10 @@ During her career of more than 20 years, she has started and run successful prod
 Since 2001, she has returned to private consulting practice as a BPM/DPA architect, performing engagements for financial services and insurance organizations across North America, and as an analyst working with BPM/DPA vendors. In addition to writing her blog, she often speaks at conferences about BPM/DPA and digital transformation, and is a contributing author to books on social BPM and adaptive case management. Sandy is the recipient of the 2016 Marvin L. Manheim award for significant contributions in the field of workflow, and the 2019 winner of the Workflow Management Coalition’s award for Outstanding Business Transformation Consultant.
 
 <!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -167,19 +161,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-detecting-unfollow-trends-on-instagram/"><u>[New] 2024 Approved Detecting Unfollow Trends on Instagram</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-mastery-of-planting-the-finest-valheim-seeds-for-2024/"><u>[New] Mastery of Planting The Finest Valheim Seeds for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-free-and-easy-fb-link-collection-services/"><u>[Updated] 2024 Approved Free and Easy FB Link Collection Services</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effective-strategies-to-improve-page-visibility-in-google-search-results/"><u>Effective Strategies to Improve Page Visibility in Google Search Results</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/efficient-session-management-and-targeting-through-cutting-edge-cookiebot-solutions/"><u>Efficient Session Management and Targeting Through Cutting-Edge Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-business-excellence-by-mastering-process-mapping-assessment-and-simulation-tactics/"><u>Elevate Business Excellence by Mastering Process Mapping, Assessment & Simulation Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevating-industry-standards-ap-automation-success-story-of-siemens-and-abbyy/"><u>Elevating Industry Standards: AP Automation Success Story of Siemens and ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-collaboration-effortlessly-using-abbyy-timeline-5s-new-task-mining-technology/"><u>Enhance Collaboration Effortlessly Using ABBYY Timeline 5’S New Task Mining Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-web-personalization-with-the-power-of-cookiebot-technology/"><u>Enhance Web Personalization with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-best-stop-motion-apps-for-ios-and-android-devices/"><u>New In 2024, Best Stop Motion Apps for iOS and Android Devices</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/trim-wmis-firm-grip-on-cores/"><u>Trim WMI's Firm Grip on Cores</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unlock-hidden-potential-essential-edits-for-starters/"><u>Unlock Hidden Potential Essential Edits for Starters</u></a></li>
-<li><a href="https://win-dash.techidaily.com/upgrade-your-toshiba-device-experience-with-the-latest-bluetooth-driver-downloads/"><u>Upgrade Your Toshiba Device Experience with the Latest Bluetooth Driver Downloads</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/winter-showcase-peak-performances-from-beijing-2022/"><u>Winter Showcase Peak Performances From Beijing 2022</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-top-8-social-tools-to-skyrocket-your-likes-on-facebook/"><u>[New] 2024 Approved Top 8 Social Tools to Skyrocket Your Likes on Facebook</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-superior-windows-11-cam-tech-picks/"><u>[Updated] Superior Windows 11 Cam Tech Picks</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-secret-ingredient-behind-tailored-user-experiences/"><u>Cookiebot: The Secret Ingredient Behind Tailored User Experiences</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/digital-twin-evolution-brochure-unlocking-innovations-with-abbyy/"><u>Digital Twin Evolution Brochure - Unlocking Innovations with ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-optimizing-your-sites-visibility/"><u>Driven by Cookiebot: Optimizing Your Site's Visibility</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/efficiently-managing-insurance-claims-with-ecclesia-the-abbyy-integration/"><u>Efficiently Managing Insurance Claims with Ecclesia: The ABBYY Integration</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/enhance-fb-story-visibility-with-these-tips-for-2024/"><u>Enhance FB Story Visibility with These Tips for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-conversion-rates-using-leading-analytics-software/"><u>Enhanced Conversion Rates Using Leading Analytics Software</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-data-collection-with-the-help-of-cookiebot-technology/"><u>Enhanced Data Collection with the Help of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-with-cookiebot-technology/"><u>Enhancing Website Analytics with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/harnessing-robotic-process-automation-for-efficient-logistics-exploring-the-power-of-abbyy-solutions/"><u>Harnessing Robotic Process Automation for Efficient Logistics: Exploring the Power of ABBYY Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-personalization-and-analytics/"><u>Harnessing the Power of Cookiebot for Advanced Site Personalization and Analytics</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-14-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-live-online-learning-captures/"><u>In 2024, Live Online Learning Captures</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-parrot-playfulness-explored-in-bebop-2/"><u>In 2024, Parrot Playfulness Explored in Bebop 2</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/peeking-into-the-functionality-of-predictive-ai-tools/"><u>Peeking Into the Functionality of Predictive AI Tools</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/uploading-and-showcasing-videos-on-instagram-made-easy/"><u>Uploading and Showcasing Videos on Instagram Made Easy</u></a></li>
+<li><a href="https://facebook.techidaily.com/utilizing-social-networks-for-effective-hiring/"><u>Utilizing Social Networks for Effective Hiring</u></a></li>
 </ul></div>
 

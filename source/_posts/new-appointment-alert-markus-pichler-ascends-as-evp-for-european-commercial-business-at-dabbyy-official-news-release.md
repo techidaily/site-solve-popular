@@ -1,7 +1,7 @@
 ---
 title: "New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release"
-date: 2024-10-05T18:03:30.778Z
-updated: 2024-10-08T16:57:30.641Z
+date: 2024-10-11T16:01:25.341Z
+updated: 2024-10-14T16:12:54.967Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e99583f6b5b06e719853b0ad4d8e79890585ba4f6bebb22736b51161b0bbe49e.jpg
@@ -62,26 +62,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-insta-style-the-essential-guide-to-instagram-story-magnification-for-2024/"><u>[New] Insta Style The Essential Guide to Instagram Story Magnification for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-your-video-their-feast-how-to-craft-gifs-from-vimeo-videos/"><u>[New] Your Video, Their Feast How to Craft GIFs From Vimeo Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/outubes-video-editing-power-plus-professional-equivalents/"><u>[New] YouTube's Video Editing Power + Professional Equivalents</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-welcomes-anthony-macciola-as-their-latest-appointment-chief-innovation-officer/"><u>ABBYY Welcomes Anthony Macciola as Their Latest Appointment: Chief Innovation Officer</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automated-marketing-mastery-with-cookiebot-technology/"><u>Automated Marketing Mastery with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-ihre-firmenproduktivitat-mit-der-digitalisierung-vernichtet-den-papier-aktenkeller/"><u>Boost Ihre Firmenproduktivität Mit Der Digitalisierung - Vernichtet Den Papier-Aktenkeller!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-your-site-with-cookiebots-powerful-analytics/"><u>Boost Your Site with Cookiebot's Powerful Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-your-traffic-with-cookiebots-powerful-tracking-technology/"><u>Boost Your Traffic with Cookiebot's Powerful Tracking Technology</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/come-personalizzare-i-tuoi-video-usando-gli-strumenti-avanzati-di-movavi-tutorial-completo/"><u>Come Personalizzare I Tuoi Video Usando Gli Strumenti Avanzati Di Movavi - Tutorial Completo</u></a></li>
-<li><a href="https://program-issues.techidaily.com/effortless-solutions-to-stop-your-chrome-from-stalling-on-windows-10-systems/"><u>Effortless Solutions to Stop Your Chrome From Stalling on Windows 10 Systems</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/free-hp-officejet-pro-8715-printer-drivers-for-windows-11-10-and-8-direct-download/"><u>Free HP Officejet Pro 8715 Printer Drivers for Windows 11, 10 & 8 - Direct Download</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-audio-visual-accomplishments-the-best-10-recording-devices-for-education/"><u>In 2024, Audio-Visual Accomplishments The Best 10 Recording Devices for Education</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-chucklechroma-jokejunction/"><u>In 2024, ChuckleChroma JokeJunction</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Life360 on Windows PC For Apple iPhone 12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-bio-engineered-healing-spaces-via-arvr/"><u>[Updated] Bio-Engineered Healing Spaces via AR/VR</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-hands-on-techniques-for-storing-vimeo-videos/"><u>2024 Approved Hands-On Techniques for Storing Vimeo Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nnual-payments-for-youtube-premium-better-than-monthly-in-2024/"><u>Are Annual Payments for YouTube Premium Better Than Monthly, In 2024</u></a></li>
+<li><a href="https://win-trending.techidaily.com/comment-puis-je-activer-mon-fonctionnalite-lenovo-onekey-recovery-f11-qui-ne-repond-plus/"><u>Comment Puis-Je Activer Mon Fonctionnalité Lenovo OneKey Recovery (F11) Qui Ne Répond Plus ?</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-marketing-analytics-using-cookiebot-technology/"><u>Enhance Your Marketing Analytics Using Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-engagement-with-cookiebot-technology-integration/"><u>Enhancing Engagement with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Tecno Spark 20C | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-get-your-tunes-back-a-guide-to-repairing-spotify-connectivity-problems-in-android-auto-13-fixes/"><u>How To Get Your Tunes Back: A Guide to Repairing Spotify Connectivity Problems in Android Auto (13 Fixes)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-xiaomi-14-pro-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Xiaomi 14 Pro</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Vivo S17t | Dr.fone</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

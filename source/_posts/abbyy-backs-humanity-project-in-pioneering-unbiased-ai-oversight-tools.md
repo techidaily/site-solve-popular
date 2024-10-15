@@ -1,7 +1,7 @@
 ---
 title: ABBYY Backs Humanity Project in Pioneering Unbiased AI Oversight Tools
-date: 2024-10-06T17:48:13.848Z
-updated: 2024-10-08T17:47:20.133Z
+date: 2024-10-12T16:27:53.744Z
+updated: 2024-10-14T20:17:27.510Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8b677f86d933a2dc57f7b5d236aa4e6146da7e283f8be4d58f50e47e9bc2eba3.jpg
@@ -42,10 +42,10 @@ Auf dem ABBYY AI Summit wird Pery erläutern, wie Unternehmen KI-Compliance-Risi
 Weitere Informationen darüber, wie Ihr Unternehmen KI-konform werden kann, finden Sie unter <https://www.abbyy.com/de/solutions/financial-services/kyc/>.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY 
@@ -55,10 +55,10 @@ ABBYY macht Ihre Informationen mit speziell entwickelter KI nutzbar. Unsere Lös
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden. 
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ForHumanity
@@ -82,19 +82,22 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-become-audio-prodigy-installing-vrecorder-made-ahead/"><u>[New] Become Audio-Prodigy - Installing VRecorder Made Ahead</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-viewers-delight-discovering-top-6-engaging-content-formats-for-2024/"><u>[New] Viewer's Delight Discovering Top 6 Engaging Content Formats for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-scale-up-achieving-extended-facebook-coverage-for-2024/"><u>[Updated] Scale Up Achieving Extended Facebook Coverage for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-quick-and-easy-increase-or-decrease-story-video-speed/"><u>2024 Approved Quick and Easy Increase or Decrease Story Video Speed</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-efficiency-in-financial-transactions-with-abbyys-innovative-automation-technology/"><u>Enhancing Efficiency in Financial Transactions with ABBYY's Innovative Automation Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-tracking-the-power-behind-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Tracking: The Power Behind Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/evaluierung-von-volkswagens-infotainmentsystemen-mit-hilfe-der-software-von-abbyy/"><u>Evaluierung Von Volkswagens Infotainmentsystemen Mit Hilfe Der Software Von ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-tomorrows-job-landscape-with-rpa-insights-from-abbyys-timeline-infobook/"><u>Exploring Tomorrow's Job Landscape with RPA: Insights From ABBYY's Timeline Infobook</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-vivo-v27-pro-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Vivo V27 Pro</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-android-guide-inverting-video-playback/"><u>In 2024, Android Guide Inverting Video Playback</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Google Pixel 8 | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/innovative-ai-driven-document-handling-for-modern-banking-systems/"><u>Innovative AI-Driven Document Handling for Modern Banking Systems</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1722844445387-simplified-steps-accessing-and-customizing-androids-quick-settings-menu/"><u>Simplified Steps: Accessing and Customizing Android's Quick Settings Menu</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-nubia-red-magic-9-proplus-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Nubia Red Magic 9 Pro+ Phone Pattern Lock</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-top-5-budget-action-camcorders-in-full-hd/"><u>[Updated] 2024 Approved Top 5 Budget Action Camcorders in Full HD</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-redefining-digital-space-alternative-video-hosting-sites-for-2024/"><u>[Updated] Redefining Digital Space Alternative Video Hosting Sites for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-boosting-visibility-key-steps-in-submitting-on-reddit/"><u>2024 Approved Boosting Visibility Key Steps in Submitting on Reddit</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-explore-the-power-of-pip-on-modern-edge-browser/"><u>2024 Approved Explore the Power of PIP on Modern Edge Browser</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-realme-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-amazon-basics-shredder-in-depth-analysis-of-the-6-sheet-cross-cut-model/"><u>Affordable Amazon Basics Shredder: In-Depth Analysis of the 6-Sheet Cross Cut Model</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/boundless-ai-companionship-empowering-constant-connectivity-with-chatgpt-everywhere/"><u>Boundless AI Companionship: Empowering Constant Connectivity with 'ChatGPT Everywhere'</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-photography-discover-the-w100/"><u>Budget-Friendly Photography - Discover the W100</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-solutions-enhanced-site-traffic-and-conversion/"><u>Cookiebot-Driven Solutions | Enhanced Site Traffic & Conversion</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-websites-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's Analytics & Tracking</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-boosting-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Boosting Your Site with Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-backbone-of-personalized-web-interactions/"><u>Cookiebot: The Backbone of Personalized Web Interactions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-efficient-and-smart-powering-behind-your-web-analytics/"><u>Cookiebot: The Efficient and Smart Powering Behind Your Web Analytics</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cut-invoice-processing-time-in-half-using-norco-technology/"><u>Cut Invoice Processing Time in Half Using Norco Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/detailed-privacy-and-protection-overview-your-guide-to-enhanced-security-measures/"><u>Detailed Privacy and Protection Overview: Your Guide to Enhanced Security Measures</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/discovering-abbyy-teams-of-athletes-more-than-just-their-profession/"><u>Discovering ABBYY Teams of Athletes: More than Just Their Profession</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-list-the-top-6-studying-tools-in-app-form-to-boost-student-and-parent-performance/"><u>Ultimate List: The Top 6 Studying Tools in App Form to Boost Student & Parent Performance</u></a></li>
 </ul></div>
 

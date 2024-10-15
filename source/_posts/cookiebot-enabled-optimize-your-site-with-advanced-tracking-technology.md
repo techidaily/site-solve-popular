@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Technology"
-date: 2024-10-05T16:10:03.987Z
-updated: 2024-10-08T17:43:49.896Z
+date: 2024-10-09T00:22:22.942Z
+updated: 2024-10-14T17:41:37.825Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f06ecdd32f0e95a7a4f703e01e2d64ef66252665cb47e60c44797d0e0a016c7b.jpg
@@ -27,14 +27,14 @@ We hear you loud and clear, and that is why we’re excited to announce the new 
 
 There’s something in this release for all users, whether you’re a non-coder (aka Citizen Developer), someone with experience in training document models, or simply the human operator whose job is to work with the data that is being processed. [Request a demo today](https://tools.techidaily.com/abbyy/products/) to access the leading ABBYY Vantage Intelligent Document Processing (IDP) platform and download the latest skills from the [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Check out the ABBYY Vantage 2.2 highlight recording
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## An ever-growing catalog of ready-to-go document automations
 
@@ -56,6 +56,13 @@ The latest set of automations include document skills that are production ready:
 
 Additionally, a new set of framework skills for processing 1040 ([Schedule C](https://tools.techidaily.com/abbyy/products/), [Schedule E](https://tools.techidaily.com/abbyy/products/), [Schedule F](https://tools.techidaily.com/abbyy/products/), Schedule K-1), [lease agreements](https://tools.techidaily.com/abbyy/products/), [W8-BEN](https://tools.techidaily.com/abbyy/products/), and [Sick Notes (German)](https://marketplace.abbyy.com/root/german-sick-note-arbeitsunfahigkeitsbescheinigung/) are available in the ABBYY Marketplace for users to try out.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Introducing ID Skill to accelerate client onboarding and servicing
 
 Every business wants to deliver a seamless online mobile experience to customers. The ability to verify the identity of an individual is becoming increasingly important. With the new Identity Document (ID) skill, ABBYY is delivering the most comprehensive trained model that extracts information from passports, US driver licenses, and many more. In fact, the new ID skill recognizes and extracts information from 10,000 different document types in 248 countries. 
@@ -63,6 +70,13 @@ Every business wants to deliver a seamless online mobile experience to customers
 Using the Vantage Mobile App, users can snap a photo of the ID (front and back) and submit it along with other trailing documents for processing. This could be part of the process for opening a new account, applying for a new REAL ID in the US, or other client services.
 
 To request a license and try out the new ID Skill, visit the [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/).
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## More flexibility and higher accuracy with document training
 
@@ -83,6 +97,13 @@ Still, we are constantly evaluating and finding new ways to deliver better accur
 For businesses in Japan, you will be excited to know OCR improvements have been made to deliver you increased accuracy, giving you the tools to automate even further.
 
 Finally, image quality is a challenge, and we see early AI vendor companies struggling to find the right solution. Through pretrained models, we’ve overcome challenges related to documents with complex backgrounds like birth certificates, IDs, or any document that embeds watermarks and other types of document marks that make it difficult to recognize the data.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Monitor and optimize document processes
 
@@ -107,19 +128,6 @@ If you have a trial of [Vantage](https://tools.techidaily.com/abbyy/products/) i
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) 
 
 ![Bill Galusha ABBYY](https://static5.abbyy.com/abbyycommedia/25718/billgalusha-99x99.png)
-
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Bill Galusha
 
@@ -173,19 +181,6 @@ Connect with us
 
 ![](https://static3.abbyy.com/abbyycommedia/35718/everest-2022-blog-cover2-848x444.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### New innovative capabilities drive greater process efficiencies across all business areas for automating document processes
 
 When discussing intelligent automation with our customers, one key challenge that rises to the top of the conversation is how the data trapped in their documents is the lifeline to many of their processes. They lack the ability to automatically identify the documents, extract the data, and connect it to their employees and processes, and they’re feeling the pain both in back-office operations and on the customer experience.
@@ -195,26 +190,13 @@ We hear you loud and clear, and that is why we’re excited to announce the new 
 There’s something in this release for all users, whether you’re a non-coder (aka Citizen Developer), someone with experience in training document models, or simply the human operator whose job is to work with the data that is being processed. [Request a demo today](https://tools.techidaily.com/abbyy/products/) to access the leading ABBYY Vantage Intelligent Document Processing (IDP) platform and download the latest skills from the [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Check out the ABBYY Vantage 2.2 highlight recording
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## An ever-growing catalog of ready-to-go document automations
 
@@ -223,13 +205,6 @@ Last year, [we introduced the ABBYY Marketplace,](https://tools.techidaily.com/a
 All document skill automations, connectors, and other assets are built by ABBYY or certified partners so that your business can easily download and get started quickly, while at the same time further training and customizing the skills to meet your business needs.
 
 ![](https://static1.abbyy.com/abbyycommedia/35730/scanning.gif)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The latest set of automations include document skills that are production ready:
 
@@ -251,13 +226,6 @@ Using the Vantage Mobile App, users can snap a photo of the ID (front and back) 
 
 To request a license and try out the new ID Skill, visit the [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## More flexibility and higher accuracy with document training
 
 In this release, we have introduced several capabilities designed to give users more control over training document skills using the Vantage Advanced Designer. The result is more advanced flexibility in how you can combine activities in the training pipeline to get the optimal extraction results from even the most complex unstructured documents.
@@ -277,6 +245,13 @@ Still, we are constantly evaluating and finding new ways to deliver better accur
 For businesses in Japan, you will be excited to know OCR improvements have been made to deliver you increased accuracy, giving you the tools to automate even further.
 
 Finally, image quality is a challenge, and we see early AI vendor companies struggling to find the right solution. Through pretrained models, we’ve overcome challenges related to documents with complex backgrounds like birth certificates, IDs, or any document that embeds watermarks and other types of document marks that make it difficult to recognize the data.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Monitor and optimize document processes
 
@@ -304,6 +279,19 @@ If you have a trial of [Vantage](https://tools.techidaily.com/abbyy/products/) i
 
 Bill Galusha
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share
@@ -323,18 +311,21 @@ Share
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-hands-on-approaches-to-archive-vimeo-video/"><u>[Updated] 2024 Approved Hands-On Approaches to Archive Vimeo Video</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-ultimate-screenplay-treasures-for-each-movie-division/"><u>[Updated] 2024 Approved Ultimate Screenplay Treasures for Each Movie Division</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-complete-analysis-triangulating-life-with-samsung-vr/"><u>2024 Approved Complete Analysis Triangulating Life with Samsung VR</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-un-logiciel-dabbyy-optimise-le-travail-des-cabinets-davocats-londoniens-pour-la-gestion-efficace-de-procedures-essentielles/"><u>Comment Un Logiciel D'ABBYY Optimise Le Travail Des Cabinets D’avocats Londoniens Pour La Gestion Efficace De Procédures Essentielles</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-elevate-your-sites-user-experience/"><u>Cookiebot-Enabled Analytics: Elevate Your Site's User Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-user-experience-enhancement/"><u>Cookiebot-Enabled User Experience Enhancement</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-cutting-edge-analytics/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Cutting-Edge Analytics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-drive-better-conversions-with-smart-traffic/"><u>Cookiebot-Enhanced: Drive Better Conversions with Smart Traffic</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/drive-engagement-using-the-advanced-capabilities-of-cookiebot/"><u>Drive Engagement Using the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/gratis-livsmedelsprogram-pa-mac-de-basta-5-satten-for-att-spela-i-ett-livsgrann/"><u>Gratis Livsmedelsprogram På Mac: De Bästa 5 Sätten För Att Spela I Ett Livsgrann</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-top-10-cartoonization-apps-for-mobile-devices-for-2024/"><u>New Top 10 Cartoonization Apps for Mobile Devices for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/tropico-eb-version-examination-dominating-a-serene-eden/"><u>Tropico Eb Version Examination: Dominating a Serene Eden</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/wirelessly-cast-your-iphones-display-onto-your-samsung-television-a-step-by-step-guide/"><u>Wirelessly Cast Your iPhone's Display Onto Your Samsung Television: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-ultimate-download-manager-best-youtube-downloader-apps/"><u>[New] Ultimate Download Manager Best YouTube Downloader Apps</u></a></li>
+<li><a href="https://fox-that.techidaily.com/diy-tech-hacks-correct-5-baffling-iphone-issues-using-dfu-reset-method/"><u>DIY Tech Hacks: Correct 5 Baffling iPhone Issues Using DFU Reset Method</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-on-iphone-se-2020-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud on iPhone SE (2020) Safe and Legal</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/essential-10-fcp-plugin-tools/"><u>Essential 10 FCP Plugin Tools</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/from-footage-to-film-mastering-the-art-of-cinematic-video-editing/"><u>From Footage to Film Mastering the Art of Cinematic Video Editing</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-disabled-apple-iphone-15-proipad-without-computer-drfone-by-drfone-ios/"><u>How to Unlock Disabled Apple iPhone 15 Pro/iPad Without Computer | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-samsung-galaxy-s24plus-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Samsung Galaxy S24+ Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-step-by-step-instructions-for-universal-recording-of-youtube-lives/"><u>In 2024, Step-by-Step Instructions for Universal Recording of YouTube Lives</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-nvidia-quadro-graphics-driver-update-for-windows-11-how-to-get-them-safely-and-easily/"><u>Latest NVIDIA Quadro Graphics Driver Update for Windows 11 - How to Get Them Safely and Easily</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimizing-your-supply-chain-how-to-seize-underestimated-growth-opportunities-for-success/"><u>Optimizing Your Supply Chain: How to Seize Underestimated Growth Opportunities for Success</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/redefining-accounts-payable-the-synergy-of-automation-and-content-knowledge/"><u>Redefining Accounts Payable: The Synergy of Automation and Content Knowledge</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/reimagining-legality-how-the-legal-field-is-evolving-according-to-abbyys-perspectives/"><u>Reimagining Legality: How the Legal Field Is Evolving According to ABBYY's Perspectives</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/robert-youngjohns-steering-vision-as-abbyys-esteemed-board-chair/"><u>Robert Youngjohns: Steering Vision as ABBYY's Esteemed Board Chair</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unveiling-abbyys-advanced-ai-capabilities-for-efficient-document-handling-at-the-london-ai-conference/"><u>Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/usc-enhances-cancer-registry-efficiency-using-abbyy-technology-for-accurate-health-data-management/"><u>USC Enhances Cancer Registry Efficiency Using ABBYY Technology for Accurate Health Data Management</u></a></li>
 </ul></div>
 

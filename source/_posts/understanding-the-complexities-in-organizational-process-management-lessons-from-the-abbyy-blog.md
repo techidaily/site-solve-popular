@@ -1,7 +1,7 @@
 ---
 title: Understanding The Complexities in Organizational Process Management – Lessons From the ABBYY Blog
-date: 2024-10-04T16:28:18.495Z
-updated: 2024-10-08T17:45:19.538Z
+date: 2024-10-09T19:28:22.172Z
+updated: 2024-10-14T18:33:13.529Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/81bdcc97eef551e0f3a9b3144d7c585e9e69ed51245c289c479d5dc0d390d590.jpg
@@ -24,10 +24,10 @@ A recent [survey](https://tools.techidaily.com/abbyy/products/) commissioned by 
 The true insights to be gained from this survey are not in pitting one industry’s score against the others but to underscore the fact that ‘process’ continues to be a major problem for industry leaders. Especially problematic, but seldom actually examined, is how well staff – knowledge workers in particular – follow processes or work around them. We can look at the usual causes – old technology, inadequate budget, need to modernize or add more automation – all of which have been a boon for technology providers but have failed to address the problem in any meaningful way.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Perhaps it’s time to start looking at the ‘process problem’ differently?
@@ -35,10 +35,10 @@ The true insights to be gained from this survey are not in pitting one industry�
 Government leaders are not unique but make clear what needs to be front and center of conversations about process: people. Processes are made to make people more productive, consistent and accountable, yet they so often are designed and budgeted around data, workflow, training technologies and not on usability. Government workers are knowledge workers, dedicated to solving problems for their constituents. In this context, the data reveal that the three most cited reasons why staff did not follow processes were to meet customer needs (44%), processes are too complex (38%) and not enough time to follow them (31%). This indicates that government employees are willing to take shortcuts in order to meet constituents’ expectations because the _processes aren’t working for them_.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## A Different Look at Process, Mining and Automation
@@ -52,10 +52,10 @@ _Process Intelligence_ is an innovative approach to mining processes to show and
 [![Infographic of Process Mining ABBYY Survey Results July 2020](https://static1.abbyy.com/abbyycommedia/29019/11982_infographics_process-mining_abbyy-survey_eng_300dpi-5.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The data shown here illustrate that government workers do not get adequate decision and action support from their existing processes and systems to facilitate resolution fast enough, so they ‘go around them.’ Not unique to government, the primary reason why so many process automation solutions are failing (RPA, for example, where it is recognized that over 65% of these implementations are failing to achieve their goals) is because they do not adequately address how knowledge workers do their jobs. Process mining can be part of the same problem if it does not focus on work journeys.
@@ -68,20 +68,14 @@ Learn more about [ABBYY solutions for government](https://tools.techidaily.com/a
 
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
-Reginald J. Twigg
-
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Reginald J. Twigg
 
 ### Like, share or repost
 
@@ -146,14 +140,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-amp-up-your-pixel-with-top-download-links/"><u>[New] In 2024, Amp Up Your Pixel with Top Download Links</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-laugh-ledger-the-ultimate-list-of-hilarious-tweets/"><u>[New] Laugh Ledger The Ultimate List of Hilarious Tweets</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unlock-enhanced-video-playback-and-app-functionality-with-chromes-pip/"><u>[Updated] Unlock Enhanced Video Playback and App Functionality with Chrome’s PIP</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/abbyy-and-blue-prism/"><u>ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-ways-to-erase-apple-iphone-6-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>In 2024, 3 Ways to Erase Apple iPhone 6 When Its Locked Within Seconds | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Honor 90 | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-6-must-read-digital-intelligence-insights-of-2020-featured-on-the-abbyy-blog/"><u>Top 6 Must-Read Digital Intelligence Insights of 2020, Featured on the ABBYY Blog</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/universitat-zurich-optimiert-prufungen-mit-abbyy-flexicapture-korrektursystem/"><u>Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/unlock-deeper-understanding-with-abbyys-guide-on-elevated-bi-and-process-mining-tactics-ebook/"><u>Unlock Deeper Understanding with ABBYY's Guide on Elevated BI & Process Mining Tactics [eBook]</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-optimize-your-video-written-by-your-name/"><u>[New] 2024 Approved Optimize Your Video' Written By [Your Name]</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-harmony-in-sounds-legally-downloaded-meditation-chants-and-more/"><u>[Updated] Harmony in Sounds Legally Downloaded Meditation Chants & More</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-navigating-discords-streaming-features-desktopmobile/"><u>[Updated] In 2024, Navigating Discord's Streaming Features (Desktop/Mobile)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-definitive-guide-to-choosing-the-best-webcam-for-your-youtube-channel/"><u>2024 Approved The Definitive Guide to Choosing the Best Webcam for Your YouTube Channel</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-web-visibility-instantly-using-the-powerful-cookiebot-seo-tech/"><u>Boost Web Visibility Instantly Using the Powerful Cookiebot SEO Tech</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-web-insights-with-cookiebot-technology/"><u>Boosting Web Insights with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/carlsberg-accelere-son-debut-en-mer-avec-la-technologie-abbyy-un-nouveau-partenariat-industriel/"><u>Carlsberg Accélère Son Début en Mer Avec La Technologie ABBYY : Un Nouveau Partenariat Industriel</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-performance-enhancing-your-websites-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Website's User Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reel-strategy-is-it-enough-to-dethrone-tiktoks-rule/"><u>Facebook’s Reel Strategy: Is It Enough to Dethrone TikTok's Rule?</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/securely-transferring-past-email-data-into-live-exchange-server/"><u>Securely Transferring Past Email Data Into LIVE Exchange Server</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swiftly-conquering-french-chromatic-speech/"><u>Swiftly Conquering French Chromatic Speech</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-how-to-create-ken-burns-effect-detaied-steps-for-2024/"><u>Updated How to Create Ken Burns Effect? Detaied Steps for 2024</u></a></li>
 </ul></div>
 

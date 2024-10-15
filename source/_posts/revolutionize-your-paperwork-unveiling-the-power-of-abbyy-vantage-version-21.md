@@ -1,7 +1,7 @@
 ---
 title: "Revolutionize Your Paperwork: Unveiling the Power of ABBYY Vantage Version 2.1"
-date: 2024-10-05T16:06:17.989Z
-updated: 2024-10-08T16:36:23.709Z
+date: 2024-10-08T21:35:22.184Z
+updated: 2024-10-14T19:47:44.961Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0637330b995d15dd54d33a9215c8a5f8a705636812bbbbc0bf18d5302643fdc0.jpg
@@ -46,10 +46,10 @@ Training a skill and then reviewing the results got a lot easier with a redesign
 To get started, users of Vantage can access the FREE [online training and certifications](https://tools.techidaily.com/abbyy/products/) courses.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## New supply chain document skills
@@ -67,6 +67,13 @@ A new set of framework skills for processing tax documents including 1098 and 10
 
 What’s important to point out about the trained skills is that these document skill models can be further trained by users based on their own customer documents. The power of continuously collecting documents and data and retraining the model is built into the Vantage human-in-the-loop capabilities. Once you publish a skill(s) into production and enable online learning, every time a human operator validates exceptions or makes corrections, that information is stored and used to update the learning model. Eventually, your document processes achieve a higher degree of accuracy and straight through processing.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ABBYY Marketplace growing momentum
 
 We first launched the marketplace in August 2021, and since then, 30 more assets have been added by ABBYY and our partners. New assets include pre-trained skills, connectors, and solutions that are simple-to-use and accelerate the deployment of IDP projects. Expect this marketplace to lead the way into the future on how enterprises will want to start every document automation project.
@@ -83,16 +90,16 @@ In this release, we have something for every type of user, including the skilled
 
 ![Advanced Designer ABBYY Vantage interface](https://static1.abbyy.com/abbyycommedia/34963/14194-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The Advanced Skill Designer includes a set of activities for parsing address fields, training NLP for segmentation, or leveraging trained NER to extract entities like names, address, business, dates, and currency. An activity for defining data extraction for edge case document variations that machine learning is unable to pick up at a high degree of accuracy is also possible for a skilled user to create rules.
 
 All this means that no document is too challenging for Vantage to solve. If you have the human skill set, the new advanced designer will give you the tools to show off your expert skills and further developed trained document skills for your business groups.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Building out the delivery of a Cloud native platform with flexibility
 
@@ -101,13 +108,6 @@ Native Cloud and all the buzzwords associated with the next wave of automation p
 Not to worry, Vantage was built from the very beginning around microservices and containerization. This modern technology approach gives the flexibility for enterprises to choose how or where they want to run their platform. Furthermore, IT architects can be rest assured they don’t need to learn some new deployment model when in fact what is being delivered can fit into their standard operating procedures.
 
 Today, organizations are looking for both enterprise software as a service (SaaS) to on-premise deployment models that are not going to turn things upside down and will fit into the new delivery modes that they are adopting. That is why in the v2.1.1 (due out end of December) we are making Vantage deployable in on-premise environments using Red Hat® OpenShift®.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Get started today!
 
@@ -121,14 +121,14 @@ If you have a trial of Vantage in the Cloud today, you already have access to al
 
 ![Bill Galusha ABBYY](https://static5.abbyy.com/abbyycommedia/25718/billgalusha-99x99.png)
 
-Bill Galusha
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Bill Galusha
 
 ### Like, share or repost
 
@@ -193,19 +193,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-time-taming-learn-youtube-video-length-cuts/"><u>[New] Time Taming Learn YouTube Video Length Cuts</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-budget-friendly-high-quality-earphones-for-gaming-for-2024/"><u>[Updated] Budget-Friendly, High-Quality Earphones for Gaming for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-explore-the-leading-youtube-to-webm-video-conversion-tools/"><u>[Updated] Explore the Leading YouTube-to-WebM Video Conversion Tools</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-mindful-moments-easy-engrossing-phone-games/"><u>2024 Approved Mindful Moments Easy, Engrossing Phone Games</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-oppo-a1x-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Oppo A1x 5G Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-website-performance-with-cookiebot-integration-the-key-to-successful-seo-strategies/"><u>Boost Website Performance with Cookiebot Integration - The Key to Successful SEO Strategies</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-automation-enhancing-your-digital-marketing-efforts/"><u>Cookiebot-Driven Automation: Enhancing Your Digital Marketing Efforts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-solutions-enhanced-site-traffic-and-conversion/"><u>Cookiebot-Driven Solutions | Enhanced Site Traffic & Conversion</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-enhance-your-websites-analytics-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's Analytics & Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enhanced-boosting-your-site-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Boosting Your Site with Advanced Tracking Technology</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1722873588985-discord-hitch-how-to-diagnose-whether-its-an-outage-or-personal-internet-issues/"><u>Discord Hitch? How to Diagnose Whether It’s an Outage or Personal Internet Issues</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Poco X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-xiaomi-14-ultra-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Xiaomi 14 Ultra FRP Locks</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-quick-launch-lines-a-practical-roadmap-for-product-review-channel-founders/"><u>In 2024, Quick Launch Lines A Practical Roadmap for Product Review Channel Founders</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-advanced-tips-for-nvidia-recorded-content/"><u>[New] In 2024, Advanced Tips for NVIDIA Recorded Content</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-how-to-make-time-lapse-videos-with-gopro-studio/"><u>[New] In 2024, How to Make Time Lapse Videos With GoPro Studio</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-top-10plus-best-online-screen-capture-platforms/"><u>[Updated] Top 10+ Best Online Screen Capture Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-your-yearly-list-prime-free-video-editing-software/"><u>2024 Approved Your Yearly List Prime Free Video Editing Software</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-strategy-shifts-global-economys-influence-explored-in-comprehensive-intelligence-automation-overview/"><u>AI Strategy Shifts: Global Economy's Influence Explored in Comprehensive Intelligence Automation Overview</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boost-conversions-using-the-latest-cookiebot-technology-features/"><u>Boost Conversions Using the Latest Cookiebot Technology Features</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Asus ROG Phone 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/comment-un-logiciel-dabbyy-optimise-le-travail-des-cabinets-davocats-londoniens-pour-la-gestion-efficace-de-procedures-essentielles/"><u>Comment Un Logiciel D'ABBYY Optimise Le Travail Des Cabinets D’avocats Londoniens Pour La Gestion Efficace De Procédures Essentielles</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-elevate-your-sites-user-experience/"><u>Cookiebot-Enabled Analytics: Elevate Your Site's User Experience</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/enhance-user-experience-with-our-cookiebot-power-solutions/"><u>Enhance User Experience with Our Cookiebot Power Solutions</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-12-pro-to-the-latest-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 12 Pro to the Latest iOS/iPadOS Version? | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/reviving-safari-on-your-iphone-discover-these-10-helpful-fixes/"><u>Reviving Safari on Your iPhone: Discover These 10 Helpful Fixes</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "「日本語手作りの文字をAIが解読: TegakiとFlexiCapture、コゲントラボがOCRサービスで最先端へ」 - ABBYYブログ"
-date: 2024-10-07T18:10:35.941Z
-updated: 2024-10-08T16:58:44.750Z
+date: 2024-10-12T00:39:43.614Z
+updated: 2024-10-14T18:20:23.946Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1aaa1948c8657f1c3ade15a5850d4145b4cb86fea7e0bf45a6a316b50b831479.jpg
@@ -47,10 +47,10 @@ thumbnail: https://thmb.techidaily.com/1aaa1948c8657f1c3ade15a5850d4145b4cb86fea
 ABBYY Japan エンジニアリングチーム
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -116,17 +116,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-amplify-your-voice-on-youtube-mastery-through-tubebuddy/"><u>[New] 2024 Approved Amplify Your Voice on YouTube - Mastery Through TubeBuddy</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-methods-for-subtle-audio-softening-with-lumafusion/"><u>[New] Methods for Subtle Audio Softening with Lumafusion</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-pixeled-up-transform-your-shots-for-free/"><u>2024 Approved Pixeled-Up Transform Your Shots for Free</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-twin-evolution-brochure-unlocking-innovations-with-abbyy/"><u>Digital Twin Evolution Brochure - Unlocking Innovations with ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-optimizing-your-sites-visibility/"><u>Driven by Cookiebot: Optimizing Your Site's Visibility</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/efficiently-managing-insurance-claims-with-ecclesia-the-abbyy-integration/"><u>Efficiently Managing Insurance Claims with Ecclesia: The ABBYY Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-conversion-rates-using-leading-analytics-software/"><u>Enhanced Conversion Rates Using Leading Analytics Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-data-collection-with-the-help-of-cookiebot-technology/"><u>Enhanced Data Collection with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-pc-compatible-sony-ps3-mimicry-tools-top-picks/"><u>In 2024, PC-Compatible Sony PS3 Mimicry Tools Top Picks</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/luminous-android-videography-techniques-for-2024/"><u>Luminous Android Videography Techniques for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/mastery-of-max-and-min-cpu-indicators-on-windows/"><u>Mastery of Max & Min CPU Indicators on Windows</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/reclaiming-control-over-a-suspended-or-disabled-instagram-identity-top-tips/"><u>Reclaiming Control Over a Suspended or Disabled Instagram Identity: Top Tips</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-step-by-step-guide-to-mobile-snapchat-screen-recording/"><u>[New] In 2024, Step-by-Step Guide to Mobile Snapchat Screen Recording</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-uniting-friends-across-operating-systems-with-skype-groups/"><u>[Updated] 2024 Approved Uniting Friends Across Operating Systems with Skype Groups</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-exploring-the-power-of-visual-effects-in-editing/"><u>[Updated] In 2024, Exploring the Power of Visual Effects in Editing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-and-blue-prism/"><u>ABBYY & Blue Prism: プロセスインテリジェンスツールで組織の自動化効率を飛躍的に高める</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-facilitates-consistent-document-management-in-rochlings-sap-system-for-improved-efficiency-latest-industry-news/"><u>ABBYY Facilitates Consistent Document Management in Röchling's SAP System for Improved Efficiency – Latest Industry News</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-showcases-artificial-intelligence-insights-at-the-2018-aiim-event/"><u>ABBYY Showcases Artificial Intelligence Insights at the 2018 AIIM Event</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-auditing-initiatives-boosted-by-ab-inbevs-backing-of-forhumanity/"><u>AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-web-traffic-with-cookiebot-technology-smart-analytics-tools/"><u>Boosting Web Traffic with Cookiebot Technology - Smart Analytics Tools!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/comment-battre-en-regle-les-plateformes-financieres-numeriques-natives-decouvrez-notre-verification-complete-par-abbyy/"><u>Comment Battre en Règle Les Plateformes Financières Numériques Natives : Découvrez Notre Vérification Complète Par ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-insights-for-seamless-customer-experience-tracking/"><u>Cookiebot-Driven Insights for Seamless Customer Experience Tracking</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/free-vecto-art-and-graphic-sites-compared-whos-the-best-in-2024/"><u>Free Vecto Art & Graphic Sites Compared – Who's the Best, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ating-day-to-day-streams-key-dos-and-donts/"><u>Navigating Day-to-Day Streams Key Do's & Don'ts</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-digital-footprint-reducing-specific-ads/"><u>Optimize Your Digital Footprint: Reducing Specific Ads</u></a></li>
+<li><a href="https://extra-support.techidaily.com/scaling-your-channel-a-guide-to-increased-viewership-and-followers-for-2024/"><u>Scaling Your Channel A Guide to Increased Viewership and Followers for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/starting-strong-in-screen-sharpness-your-first-tutorial-on-hd-video-for-2024/"><u>Starting Strong in Screen Sharpness Your First Tutorial on HD Video for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-constant-collapses-in-remnant-the-definitive-edition/"><u>Troubleshooting Constant Collapses in 'Remnant: The Definitive Edition</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-tips-for-fixing-windows-11-installation-error-80240020-solved/"><u>Troubleshooting Tips for Fixing Windows 11 Installation Error 80240020 [Solved]</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/universitat-zurich-optimiert-prufungen-mit-abbyy-flexicapture-korrektursystem/"><u>Universität Zürich Optimiert Prüfungen Mit ABBYY FlexiCapture Korrektursystem</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unlock-deeper-understanding-with-abbyys-guide-on-elevated-bi-and-process-mining-tactics-ebook/"><u>Unlock Deeper Understanding with ABBYY's Guide on Elevated BI & Process Mining Tactics [eBook]</u></a></li>
 </ul></div>
 

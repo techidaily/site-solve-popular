@@ -1,7 +1,7 @@
 ---
 title: Unveiling ABBYY's Advanced AI Capabilities for Efficient Document Handling at the London AI Conference
-date: 2024-10-06T17:13:55.148Z
-updated: 2024-10-08T18:20:56.172Z
+date: 2024-10-13T16:18:40.637Z
+updated: 2024-10-14T21:25:47.668Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea7246067d0e64ce56f240c9081.jpg
@@ -62,35 +62,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-step-by-step-guide-to-creating-compelling-multi-picture-insta-stories/"><u>[New] 2024 Approved Step by Step Guide to Creating Compelling, Multi-Picture Insta Stories</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-end-screen-design-made-easy-with-our-templates-and-tutorials/"><u>[New] In 2024, End-Screen Design Made Easy with Our Templates & Tutorials</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-unlock-your-potential-with-ez-grabber-installation-and-usage/"><u>[New] In 2024, Unlock Your Potential with EZ Grabber - Installation & Usage</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-game-recorder-faceoff-for-2024/"><u>[New] In-Game Recorder Faceoff for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-purerecorder-capturing-life-in-games-without-cost/"><u>[Updated] PureRecorder Capturing Life in Games Without Cost</u></a></li>
-<li><a href="https://some-tips.techidaily.com/aac-in-mp4-omzetten-via-webservice-gratis-movavi-converter/"><u>AAC in MP4 Omzetten via Webservice - Gratis Movavi Converter</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-fuels-our-sites-intelligence-discover-the-smart-technology-driving-us/"><u>Cookiebot Fuels Our Site's Intelligence: Discover the Smart Technology Driving Us!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-analytics-unleashing-website-personalization-and-targeting/"><u>Cookiebot-Driven Analytics: Unleashing Website Personalization & Targeting</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-personalization-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Driven Personalization: Enhance User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-analytics-solutions/"><u>Cookiebot-Enabled Analytics Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-enabled-optimize-your-website-with-advanced-tracking/"><u>Cookiebot-Enabled: Optimize Your Website with Advanced Tracking</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digital-workforce-corporate-change-and-business-transformation/"><u>Digital Workforce, Corporate Change, and Business Transformation.</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/driven-with-advanced-automated-marketing-solutions-from-cookiebot/"><u>Driven with Advanced Automated Marketing Solutions From Cookiebot</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effective-strategies-to-improve-page-visibility-in-google-search-results/"><u>Effective Strategies to Improve Page Visibility in Google Search Results</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-motorola-defy-2-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Motorola Defy 2 online without jailbreak</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-best-12-free-download-animation-software-for-windows-and-mac-2022/"><u>Updated In 2024, Best 12 Free Download Animation Software for Windows and Mac 2022</u></a></li>
-<li><a href="https://win-able.techidaily.com/wwe-2k22-pc-version-why-does-it-keep-crashing-solutions-inside/"><u>WWE 2K22 PC Version: Why Does It Keep Crashing? - Solutions Inside</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-key-techniques-to-optimize-igtv-video-dimensions/"><u>[New] 2024 Approved Key Techniques to Optimize IGTV Video Dimensions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-youtube-subscriber-chart-the-5-most-subscribed-youtube-channels/"><u>[New] 2024 Approved YouTube Subscriber Chart - The 5 Most Subscribed YouTube Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-efficiently-downloading-youtube-sections-in-minutes/"><u>[New] Efficiently Downloading YouTube Sections in Minutes</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-first-flight-experience-the-best-beginner-drones/"><u>[New] First Flight Experience The Best Beginner Drones</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-vegas-pro-2021-reviewed-a-sports-betting-journey/"><u>[New] In 2024, Vegas Pro 2021 Reviewed – A Sports Betting Journey</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-navigating-multitasking-media-expertise-in-using-picture-in-picture/"><u>[Updated] Navigating Multitasking Media Expertise in Using Picture-in-Picture</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-free-youtube-earning-predictors/"><u>2024 Approved Free YouTube Earning Predictors</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-transforming-self-doubt-into-youtube-dominance/"><u>2024 Approved Transforming Self-Doubt Into YouTube Dominance</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/customized-advertising-with-the-advanced-capabilities-of-cookiebot/"><u>Customized Advertising with the Advanced Capabilities of Cookiebot</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/die-neuesten-mining-fahigkeiten-von-abbyy-timeline-cu-verbesserte-integration-von-menschlichen-ressourcen-prozessen-und-inhalten/"><u>Die Neuesten Mining-Fähigkeiten Von ABBYY Timeline Cu: Verbesserte Integration Von Menschlichen Ressourcen, Prozessen Und Inhalten</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/differences-between-robotic-process-automation-rpa-and-intelligent-process-automation-ipa/"><u>Differences Between Robotic Process Automation (RPA) and Intelligent Process Automation (IPA)</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/digitale-revolution-mit-5-leitsatzen-expertenchecklisten-von-abbyy-jetzt-verfugbar-machen/"><u>Digitale Revolution Mit 5 Leitsätzen: Expertenchecklisten Von ABBYY Jetzt Verfügbar Machen!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effiziente-automationstechnologien-im-versicherungssektor/"><u>Effiziente Automa­tionstechnologien Im Versicherungssektor</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/fusing-melodies-to-visuals-in-virtual-space-for-2024/"><u>Fusing Melodies to Visuals in Virtual Space for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
