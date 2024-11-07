@@ -1,7 +1,7 @@
 ---
 title: "Optimale Strategien Für Die Verwendung Von Wbadmin Bei Der Erstellung Eines Bare Metall Sicherungsplans: Ein Umfassender Leitfaden"
-date: 2024-10-31T04:39:08.336Z
-updated: 2024-11-01T00:36:31.338Z
+date: 2024-10-30T18:10:35.887Z
+updated: 2024-11-06T21:29:45.374Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc319264524a7b728bfe67ef7f7.jpg
@@ -61,13 +61,6 @@ Toutes les opérations s'effectuent dans une interface intuitive, ce qui permet 
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-logo-ab-32.svg)AOMEI Backupper
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Meilleur logiciel de sauvegarde Windows gratuit pour usage personnel.
 
 [**Télécharger gratuiciel** Windows 11/10/8.1/8/7](https://tools.techidaily.com/ubackup/products/)
@@ -79,6 +72,13 @@ Avant de commencer à sauvegarder des fichiers avec le logiciel de sauvegarde NA
 **Étape 1.** Lancez AOMEI Backuppper Standard, cliquez sur **Sauvegarder**, puis sur **Sauvegarde de fichiers**.
 
 [![sauvegarde de fichiers](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/sauvegarde-de-fichiers.png)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Vous pouvez également choisir _Sauvegarde de disque_ et _Sauvegarde de partition_. Si vous souhaitez sauvegarder le système sur le NAS Buffalo, essayez la fonctionnalité de [Sauvegarde système](https://tools.techidaily.com/ubackup/products/).
 
@@ -93,15 +93,22 @@ Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le nom d'affichage, l'adresse IP, le nom d'utilisateur et le mot de passe pour connecter votre espace de stockage NAS Buffalo. Double-cliquez ensuite dessus dans le volet de gauche et sélectionnez ce que vous souhaitez sauvegarder dans la liste de droite.
 
 [![ajouter périphérique share ou nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/emplacement-reseau.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Étape 3.** Cliquez là où la flèche pointe et sélectionnez le disque externe préparé comme destination.
 
@@ -136,10 +143,10 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
@@ -166,13 +173,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 
 [Oui](https://tools.techidaily.com/ubackup/products/)[Non](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Obtenez gratuitement AOMEI Backupper
 
 Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchronisation et le clonage.
@@ -182,19 +182,19 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Propre & Sûr
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -212,18 +212,24 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-understanding-why-your-shorts-thumbnails-dont-show-up/"><u>[New] 2024 Approved Understanding Why Your Shorts' Thumbnails Don't Show Up</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-sound-to-word-converter-for-videos/"><u>2024 Approved Sound to Word Converter for Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-step-by-step-guide-to-crafting-an-instagram-enterprise-profile/"><u>2024 Approved Step-by-Step Guide to Crafting an Instagram Enterprise Profile</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/aulas-de-tecnologia-online-para-masterizacao-do-aomei-backupper-video-series/"><u>Aulas De Tecnologia Online Para Masterização Do AOMEI Backupper - Video Series</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-activer-la-faisabilite-du-desactivation-des-parametres-de-reglages-reseau-dans-windows-11/"><u>Comment Activer La Faisabilité Du Désactivation Des Paramètres De Réglages Réseau Dans Windows 11?</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comprehensive-tutorial-on-transitioning-between-hyper-v-and-vmware-environments/"><u>Comprehensive Tutorial on Transitioning Between Hyper-V and VMware Environments</u></a></li>
-<li><a href="https://network-issues.techidaily.com/end-of-pc-disasters-fixing-fallout-4-errors/"><u>End of PC Disasters: Fixing Fallout 4 Errors</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/geben-sie-den-schutz-bei-der-backup-losung-in-windows-server-2012-aus/"><u>Geben Sie Den Schutz Bei Der Backup-Lösung in Windows Server 2012 Aus)</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/gratis-avi-videos-naar-mov-omzetten-online-gestuurde-filmconverter-met-movavi/"><u>Gratis AVI-Video's Naar MOV Omzetten - Online Gestuurde Filmconverter Met Movavi</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-to-safely-transfer-data-from-a-1-tb-hdd-to-a-500-gb-ssd-with-secure-boot-a-step-by-step-guide/"><u>How to Safely Transfer Data From a 1 TB HDD to a 500 GB SSD with Secure Boot: A Step-by-Step Guide</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-samsung-galaxy-a54-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Samsung Galaxy A54 5G to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/scouring-youtubes-notable-responses-for-2024/"><u>Scouring YouTube's Notable Responses for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mshkla-bdaa-tshghyl-windows-1011-khtoat-tnfyth-sryaaa-lislahha-alan/"><u>مشكلة بدء تشغيل Windows 10/11؟ خطوات تنفيذ سريعة لإصلاحها الآن!</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-game-changers-gear-essentials-every-business-needs-to-stay-ahead-of-the-curve/"><u>[New] 2024 Approved Game Changers Gear Essentials Every Business Needs to Stay Ahead of the Curve</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/asterclass-for-viral-talent-for-2024/"><u>[New] Masterclass for Viral Talent for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-tvs-not-to-miss-factors-in-signing-up-for-2024/"><u>[New] YouTube TV's Not-to-Miss Factors in Signing Up for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-techniques-to-zoom-into-online-engagements-intelligently/"><u>[Updated] 2024 Approved Techniques to Zoom Into Online Engagements Intelligently</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-enhancing-your-youtube-presence-with-split-screen-techniques-for-2024/"><u>[Updated] Enhancing Your YouTube Presence with Split-Screen Techniques for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-a-critical-look-at-sns-hdrs-potential-and-alternatives/"><u>[Updated] In 2024, A Critical Look at SNS HDR's Potential & Alternatives</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-key-to-connecting-your-youtube-channel-with-a-facebook-page/"><u>[Updated] The Key to Connecting Your YouTube Channel with a Facebook Page</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/comment-utiliser-clonezilla-pour-la-sauvegarde-et-le-restauration-dun-fichier-specifique/"><u>Comment Utiliser Clonezilla Pour La Sauvegarde Et Le Restauration D'un Fichier Spécifique?</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/comprender-a-aomei-un-vistazo-al-mundo-del-expertos-en-recuperacion-de-datos/"><u>Comprender a AOMEI: Un Vistazo Al Mundo Del Expertos en Recuperación De Datos</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/detailed-guide-extracting-an-individual-file-from-your-backup-photo/"><u>Detailed Guide: Extracting an Individual File From Your Backup Photo</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/guide-to-setting-up-a-windows-11-network-drive-with-a-synology-nas/"><u>Guide to Setting Up a Windows 11 Network Drive with a Synology NAS</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Vivo V29? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-engaging-content-creation-in-vlogging-scripts-for-2024/"><u>Mastering Engaging Content Creation in Vlogging Scripts for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/mastering-subtitle-integration-in-wmp-for-2024/"><u>Mastering Subtitle Integration in WMP for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/quick-guide-restarting-vmware-vcenter-and-reviving-its-services-with-simplicity/"><u>Quick Guide: Restarting VMware vCenter & Reviving Its Services with Simplicity</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/techniques-faciles-repliquer-avec-precision-le-contenu-de-votre-systeme-windows-sur-un-hdd-extern/"><u>Techniques Faciles: Répliquer Avec Precision Le Contenu De Votre Système Windows Sur Un HDD Extern</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ultimate-step-by-step-tutorial-on-upgrading-your-dell-wyse-5070-with-an-ssd/"><u>Ultimate Step-by-Step Tutorial on Upgrading Your Dell Wyse 5070 with an SSD</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/wie-extrahiert-man-verzeichnisse-und-dateien-mit-aomei-backupper-auf-deutsch/"><u>Wie Extrahiert Man Verzeichnisse Und Dateien Mit AOMEI Backupper Auf Deutsch?</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/windows-11-how-to-restore-previous-versions-when-restore-point-is-not-available/"><u>Windows 11 - How to Restore Previous Versions when 'Restore Point' Is Not Available</u></a></li>
 </ul></div>
 
