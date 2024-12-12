@@ -1,7 +1,7 @@
 ---
 title: "DEX 3 & Hercules Inpulse 300 Unite: Enhanced Control Experience for PCDJ Users - Master Your Beats"
-date: 2024-11-30T00:15:05.106Z
-updated: 2024-12-06T08:34:07.906Z
+date: 2024-12-05T19:15:59.675Z
+updated: 2024-12-11T23:53:47.899Z
 tags:
   - product
 categories:
@@ -27,13 +27,13 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hercules DJControl Inpulse 300 Specifications:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Audio
@@ -43,7 +43,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Headphones out: 1/8” stereo (3.5 mm)Resolution: 24-bit/44.1 kHz
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls Per Deck
@@ -55,7 +55,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Browser controls: Rotary encoder + 2 load keys + Assistant key
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls On Mixer
@@ -83,7 +83,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 _Have questions about the **Hercules DJ Control Inpulse 300** and how it works with our DEX 3 **DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -105,17 +105,24 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2020/06/inpulse300.jpg?fit=1114%2C
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-enhancing-your-video-cover-images-updating-techniques-for-fb/"><u>[New] In 2024, Enhancing Your Video Cover Images Updating Techniques for FB</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-efficient-tactics-for-viewing-subscribers-on-yt-for-2024/"><u>[Updated] Efficient Tactics for Viewing Subscribers on YT for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-highlighted-visions-is-intensified-lighting-the-future-of-hd-in-hdr/"><u>2024 Approved Highlighted Visions Is Intensified Lighting the Future of HD in HDR?</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-melody-migration-transitioning-playlists-across-platforms/"><u>2024 Approved Melody Migration Transitioning Playlists Across Platforms</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/book-now-karaoke-summit-2015-dates-set-join-the-ultimate-dj-showdown/"><u>Book Now - Karaoke Summit 2015 Dates Set! Join the Ultimate DJ Showdown!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-your-pcs-performance-top-strategies-by-yl-computing-and-software/"><u>Boost Your PC's Performance: Top Strategies by YL Computing & Software</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/descargando-peliculas-con-ripper-dvd-tutorial-completo-por-movavi/"><u>Descargando Películas Con Ripper DVD - Tutorial Completo Por Movavi</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/discover-the-origins-of-papermaking-the-revolutionary-chinese-creator-yl-computing/"><u>Discover the Origins of Papermaking: The Revolutionary Chinese Creator - YL Computing</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-vivo-y78t-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Vivo Y78t? | Dr.fone</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/step-by-step-tutorial-getting-started-with-fortnite-pc-version/"><u>Step-by-Step Tutorial: Getting Started with Fortnite PC Version</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/troubleshooting-slow-scan-performance-expert-analysis-from-yl-software-experts/"><u>Troubleshooting Slow Scan Performance: Expert Analysis From YL Software Experts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-decentralized-networks-a-deep-dive-into-cryptocurrency-forks-insights-from-yl-computing/"><u>Understanding Decentralized Networks: A Deep Dive Into Cryptocurrency 'Forks' - Insights From YL Computing</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-best-video-transcriber-chrome-os-companion/"><u>[New] In 2024, Best Video Transcriber Chrome OS Companion</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-ultimate-5-display-choices-for-ps5/"><u>[New] Ultimate 5 Display Choices For PS5</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-discover-the-enhanced-features-of-2023s-samsung-bd-j5900-for-2024/"><u>[Updated] Discover the Enhanced Features of 2023'S Samsung BD-J5900 for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1-uncommon-dj-mastery-top-secret-kicks-for-your-karate-mixes-pcdj-edition/"><u>1. Uncommon DJ Mastery: Top Secret Kicks for Your Karate Mixes - PCDJ Edition</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-become-a-gif-expert-in-snapchat-today/"><u>2024 Approved Become a GIF Expert in Snapchat Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-popular-ways-to-say-youre-welcome-in-french/"><u>4 Popular Ways To Say You’re Welcome In French</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/blackrock-and-invesco-collaborate-on-galaxy-bitcoin-etf-platform-via-dtcc-explored-by-yl-software-experts/"><u>BlackRock and Invesco Collaborate on Galaxy Bitcoin ETF Platform via DTCC, Explored by YL Software Experts</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/decoding-blockchain-expansion-how-miners-forge-new-blocks-as-explained-by-yl-software/"><u>Decoding Blockchain Expansion: How Miners Forge New Blocks, as Explained by YL Software</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/dont-miss-out-secure-your-dex-the-halls-and-enjoy-30-savings-through-year-end/"><u>Don't Miss Out! Secure Your Dex The Halls & Enjoy $30 Savings Through Year-End!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/efficiently-diagnosing-and-fixing-network-card-issues-a-step-by-step-guide-by-yl-computing/"><u>Efficiently Diagnosing & Fixing Network Card Issues: A Step-by-Step Guide by YL Computing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/essential-digital-art-minimalist-design-backgrounds-by-yl-computing/"><u>Essential Digital Art: Minimalist Design Backgrounds by YL Computing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/high-definition-steven-universe-backdrop-collection-premium-wallpaper-visuals-by-yl-software/"><u>High-Definition Steven Universe Backdrop Collection - Premium Wallpaper Visuals by YL Software</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-capture-save-analyze-the-top-8-sound-techniques/"><u>In 2024, Capture, Save, Analyze The Top 8 Sound Techniques</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-iosandroid-techniques-extracting-twitters-gifs/"><u>In 2024, IOS/Android Techniques Extracting Twitter's GIFs</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-s24-ultra-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy S24 Ultra Phone FRP Lock</u></a></li>
+<li><a href="https://win11.techidaily.com/precision-brightness-management-on-windows-multi-monitors/"><u>Precision Brightness Management on Windows Multi-Monitors</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/solving-scanning-device-driver-problems-expert-advice-from-yl-computing/"><u>Solving Scanning Device Driver Problems - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/step-by-step-guide-to-track-btc-address-funds-with-an-online-crypto-checker-by-yl-software/"><u>Step-by-Step Guide to Track BTC Address Funds with an Online Crypto Checker by YL Software</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-xiaomi-civi-3-disney-100th-anniversary-edition-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Xiaomi Civi 3 Disney 100th Anniversary Edition Location By Mobile Number | Dr.fone</u></a></li>
 </ul></div>
 

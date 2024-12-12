@@ -1,7 +1,7 @@
 ---
 title: "Download DEX 3.20 Now: Advanced Features for Tracks Mixing with Beats, Bars & Beat-Grid Tools - Available Immediately!"
-date: 2024-12-02T19:24:57.503Z
-updated: 2024-12-06T03:55:28.873Z
+date: 2024-12-07T04:38:42.344Z
+updated: 2024-12-11T17:45:46.617Z
 tags:
   - product
 categories:
@@ -26,10 +26,6 @@ A ‘bar’ is also known as a measure and consists of 4 consecutive beats — a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### New in DEX 3.20: Automatic Down-Beat & Bar Detection
 
 DEX 3.20 is now equipped with automatic down-beat and bar detection. The ‘down beat’ is the first beat in each bar/measure; it marks the starting of a bar. You’ll notice that the ‘down beat’ indicator showcased in the beat-grid (waveform area of the deck) is slightly thicker than the usual beat markers.
@@ -45,13 +41,17 @@ Here’s an overview of the freshly added ‘beat-grid editing’. This powerful
 [![DEX 3 Beat Grid Editor](https://i0.wp.com/pcdj.com/wp-content/uploads/2023/02/grid-editor.jpg?fit=833%2C540&ssl=1)](https://i0.wp.com/pcdj.com/wp-content/uploads/2023/02/grid-editor.jpg?fit=833%2C540&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How is it Done?
@@ -65,7 +65,7 @@ Here’s an overview of the freshly added ‘beat-grid editing’. This powerful
 5. That it. That’s how beat-grid editing works for a track in DEX 3.20 (and up). For songs that have a varying dynamic tempo (such as live-playing bands) or different parts/sections that have a different BPM/beat-grid you can add as many beat-grids throughout the track as you’d like
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in DEX 3.20
@@ -91,7 +91,7 @@ _Not a DEX 3 user? [Download Free Trial](https://tools.techidaily.com/pcdj/produ
 _Have questions about the latest 3.20 version of our **Top DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -113,20 +113,15 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2023/02/dex3-beat-editor.jpg?fit=8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-one-on-one-youtube-streams-on-mobile-without-thousanders-club/"><u>[New] One-on-One Youtube Streams on Mobile Without Thousanders' Club</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-thrifty-pilots-preferred-picks-under-500-drone-list-for-2024/"><u>[New] Thrifty Pilots' Preferred Picks Under $500 Drone List for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-detailed-evaluation-razer-kiyo-webcam/"><u>[Updated] 2024 Approved Detailed Evaluation Razer Kiyo Webcam</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-ios-champions-best-ps2-emulation-programs/"><u>[Updated] 2024 Approved IOS Champions Best PS2 Emulation Programs</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/budget-friendly-high-quality-earphones-for-gaming/"><u>Budget-Friendly, High-Quality Earphones for Gaming</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723211296326-cracking-down-on-code-224003-unlock-your-stuck-videos/"><u>Cracking Down on Code 224003 - Unlock Your Stuck Videos!</u></a></li>
-<li><a href="https://extra-information.techidaily.com/discreet-audio-modulation-strategies-with-audacity/"><u>Discreet Audio Modulation Strategies with Audacity</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-the-effects-of-the-great-proletarian-cultural-revolution-on-modern-china-by-yl-computing/"><u>Exploring the Effects of the Great Proletarian Cultural Revolution on Modern China by YL Computing</u></a></li>
-<li><a href="https://program-issues.techidaily.com/god-of-war-overcoming-insufficient-memory-challenges-for-uninterrupted-gameplay/"><u>God of War - Overcoming Insufficient Memory Challenges for Uninterrupted Gameplay</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-to-fix-a-printer-that-continues-producing-blank-sheets-tips-by-yl-software-solutions/"><u>How to Fix a Printer That Continues Producing Blank Sheets - Tips by YL Software Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/is-your-processor-operating-as-expected-insights-from-yl-software-professionals/"><u>Is Your Processor Operating as Expected? Insights From YL Software Professionals</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/resolving-scanner-issues-a-step-by-step-guide-from-yl-computing-software-solutions/"><u>Resolving Scanner Issues: A Step-by-Step Guide From YL Computing Software Solutions</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/techniques-to-achieve-consistent-frame-rates-in-obs-studio/"><u>Techniques to Achieve Consistent Frame Rates in OBS Studio</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/yl-computing-unique-solo-shotacon-wallpaper-and-image-collections/"><u>YL Computing: Unique Solo Shotacon Wallpaper & Image Collections</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/yl-softwares-high-definition-matrix-animation-deep-background-light-blue-hues-in-continuous-flow/"><u>YL Software's High-Definition Matrix Animation: Deep Background, Light Blue Hues in Continuous Flow</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unveiling-the-trouble-solving-fb-messengers-video-not-sending-flaw-for-2024/"><u>[Updated] Unveiling the Trouble Solving FB Messenger's Video Not Sending Flaw for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210573516-9781399803199-21-day-abundance-challenge/"><u>21 Day Abundance Challenge | Free Book</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/connecting-your-external-hard-drive-a-step-by-step-guide-yl-computing-essentials/"><u>Connecting Your External Hard Drive: A Step-by-Step Guide - YL Computing Essentials</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/flash-sale-ends-may-31st-save-on-karaoke-systems-and-get-karaoke-file-renamer-free/"><u>Flash Sale Ends May 31St - Save on Karaoke Systems & Get Karaoke File Renamer Free!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/how-to-combine-or-separate-files-on-windows-a-guide-by-yl-computing/"><u>How to Combine or Separate Files on Windows: A Guide by YL Computing</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-illuminating-the-path-from-auto-to-4th-gen-hdr-shooting/"><u>In 2024, Illuminating the Path From Auto to 4Th Gen HDR Shooting</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-seamless-video-conferencing-with-zoom-and-gmail/"><u>In 2024, Seamless Video Conferencing with Zoom & Gmail</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/secure-privacy-stop-windows-11-snooping/"><u>Secure Privacy: Stop Windows 11 Snooping</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/surface-hardeners-provide-additional-wear-resistance-for-concrete-exposed-to-mechanical-stress-without-significantly-affecting-permeability/"><u>Surface Hardeners Provide Additional Wear Resistance for Concrete Exposed to Mechanical Stress without Significantly Affecting Permeability.</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/winx-dvd-copy-pro-restaurar-o-duplicar-su-dvd-en-formato-iso-y-crear-backups-con-facil-uso/"><u>WinX DVD Copy Pro: Restaurar O Duplicar Su DVD en Formato ISO Y Crear Backups Con Fácil Uso</u></a></li>
 </ul></div>
 
