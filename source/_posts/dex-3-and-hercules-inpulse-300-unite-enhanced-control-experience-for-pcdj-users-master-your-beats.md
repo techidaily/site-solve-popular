@@ -1,7 +1,7 @@
 ---
 title: "DEX 3 & Hercules Inpulse 300 Unite: Enhanced Control Experience for PCDJ Users - Master Your Beats"
-date: 2024-12-05T19:15:59.675Z
-updated: 2024-12-11T23:53:47.899Z
+date: 2024-12-13T19:33:33.585Z
+updated: 2024-12-18T20:05:17.178Z
 tags:
   - product
 categories:
@@ -27,13 +27,13 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hercules DJControl Inpulse 300 Specifications:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Audio
@@ -43,7 +43,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Headphones out: 1/8” stereo (3.5 mm)Resolution: 24-bit/44.1 kHz
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls Per Deck
@@ -55,7 +55,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Browser controls: Rotary encoder + 2 load keys + Assistant key
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls On Mixer
@@ -83,7 +83,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 _Have questions about the **Hercules DJ Control Inpulse 300** and how it works with our DEX 3 **DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -105,24 +105,20 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2020/06/inpulse300.jpg?fit=1114%2C
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-best-video-transcriber-chrome-os-companion/"><u>[New] In 2024, Best Video Transcriber Chrome OS Companion</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-ultimate-5-display-choices-for-ps5/"><u>[New] Ultimate 5 Display Choices For PS5</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-discover-the-enhanced-features-of-2023s-samsung-bd-j5900-for-2024/"><u>[Updated] Discover the Enhanced Features of 2023'S Samsung BD-J5900 for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1-uncommon-dj-mastery-top-secret-kicks-for-your-karate-mixes-pcdj-edition/"><u>1. Uncommon DJ Mastery: Top Secret Kicks for Your Karate Mixes - PCDJ Edition</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-become-a-gif-expert-in-snapchat-today/"><u>2024 Approved Become a GIF Expert in Snapchat Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/4-popular-ways-to-say-youre-welcome-in-french/"><u>4 Popular Ways To Say You’re Welcome In French</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/blackrock-and-invesco-collaborate-on-galaxy-bitcoin-etf-platform-via-dtcc-explored-by-yl-software-experts/"><u>BlackRock and Invesco Collaborate on Galaxy Bitcoin ETF Platform via DTCC, Explored by YL Software Experts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/decoding-blockchain-expansion-how-miners-forge-new-blocks-as-explained-by-yl-software/"><u>Decoding Blockchain Expansion: How Miners Forge New Blocks, as Explained by YL Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/dont-miss-out-secure-your-dex-the-halls-and-enjoy-30-savings-through-year-end/"><u>Don't Miss Out! Secure Your Dex The Halls & Enjoy $30 Savings Through Year-End!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/efficiently-diagnosing-and-fixing-network-card-issues-a-step-by-step-guide-by-yl-computing/"><u>Efficiently Diagnosing & Fixing Network Card Issues: A Step-by-Step Guide by YL Computing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/essential-digital-art-minimalist-design-backgrounds-by-yl-computing/"><u>Essential Digital Art: Minimalist Design Backgrounds by YL Computing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/high-definition-steven-universe-backdrop-collection-premium-wallpaper-visuals-by-yl-software/"><u>High-Definition Steven Universe Backdrop Collection - Premium Wallpaper Visuals by YL Software</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-capture-save-analyze-the-top-8-sound-techniques/"><u>In 2024, Capture, Save, Analyze The Top 8 Sound Techniques</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/in-2024-iosandroid-techniques-extracting-twitters-gifs/"><u>In 2024, IOS/Android Techniques Extracting Twitter's GIFs</u></a></li>
-<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-s24-ultra-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy S24 Ultra Phone FRP Lock</u></a></li>
-<li><a href="https://win11.techidaily.com/precision-brightness-management-on-windows-multi-monitors/"><u>Precision Brightness Management on Windows Multi-Monitors</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/solving-scanning-device-driver-problems-expert-advice-from-yl-computing/"><u>Solving Scanning Device Driver Problems - Expert Advice From YL Computing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/step-by-step-guide-to-track-btc-address-funds-with-an-online-crypto-checker-by-yl-software/"><u>Step-by-Step Guide to Track BTC Address Funds with an Online Crypto Checker by YL Software</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-xiaomi-civi-3-disney-100th-anniversary-edition-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Xiaomi Civi 3 Disney 100th Anniversary Edition Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/anishing-unwanted-green-in-mac-recorded-youtube-content/"><u>[New] Banishing Unwanted Green in Mac-Recorded YouTube Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-enhancing-video-content-step-by-step-cropping-and-export-guide/"><u>[New] Enhancing Video Content Step-by-Step Cropping & Export Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-focus-on-details-masterful-close-up-techniques-for-gaming/"><u>[New] Focus on Details Masterful Close-Up Techniques for Gaming</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-visionarys-guide-top-5-slow-motion-tech/"><u>[Updated] In 2024, Visionary's Guide Top 5 Slow-Motion Tech</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-prodigious-8-cameras-enhancing-video-quality-in-broadcast/"><u>2024 Approved Prodigious 8 Cameras Enhancing Video Quality in Broadcast</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/essential-guide-to-capturing-vr-gaming-sessions-for-2024/"><u>Essential Guide to Capturing VR Gaming Sessions for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/essential-steps-for-conducting-thorough-crypto-asset-investigation-prior-to-investment-insights-from-yl-computing-and-software-solutions/"><u>Essential Steps for Conducting Thorough Crypto Asset Investigation Prior to Investment - Insights From YL Computing & Software Solutions</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/flavorful-footage-the-ultimate-guide-to-delicious-food-vids/"><u>Flavorful Footage The Ultimate Guide to Delicious Food Vids</u></a></li>
+<li><a href="https://games-able.techidaily.com/game-on-a-trifecta-of-techniques-for-codes-success/"><u>Game On: A Trifecta of Techniques for Codes Success</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/iphone-transfer-transfer-contact-from-apple-iphone-13-mini-to-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>iPhone Transfer Transfer Contact from Apple iPhone 13 mini to iPhone without iCloud | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/resolving-memory-errors-in-windows-solutions-from-yl-computing/"><u>Resolving Memory Errors in Windows - Solutions From YL Computing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/resolving-scanner-issues-a-step-by-step-guide-from-yl-computing-software-solutions/"><u>Resolving Scanner Issues: A Step-by-Step Guide From YL Computing Software Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/top-programs-for-enhancing-your-pcs-efficiency-recommendations-from-yl-computing/"><u>Top Programs for Enhancing Your PC's Efficiency: Recommendations From YL Computing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/video-guide-understanding-the-difference-between-setlists-and-dj-music-selection/"><u>Video Guide: Understanding the Difference Between Setlists and DJ Music Selection</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/yl-softwares-high-definition-matrix-animation-deep-background-light-blue-hues-in-continuous-flow/"><u>YL Software's High-Definition Matrix Animation: Deep Background, Light Blue Hues in Continuous Flow</u></a></li>
 </ul></div>
 
