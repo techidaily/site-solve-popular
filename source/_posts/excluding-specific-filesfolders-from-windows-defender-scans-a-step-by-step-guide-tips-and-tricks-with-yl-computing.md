@@ -1,7 +1,7 @@
 ---
 title: "Excluding Specific Files/Folders From Windows Defender Scans: A Step-by-Step Guide - Tips & Tricks with YL Computing"
-date: 2024-12-15T18:25:44.616Z
-updated: 2024-12-18T19:12:54.515Z
+date: 2024-12-23T00:17:06.227Z
+updated: 2024-12-27T07:53:58.796Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,16 +56,20 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-best-twitter-video-downloaders-how-to-save-twitter-videos/"><u>[New] In 2024, Best Twitter Video Downloaders How to Save Twitter Videos</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-transform-your-live-feed-select-from-the-ultimate-9-filter-list/"><u>[New] Transform Your Live Feed Select From the Ultimate 9 Filter List</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/avoiding-laptop-overheat-problems-expert-tips-from-yl-computing-and-yl-software/"><u>Avoiding Laptop Overheat Problems: Expert Tips From YL Computing & YL Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boost-your-pcs-speed-by-clearing-disk-clutter-tips-from-yl-computing/"><u>Boost Your PC's Speed by Clearing Disk Clutter - Tips From YL Computing</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-iphone-13-mini-passcode-not-working-by-drfone-ios/"><u>In 2024, How to Fix iPhone 13 mini Passcode not Working?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Lava Blaze 2 5G? | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-key-strategies-for-board-utilization-across-devices-in-zoom/"><u>In 2024, Key Strategies for Board Utilization Across Devices in Zoom</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-transform-your-fb-vids-to-full-screen/"><u>In 2024, Transform Your FB Vids to Full Screen</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/master-the-art-of-disk-preparation-expert-techniques-for-hard-drive-formatting-by-yl-software/"><u>Master the Art of Disk Preparation: Expert Techniques for Hard Drive Formatting by YL Software</u></a></li>
-<li><a href="https://games-able.techidaily.com/mastering-the-resolution-of-device-hang-in-windows-error-0x887a0006/"><u>Mastering the Resolution of Device Hang in Windows (Error 0X887A0006)</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/uninstall-programs-on-windows-with-ease-a-comprehvew-by-yls-expert-team/"><u>Uninstall Programs on Windows with Ease: A Comprehvew by YL's Expert Team</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ore-auditory-stimulation-channels-for-2024/"><u>[New] Core Auditory Stimulation Channels for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/levate-visibility-maximize-views-seo-for-videos-for-2024/"><u>[New] Elevate Visibility, Maximize Views - SEO for Videos for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-colorful-conga-crow/"><u>[Updated] Colorful Conga Crow</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-unlocking-innovations-a-comparison-between-iphones-face-id-and-galaxy-recognition/"><u>2024 Approved Unlocking Innovations A Comparison Between iPhone's Face ID & Galaxy Recognition</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/a-comprehensive-guide-to-understanding-and-utilizing-ntbackup-on-windows-10-8-and-7/"><u>A Comprehensive Guide to Understanding & Utilizing NTBackup on Windows 10, 8 & 7</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automate-clean-up-setting-windows-7-for-auto-delete-aged-backups/"><u>Automate Clean-Up: Setting Windows 7 for Auto-Delete Aged Backups</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/chucklecraft-suite-for-2024/"><u>ChuckleCraft Suite for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/edgy-escapes-tips-on-avoiding-edgenuity-videos-quickly-for-2024/"><u>Edgy Escapes Tips on Avoiding Edgenuity Videos Quickly for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/expert-guide-how-to-do-a-clean-slate-refresh-of-your-laptops-os-bypassing-the-need-for-reinstallation/"><u>Expert Guide: How to Do a Clean Slate Refresh of Your Laptop's OS, Bypassing the Need for Reinstallation</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/seamless-upgrade-transition-your-data-from-windows-server-2016-to-an-ssd-drive-without-the-need-for-fresh-install/"><u>Seamless Upgrade: Transition Your Data From Windows Server 2016 to an SSD Drive Without the Need for Fresh Install</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sweet-speeches-unveil-the-world-of-chocolate-in-30-languages/"><u>Sweet Speeches: Unveil the World of Chocolate in 30 Languages</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/the-sentence-plus-if-renovations-are-needed-then-these-could-add-value-too-refers-to-a-potential-change-to-existing-architectural-elements-but-without-speci106/"><u>The Sentence 'Plus if Renovations Are Needed Then These Could Add Value Too.' Refers to a Potential Change to Existing Architectural Elements but without Specific Details, Hence It's Omitted From the Complexity Ranking.</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tips-for-resolving-microsoft-store-error-on-windows-devices/"><u>Tips for Resolving Microsoft Store Error on Windows Devices</u></a></li>
+<li><a href="https://fox-where.techidaily.com/unlocking-your-pcs-secrets-accessing-system-details-via-windows-control-panel-advice-from-yl-computing-pros/"><u>Unlocking Your PC's Secrets: Accessing System Details via Windows Control Panel – Advice From YL Computing Pros</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/hdd0x0142/"><u>デルのHDDで見られるエラーコード[0x0142]修復ガイド</u></a></li>
 </ul></div>
 
