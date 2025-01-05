@@ -1,7 +1,7 @@
 ---
 title: "DEX 3 & Hercules Inpulse 300 Unite: Enhanced Control Experience for PCDJ Users - Master Your Beats"
-date: 2024-12-13T19:33:33.585Z
-updated: 2024-12-18T20:05:17.178Z
+date: 2025-01-02T18:02:35.369Z
+updated: 2025-01-05T18:14:49.916Z
 tags:
   - product
 categories:
@@ -27,13 +27,13 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hercules DJControl Inpulse 300 Specifications:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Audio
@@ -43,7 +43,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Headphones out: 1/8” stereo (3.5 mm)Resolution: 24-bit/44.1 kHz
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls Per Deck
@@ -55,7 +55,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Browser controls: Rotary encoder + 2 load keys + Assistant key
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls On Mixer
@@ -83,7 +83,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 _Have questions about the **Hercules DJ Control Inpulse 300** and how it works with our DEX 3 **DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -105,20 +105,24 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2020/06/inpulse300.jpg?fit=1114%2C
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/anishing-unwanted-green-in-mac-recorded-youtube-content/"><u>[New] Banishing Unwanted Green in Mac-Recorded YouTube Content</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-enhancing-video-content-step-by-step-cropping-and-export-guide/"><u>[New] Enhancing Video Content Step-by-Step Cropping & Export Guide</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-focus-on-details-masterful-close-up-techniques-for-gaming/"><u>[New] Focus on Details Masterful Close-Up Techniques for Gaming</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-visionarys-guide-top-5-slow-motion-tech/"><u>[Updated] In 2024, Visionary's Guide Top 5 Slow-Motion Tech</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-prodigious-8-cameras-enhancing-video-quality-in-broadcast/"><u>2024 Approved Prodigious 8 Cameras Enhancing Video Quality in Broadcast</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/essential-guide-to-capturing-vr-gaming-sessions-for-2024/"><u>Essential Guide to Capturing VR Gaming Sessions for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/essential-steps-for-conducting-thorough-crypto-asset-investigation-prior-to-investment-insights-from-yl-computing-and-software-solutions/"><u>Essential Steps for Conducting Thorough Crypto Asset Investigation Prior to Investment - Insights From YL Computing & Software Solutions</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/flavorful-footage-the-ultimate-guide-to-delicious-food-vids/"><u>Flavorful Footage The Ultimate Guide to Delicious Food Vids</u></a></li>
-<li><a href="https://games-able.techidaily.com/game-on-a-trifecta-of-techniques-for-codes-success/"><u>Game On: A Trifecta of Techniques for Codes Success</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/iphone-transfer-transfer-contact-from-apple-iphone-13-mini-to-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>iPhone Transfer Transfer Contact from Apple iPhone 13 mini to iPhone without iCloud | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/resolving-memory-errors-in-windows-solutions-from-yl-computing/"><u>Resolving Memory Errors in Windows - Solutions From YL Computing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/resolving-scanner-issues-a-step-by-step-guide-from-yl-computing-software-solutions/"><u>Resolving Scanner Issues: A Step-by-Step Guide From YL Computing Software Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/top-programs-for-enhancing-your-pcs-efficiency-recommendations-from-yl-computing/"><u>Top Programs for Enhancing Your PC's Efficiency: Recommendations From YL Computing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/video-guide-understanding-the-difference-between-setlists-and-dj-music-selection/"><u>Video Guide: Understanding the Difference Between Setlists and DJ Music Selection</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/yl-softwares-high-definition-matrix-animation-deep-background-light-blue-hues-in-continuous-flow/"><u>YL Software's High-Definition Matrix Animation: Deep Background, Light Blue Hues in Continuous Flow</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-dive-into-the-world-of-luts-and-free-digital-tools/"><u>[Updated] 2024 Approved Dive Into the World of LUTs and Free Digital Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1728489330491-2024/"><u>💡如何輕鬆保存和回收被丟失或消失的重要文件 - 2024年最新技術！</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1728463306687-windows-11/"><u>具体的には、Windows 11上でコピー保護されたディスクをどうやって安全に移行するか</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/aomeionekey/"><u>增强数据安全：AOMEI一键修复与苹果乐动OneKey恢复的理想选择</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/easily-restore-deleted-images-on-your-sony-camera-with-these-two-methods/"><u>Easily Restore Deleted Images on Your Sony Camera with These Two Methods</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/erfolgreiches-wiederherstellen-von-geloschten-bildern-auf-ihrem-hp-laptop-mit-myrecover-schritt-fur-schritt-anleitung/"><u>Erfolgreiches Wiederherstellen Von Gelöschten Bildern Auf Ihrem HP-Laptop Mit MyRecover - Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://windows11.techidaily.com/establishing-alternate-view-for-windows-pdfs/"><u>Establishing Alternate View for Windows PDFs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/future-ready-coding-education-premier-online-learning-paths-for-developers/"><u>Future-Ready Coding Education - Premier Online Learning Paths for Developers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-11-to-others-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 11 To Others Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-a-comprehensive-list-of-excellent-fb-cover-photo-creators/"><u>In 2024, A Comprehensive List of Excellent FB Cover Photo Creators</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/losungen-fur-den-fehlenden-iphone-kontaktverlauf-top-8-methoden-mit-fonebackup/"><u>Lösungen Für Den Fehlenden iPhone-Kontaktverlauf: Top 8 Methoden Mit FoneBackup</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/mastering-cross-device-sync-unifying-your-apple-gadgets-through-a-single-itunes-repository/"><u>Mastering Cross-Device Sync: Unifying Your Apple Gadgets Through a Single iTunes Repository</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/my-favorite-portable-gaming-device-for-on-the-go-play-beyond-the-joycon/"><u>My Favorite Portable Gaming Device for On-the-Go Play: Beyond the JoyCon</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ps4-dvd/"><u>PS4 DVD再生ハウツー: オフラインでの高画質鑑賞を強化する設定ガイド</u></a></li>
+<li><a href="https://techidaily.com/repair-broken-or-corrupt-video-files-of-realme-c67-5g-by-stellar-video-repair-mobile-video-repair/"><u>Repair broken or corrupt video files of Realme C67 5G</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/reparieren-sie-kostenlos-eine-beschadigte-mp4-datei-auf-mac-oder-pc-schritt-fur-schritt-anleitung/"><u>Reparieren Sie Kostenlos Eine Beschädigte MP4-Datei Auf Mac Oder PC - Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/schritt-fur-schritt-anleitung-zur-bereinigung-der-seagate-externen-datentrager-in-windows-betriebssystemen-1087/"><u>Schritt-Für-Schritt Anleitung Zur Bereinigung Der Seagate Externen Datenträger in Windows Betriebssystemen (10/8/7)</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/score-big-savings-with-the-newly-priced-apple-m2-mac-mini-at-a-record-low-of-479-insider-secrets-revealed/"><u>Score Big Savings with the Newly Priced Apple M2 Mac Mini at a Record Low of $479 - Insider Secrets Revealed</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/step-by-step-guide-migrating-data-from-your-old-ipad-to-a-new-one-without-using-icloud/"><u>Step-by-Step Guide: Migrating Data From Your Old iPad to a New One Without Using iCloud</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Download DEX 3.20 Now: Advanced Features for Tracks Mixing with Beats, Bars & Beat-Grid Tools - Available Immediately!"
-date: 2024-12-11T18:09:02.138Z
-updated: 2024-12-18T19:50:37.574Z
+date: 2024-12-29T19:03:12.877Z
+updated: 2025-01-05T16:34:08.791Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ A ‘bar’ is also known as a measure and consists of 4 consecutive beats — a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New in DEX 3.20: Automatic Down-Beat & Bar Detection
@@ -45,17 +45,13 @@ Here’s an overview of the freshly added ‘beat-grid editing’. This powerful
 [![DEX 3 Beat Grid Editor](https://i0.wp.com/pcdj.com/wp-content/uploads/2023/02/grid-editor.jpg?fit=833%2C540&ssl=1)](https://i0.wp.com/pcdj.com/wp-content/uploads/2023/02/grid-editor.jpg?fit=833%2C540&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How is it Done?
@@ -67,6 +63,10 @@ Here’s an overview of the freshly added ‘beat-grid editing’. This powerful
 3. Adjust the beat size until the next beats align correctly with the beats from the waveform — while you adjust the beat size the BPM value also changes.
 4. Repeat the step above (3) as many times as needed to correct the alignment throughout the whole song (for varying BPM tracks, this is a major plus). Start by scrolling slightly past where the initial down-beat was. Then advanced a bit more (around 20-30 seconds at a time) and re-adjust the beat size. Advanced all the way to the end of the track and correct the beat size as you go
 5. That it. That’s how beat-grid editing works for a track in DEX 3.20 (and up). For songs that have a varying dynamic tempo (such as live-playing bands) or different parts/sections that have a different BPM/beat-grid you can add as many beat-grids throughout the track as you’d like
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in DEX 3.20
 
@@ -91,7 +91,7 @@ _Not a DEX 3 user? [Download Free Trial](https://tools.techidaily.com/pcdj/produ
 _Have questions about the latest 3.20 version of our **Top DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -113,18 +113,17 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2023/02/dex3-beat-editor.jpg?fit=8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-must-have-essentials-unveiled-top-trending-items-transforming-the-business-world/"><u>[New] In 2024, Must-Have Essentials Unveiled Top Trending Items Transforming the Business World</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-smart-choices-the-finest-android-screenshot-tools-5/"><u>[Updated] 2024 Approved Smart Choices The Finest Android Screenshot Tools, 5</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/detecting-overheat-issues-a-guide-to-monitor-your-gpu-temperature-tips-from-yl-computing/"><u>Detecting Overheat Issues: A Guide to Monitor Your GPU Temperature - Tips From YL Computing</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722976904734-dtis-ability-to-visualize-white-matter-tract-integrity-aids-in-diagnosing-demyelinating-diseases-and-assessing-the-extent-of-traumatic-brain-injuries/"><u>DTI's Ability to Visualize White Matter Tract Integrity Aids in Diagnosing Demyelinating Diseases and Assessing the Extent of Traumatic Brain Injuries</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-the-origins-when-did-the-great-cultural-shift-begin/"><u>Exploring the Origins: When Did the Great Cultural Shift Begin?</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-to-quickly-enhance-your-computers-performance-easy-tips-and-tricks-yl-tech-solutions/"><u>How to Quickly Enhance Your Computer's Performance: Easy Tips & Tricks - YL Tech Solutions</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-11-useful-youtube-seo-tips-to-rank-your-video/"><u>In 2024, 11 Useful YouTube SEO Tips to Rank Your Video</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/sign-up-savvy-using-telegram-whatsapp-withoout-a-sim/"><u>Sign-Up Savvy: Using Telegram, WhatsApp WITHOOUT a SIM</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/solving-laptop-charger-issues-repair-techniques-and-tips-yl-computing-guide/"><u>Solving Laptop Charger Issues: Repair Techniques & Tips - YL Computing Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-the-latest-changes-to-karaoke-cloud-pros-april-release-and-staying-compliant/"><u>Understanding the Latest Changes to Karaoke Cloud Pro's April Release & Staying Compliant</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/unrivaled-tale-composers-hub/"><u>Unrivaled Tale Composers Hub</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/windows-11-hitch-with-epson-printer-scanning-resolved/"><u>Windows 11 Hitch with Epson Printer Scanning Resolved</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/yl-software-unveiled-expert-strategies-to-design-and-set-up-a-personal-cryptocurrency-wallet/"><u>YL Software Unveiled: Expert Strategies to Design and Set Up a Personal Cryptocurrency Wallet</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-cutting-edge-image-capture-understanding-auto-and-smart-hdr-tech-for-2024/"><u>[New] Cutting-Edge Image Capture Understanding Auto and Smart HDR Tech for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-ultimate-guide-to-essential-macbook-upgrades-expertly-tested-accessories-reviewed/"><u>2024 Ultimate Guide to Essential MacBook Upgrades: Expertly Tested Accessories Reviewed</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/can-itunes-safeguard-your-messages-during-backup-uncover-the-truth-behind-its-capabilities/"><u>Can iTunes Safeguard Your Messages During Backup? Uncover the Truth Behind Its Capabilities</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/drone-photography-showdown-dji-spark-vs-hero6-black-for-2024/"><u>Drone Photography Showdown DJI Spark Vs Hero6 Black for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortlessly-switch-between-devices-transferring-data-seamlessly-from-your-android-phone-to-an-iphone-12-series-device/"><u>Effortlessly Switch Between Devices: Transferring Data Seamlessly From Your Android Phone to an iPhone 12 Series Device</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/from-conversation-to-content-chatgpts-movie-guide/"><u>From Conversation to Content: ChatGPT's Movie Guide</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/problematik-bei-vollem-google-drive-ohne-sichtbarkeit-auf-daten-problemlosungstipps-and-tools/"><u>Problematik Bei Vollem Google Drive Ohne Sichtbarkeit Auf Daten: Problemlösungstipps & -Tools</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/pull-in-viewers-with-the-best-tiktok-caption-ideas-for-engagement-for-2024/"><u>Pull in Viewers With The Best TikTok Caption Ideas for Engagement for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/synctoywindows-11/"><u>SyncToyでWindows 11に合わせた完璧なファイル同期方法:裏付けがあるガイドと代替無料ソリューション</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/universal-unlock-pattern-for-meizu-21-by-drfone-android/"><u>Universal Unlock Pattern for Meizu 21</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unmissable-september-october-cyber-monday-discounts-on-samsung-products-find-and-save-today/"><u>Unmissable September-October Cyber Monday Discounts on Samsung Products – Find & Save Today!</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/zdnets-in-depth-analysis-of-the-velotrix-nomad-1-e-bike-mastering-varied-landscapes-with-unmatched-comfort/"><u>ZDNet's In-Depth Analysis of the Velotrix Nomad 1 E-Bike: Mastering Varied Landscapes with Unmatched Comfort</u></a></li>
 </ul></div>
 

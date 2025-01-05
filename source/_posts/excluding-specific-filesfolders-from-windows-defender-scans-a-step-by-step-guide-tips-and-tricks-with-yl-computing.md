@@ -1,7 +1,7 @@
 ---
 title: "Excluding Specific Files/Folders From Windows Defender Scans: A Step-by-Step Guide - Tips & Tricks with YL Computing"
-date: 2024-12-23T00:17:06.227Z
-updated: 2024-12-27T07:53:58.796Z
+date: 2025-01-03T18:49:12.794Z
+updated: 2025-01-05T18:46:50.331Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,20 +56,19 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ore-auditory-stimulation-channels-for-2024/"><u>[New] Core Auditory Stimulation Channels for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/levate-visibility-maximize-views-seo-for-videos-for-2024/"><u>[New] Elevate Visibility, Maximize Views - SEO for Videos for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-colorful-conga-crow/"><u>[Updated] Colorful Conga Crow</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-unlocking-innovations-a-comparison-between-iphones-face-id-and-galaxy-recognition/"><u>2024 Approved Unlocking Innovations A Comparison Between iPhone's Face ID & Galaxy Recognition</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/a-comprehensive-guide-to-understanding-and-utilizing-ntbackup-on-windows-10-8-and-7/"><u>A Comprehensive Guide to Understanding & Utilizing NTBackup on Windows 10, 8 & 7</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/automate-clean-up-setting-windows-7-for-auto-delete-aged-backups/"><u>Automate Clean-Up: Setting Windows 7 for Auto-Delete Aged Backups</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/chucklecraft-suite-for-2024/"><u>ChuckleCraft Suite for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/edgy-escapes-tips-on-avoiding-edgenuity-videos-quickly-for-2024/"><u>Edgy Escapes Tips on Avoiding Edgenuity Videos Quickly for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/expert-guide-how-to-do-a-clean-slate-refresh-of-your-laptops-os-bypassing-the-need-for-reinstallation/"><u>Expert Guide: How to Do a Clean Slate Refresh of Your Laptop's OS, Bypassing the Need for Reinstallation</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/seamless-upgrade-transition-your-data-from-windows-server-2016-to-an-ssd-drive-without-the-need-for-fresh-install/"><u>Seamless Upgrade: Transition Your Data From Windows Server 2016 to an SSD Drive Without the Need for Fresh Install</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sweet-speeches-unveil-the-world-of-chocolate-in-30-languages/"><u>Sweet Speeches: Unveil the World of Chocolate in 30 Languages</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/the-sentence-plus-if-renovations-are-needed-then-these-could-add-value-too-refers-to-a-potential-change-to-existing-architectural-elements-but-without-speci106/"><u>The Sentence 'Plus if Renovations Are Needed Then These Could Add Value Too.' Refers to a Potential Change to Existing Architectural Elements but without Specific Details, Hence It's Omitted From the Complexity Ranking.</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tips-for-resolving-microsoft-store-error-on-windows-devices/"><u>Tips for Resolving Microsoft Store Error on Windows Devices</u></a></li>
-<li><a href="https://fox-where.techidaily.com/unlocking-your-pcs-secrets-accessing-system-details-via-windows-control-panel-advice-from-yl-computing-pros/"><u>Unlocking Your PC's Secrets: Accessing System Details via Windows Control Panel – Advice From YL Computing Pros</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/hdd0x0142/"><u>デルのHDDで見られるエラーコード[0x0142]修復ガイド</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-fostering-engagement-creating-budget-friendly-youtube-intros/"><u>[New] Fostering Engagement Creating Budget-Friendly YouTube Intros</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-keeping-consistent-pacing-in-obs-broadcasts-for-2024/"><u>[New] Keeping Consistent Pacing in OBS Broadcasts for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-tweet-to-facebook-video-sharing-a-2023-perspective/"><u>[New] Tweet-to-Facebook Video Sharing A 2023 Perspective</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/behind-the-photo-instagram-selfie-credibility-explored/"><u>Behind the Photo Instagram Selfie Credibility Explored</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/checking-compatibility-is-your-scanner-suitable-for-windows-10-explore-options-at-yl-computing/"><u>Checking Compatibility: Is Your Scanner Suitable for Windows 10? Explore Options at YL Computing</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/free-online-converter-tod-to-mp4-in-minutes-moveavi/"><u>Free Online Converter: Tod to MP4 in Minutes - Moveavi</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/how-to-fix-a-scanners-communication-issues-with-its-compatible-program-insights-from-yl-computing/"><u>How to Fix a Scanner's Communication Issues with Its Compatible Program: Insights From YL Computing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/identifying-critical-threats-for-safe-crypto-trading-expert-advice-from-yl-computing-and-yl-software/"><u>Identifying Critical Threats for Safe Crypto Trading - Expert Advice From YL Computing and YL Software</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-on-iphone-14-pro-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID On iPhone 14 Pro without Password?</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/introducing-dex3-top-tier-dj-and-vj-software-unveiled-in-exclusive-trailer/"><u>Introducing Dex3 - Top-Tier DJ and VJ Software Unveiled in Exclusive Trailer</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/reset-itunes-backup-password-of-apple-iphone-15-plus-prevention-and-solution-by-drfone-ios/"><u>Reset iTunes Backup Password Of Apple iPhone 15 Plus Prevention & Solution</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/solving-common-usb-connectivity-problems-on-windows-a-step-by-step-guide-yl-tech-solutions/"><u>Solving Common USB Connectivity Problems on Windows: A Step-by-Step Guide - YL Tech Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/yl-computing-unique-solo-shotacon-wallpaper-and-image-collections/"><u>YL Computing: Unique Solo Shotacon Wallpaper & Image Collections</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-thumbnails-top-20-font-selection-tips/"><u>YouTube Thumbnails Top 20 Font Selection Tips</u></a></li>
 </ul></div>
 
