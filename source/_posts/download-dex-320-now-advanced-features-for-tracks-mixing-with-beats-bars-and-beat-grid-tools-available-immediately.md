@@ -1,7 +1,7 @@
 ---
 title: "Download DEX 3.20 Now: Advanced Features for Tracks Mixing with Beats, Bars & Beat-Grid Tools - Available Immediately!"
-date: 2024-12-29T19:03:12.877Z
-updated: 2025-01-05T16:34:08.791Z
+date: 2025-01-06T21:10:24.546Z
+updated: 2025-01-11T22:50:05.065Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ A ‘bar’ is also known as a measure and consists of 4 consecutive beats — a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New in DEX 3.20: Automatic Down-Beat & Bar Detection
@@ -45,14 +45,14 @@ Here’s an overview of the freshly added ‘beat-grid editing’. This powerful
 [![DEX 3 Beat Grid Editor](https://i0.wp.com/pcdj.com/wp-content/uploads/2023/02/grid-editor.jpg?fit=833%2C540&ssl=1)](https://i0.wp.com/pcdj.com/wp-content/uploads/2023/02/grid-editor.jpg?fit=833%2C540&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How is it Done?
 
@@ -65,7 +65,7 @@ Here’s an overview of the freshly added ‘beat-grid editing’. This powerful
 5. That it. That’s how beat-grid editing works for a track in DEX 3.20 (and up). For songs that have a varying dynamic tempo (such as live-playing bands) or different parts/sections that have a different BPM/beat-grid you can add as many beat-grids throughout the track as you’d like
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in DEX 3.20
@@ -91,7 +91,7 @@ _Not a DEX 3 user? [Download Free Trial](https://tools.techidaily.com/pcdj/produ
 _Have questions about the latest 3.20 version of our **Top DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -113,17 +113,18 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2023/02/dex3-beat-editor.jpg?fit=8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-cutting-edge-image-capture-understanding-auto-and-smart-hdr-tech-for-2024/"><u>[New] Cutting-Edge Image Capture Understanding Auto and Smart HDR Tech for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-ultimate-guide-to-essential-macbook-upgrades-expertly-tested-accessories-reviewed/"><u>2024 Ultimate Guide to Essential MacBook Upgrades: Expertly Tested Accessories Reviewed</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/can-itunes-safeguard-your-messages-during-backup-uncover-the-truth-behind-its-capabilities/"><u>Can iTunes Safeguard Your Messages During Backup? Uncover the Truth Behind Its Capabilities</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/drone-photography-showdown-dji-spark-vs-hero6-black-for-2024/"><u>Drone Photography Showdown DJI Spark Vs Hero6 Black for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effortlessly-switch-between-devices-transferring-data-seamlessly-from-your-android-phone-to-an-iphone-12-series-device/"><u>Effortlessly Switch Between Devices: Transferring Data Seamlessly From Your Android Phone to an iPhone 12 Series Device</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/from-conversation-to-content-chatgpts-movie-guide/"><u>From Conversation to Content: ChatGPT's Movie Guide</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/problematik-bei-vollem-google-drive-ohne-sichtbarkeit-auf-daten-problemlosungstipps-and-tools/"><u>Problematik Bei Vollem Google Drive Ohne Sichtbarkeit Auf Daten: Problemlösungstipps & -Tools</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/pull-in-viewers-with-the-best-tiktok-caption-ideas-for-engagement-for-2024/"><u>Pull in Viewers With The Best TikTok Caption Ideas for Engagement for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/synctoywindows-11/"><u>SyncToyでWindows 11に合わせた完璧なファイル同期方法:裏付けがあるガイドと代替無料ソリューション</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/universal-unlock-pattern-for-meizu-21-by-drfone-android/"><u>Universal Unlock Pattern for Meizu 21</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unmissable-september-october-cyber-monday-discounts-on-samsung-products-find-and-save-today/"><u>Unmissable September-October Cyber Monday Discounts on Samsung Products – Find & Save Today!</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/zdnets-in-depth-analysis-of-the-velotrix-nomad-1-e-bike-mastering-varied-landscapes-with-unmatched-comfort/"><u>ZDNet's In-Depth Analysis of the Velotrix Nomad 1 E-Bike: Mastering Varied Landscapes with Unmatched Comfort</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-innovative-recorder-options-without-latency-anxiety-for-2024/"><u>[New] Innovative Recorder Options Without Latency Anxiety for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-gain-unlimited-stock-videos-through-essential-4-youtube-sources-for-2024/"><u>[Updated] Gain Unlimited Stock Videos Through Essential 4 YouTube Sources for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-vivo-y200e-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Vivo Y200e 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/checking-compatibility-is-your-scanner-suitable-for-windows-10-explore-options-at-yl-computing/"><u>Checking Compatibility: Is Your Scanner Suitable for Windows 10? Explore Options at YL Computing</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/fixing-ralink-rt3290-drivers-troubleshooting-on-windows-10-8-and-7/"><u>Fixing Ralink RT3290 Drivers: Troubleshooting on Windows 10, 8 & 7</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-find-and-install-new-acer-monitor-graphics-drivers-easily/"><u>How to Find and Install New Acer Monitor Graphics Drivers Easily</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/how-to-identify-and-solve-common-problems-with-your-graphics-card-a-guide-by-yl-computing/"><u>How to Identify and Solve Common Problems with Your Graphics Card - A Guide by YL Computing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/identifying-critical-threats-for-safe-crypto-trading-expert-advice-from-yl-computing-and-yl-software/"><u>Identifying Critical Threats for Safe Crypto Trading - Expert Advice From YL Computing and YL Software</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/introducing-dex3-top-tier-dj-and-vj-software-unveiled-in-exclusive-trailer/"><u>Introducing Dex3 - Top-Tier DJ and VJ Software Unveiled in Exclusive Trailer</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/make-instant-pdf-to-word-conversions-at-no-cost-using-yl-computings-powerful-conversion-software/"><u>Make Instant PDF-to-Word Conversions at No Cost Using YL Computing's Powerful Conversion Software!</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317376-9781401923778-secretos-y-misterios-del-mundo/"><u>Secretos y Misterios del Mundo | Free Book</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/solving-self-opening-issues-in-microsoft-store/"><u>Solving Self-Opening Issues in Microsoft Store</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/speed-up-your-computers-boot-process-with-proven-strategies-by-yl-software-professionals/"><u>Speed up Your Computer's Boot Process with Proven Strategies by YL Software Professionals</u></a></li>
 </ul></div>
 

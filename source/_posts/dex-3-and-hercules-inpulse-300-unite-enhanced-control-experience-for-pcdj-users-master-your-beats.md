@@ -1,7 +1,7 @@
 ---
 title: "DEX 3 & Hercules Inpulse 300 Unite: Enhanced Control Experience for PCDJ Users - Master Your Beats"
-date: 2025-01-02T18:02:35.369Z
-updated: 2025-01-05T18:14:49.916Z
+date: 2025-01-09T09:05:06.802Z
+updated: 2025-01-11T19:24:35.456Z
 tags:
   - product
 categories:
@@ -27,13 +27,13 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hercules DJControl Inpulse 300 Specifications:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Audio
@@ -43,7 +43,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Headphones out: 1/8” stereo (3.5 mm)Resolution: 24-bit/44.1 kHz
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls Per Deck
@@ -55,7 +55,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Browser controls: Rotary encoder + 2 load keys + Assistant key
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls On Mixer
@@ -83,7 +83,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 _Have questions about the **Hercules DJ Control Inpulse 300** and how it works with our DEX 3 **DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -105,24 +105,19 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2020/06/inpulse300.jpg?fit=1114%2C
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-dive-into-the-world-of-luts-and-free-digital-tools/"><u>[Updated] 2024 Approved Dive Into the World of LUTs and Free Digital Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1728489330491-2024/"><u>💡如何輕鬆保存和回收被丟失或消失的重要文件 - 2024年最新技術！</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1728463306687-windows-11/"><u>具体的には、Windows 11上でコピー保護されたディスクをどうやって安全に移行するか</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/aomeionekey/"><u>增强数据安全：AOMEI一键修复与苹果乐动OneKey恢复的理想选择</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/easily-restore-deleted-images-on-your-sony-camera-with-these-two-methods/"><u>Easily Restore Deleted Images on Your Sony Camera with These Two Methods</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/erfolgreiches-wiederherstellen-von-geloschten-bildern-auf-ihrem-hp-laptop-mit-myrecover-schritt-fur-schritt-anleitung/"><u>Erfolgreiches Wiederherstellen Von Gelöschten Bildern Auf Ihrem HP-Laptop Mit MyRecover - Schritt-Für-Schritt-Anleitung</u></a></li>
-<li><a href="https://windows11.techidaily.com/establishing-alternate-view-for-windows-pdfs/"><u>Establishing Alternate View for Windows PDFs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/future-ready-coding-education-premier-online-learning-paths-for-developers/"><u>Future-Ready Coding Education - Premier Online Learning Paths for Developers</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-11-to-others-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 11 To Others Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-a-comprehensive-list-of-excellent-fb-cover-photo-creators/"><u>In 2024, A Comprehensive List of Excellent FB Cover Photo Creators</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/losungen-fur-den-fehlenden-iphone-kontaktverlauf-top-8-methoden-mit-fonebackup/"><u>Lösungen Für Den Fehlenden iPhone-Kontaktverlauf: Top 8 Methoden Mit FoneBackup</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-cross-device-sync-unifying-your-apple-gadgets-through-a-single-itunes-repository/"><u>Mastering Cross-Device Sync: Unifying Your Apple Gadgets Through a Single iTunes Repository</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/my-favorite-portable-gaming-device-for-on-the-go-play-beyond-the-joycon/"><u>My Favorite Portable Gaming Device for On-the-Go Play: Beyond the JoyCon</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ps4-dvd/"><u>PS4 DVD再生ハウツー: オフラインでの高画質鑑賞を強化する設定ガイド</u></a></li>
-<li><a href="https://techidaily.com/repair-broken-or-corrupt-video-files-of-realme-c67-5g-by-stellar-video-repair-mobile-video-repair/"><u>Repair broken or corrupt video files of Realme C67 5G</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/reparieren-sie-kostenlos-eine-beschadigte-mp4-datei-auf-mac-oder-pc-schritt-fur-schritt-anleitung/"><u>Reparieren Sie Kostenlos Eine Beschädigte MP4-Datei Auf Mac Oder PC - Schritt-Für-Schritt-Anleitung</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/schritt-fur-schritt-anleitung-zur-bereinigung-der-seagate-externen-datentrager-in-windows-betriebssystemen-1087/"><u>Schritt-Für-Schritt Anleitung Zur Bereinigung Der Seagate Externen Datenträger in Windows Betriebssystemen (10/8/7)</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/score-big-savings-with-the-newly-priced-apple-m2-mac-mini-at-a-record-low-of-479-insider-secrets-revealed/"><u>Score Big Savings with the Newly Priced Apple M2 Mac Mini at a Record Low of $479 - Insider Secrets Revealed</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/step-by-step-guide-migrating-data-from-your-old-ipad-to-a-new-one-without-using-icloud/"><u>Step-by-Step Guide: Migrating Data From Your Old iPad to a New One Without Using iCloud</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-master-the-art-of-mac-screen-record-via-shortcuts/"><u>[Updated] 2024 Approved Master the Art of Mac Screen Record via Shortcuts</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-quickly-uncover-lately-watched-facebook-videos/"><u>[Updated] 2024 Approved Quickly Uncover Lately Watched Facebook Videos</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/book-now-karaoke-summit-2015-dates-set-join-the-ultimate-dj-showdown/"><u>Book Now - Karaoke Summit 2015 Dates Set! Join the Ultimate DJ Showdown!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-guide-to-choosing-and-buying-the-right-tv-for-your-home-viewing-experience/"><u>Comprehensive Guide to Choosing and Buying the Right TV for Your Home Viewing Experience</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/excluding-specific-filesfolders-from-windows-defender-scans-a-step-by-step-guide-tips-and-tricks-with-yl-computing/"><u>Excluding Specific Files/Folders From Windows Defender Scans: A Step-by-Step Guide - Tips & Tricks with YL Computing</u></a></li>
+<li><a href="https://games-able.techidaily.com/finding-calm-amidst-virtual-chaos-6-approaches/"><u>Finding Calm Amidst Virtual Chaos: 6 Approaches</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-samsung-galaxy-s23-tactical-edition-easily-by-drfone-android/"><u>How To Unlock a Samsung Galaxy S23 Tactical Edition Easily?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/hurry-limited-time-promo-buy-a-favorite-nomad-case-and-receive-another-for-free-shop-now-at-zdnet/"><u>Hurry! Limited-Time Promo: Buy a Favorite Nomad Case & Receive Another for Free – Shop Now at ZDNet</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/in-depth-look-at-recuva-leading-application-for-file-reconstruction-and-retrieval/"><u>In Depth Look at Recuva: Leading Application for File Reconstruction and Retrieval</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/step-by-step-guide-retrieving-and-modifying-control-panel-preferences-from-remote-machines-with-yl-software/"><u>Step-by-Step Guide: Retrieving and Modifying Control Panel Preferences From Remote Machines with YL Software</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/troubleshooting-common-error-messages-in-windows-os-with-yl-tech-solutions/"><u>Troubleshooting Common Error Messages in Windows OS with YL Tech Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/troubleshooting-slow-scan-performance-expert-analysis-from-yl-software-experts/"><u>Troubleshooting Slow Scan Performance: Expert Analysis From YL Software Experts</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/troubleshooting-tips-for-resolving-iphoto-malfunctions-after-upgrading-to-the-newest-macos/"><u>Troubleshooting Tips for Resolving IPhoto Malfunctions After Upgrading to the Newest macOS</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unlocking-profit-13-simple-money-making-ideas-on-reddit/"><u>Unlocking Profit 13 Simple Money-Making Ideas on Reddit</u></a></li>
 </ul></div>
 

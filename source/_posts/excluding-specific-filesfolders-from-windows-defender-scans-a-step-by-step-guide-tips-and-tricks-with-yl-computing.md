@@ -1,7 +1,7 @@
 ---
 title: "Excluding Specific Files/Folders From Windows Defender Scans: A Step-by-Step Guide - Tips & Tricks with YL Computing"
-date: 2025-01-03T18:49:12.794Z
-updated: 2025-01-05T18:46:50.331Z
+date: 2025-01-09T21:19:58.115Z
+updated: 2025-01-12T09:14:28.659Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,19 +56,19 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-fostering-engagement-creating-budget-friendly-youtube-intros/"><u>[New] Fostering Engagement Creating Budget-Friendly YouTube Intros</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-keeping-consistent-pacing-in-obs-broadcasts-for-2024/"><u>[New] Keeping Consistent Pacing in OBS Broadcasts for 2024</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-tweet-to-facebook-video-sharing-a-2023-perspective/"><u>[New] Tweet-to-Facebook Video Sharing A 2023 Perspective</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/behind-the-photo-instagram-selfie-credibility-explored/"><u>Behind the Photo Instagram Selfie Credibility Explored</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/checking-compatibility-is-your-scanner-suitable-for-windows-10-explore-options-at-yl-computing/"><u>Checking Compatibility: Is Your Scanner Suitable for Windows 10? Explore Options at YL Computing</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/free-online-converter-tod-to-mp4-in-minutes-moveavi/"><u>Free Online Converter: Tod to MP4 in Minutes - Moveavi</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-to-fix-a-scanners-communication-issues-with-its-compatible-program-insights-from-yl-computing/"><u>How to Fix a Scanner's Communication Issues with Its Compatible Program: Insights From YL Computing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/identifying-critical-threats-for-safe-crypto-trading-expert-advice-from-yl-computing-and-yl-software/"><u>Identifying Critical Threats for Safe Crypto Trading - Expert Advice From YL Computing and YL Software</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-on-iphone-14-pro-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID On iPhone 14 Pro without Password?</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/introducing-dex3-top-tier-dj-and-vj-software-unveiled-in-exclusive-trailer/"><u>Introducing Dex3 - Top-Tier DJ and VJ Software Unveiled in Exclusive Trailer</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/reset-itunes-backup-password-of-apple-iphone-15-plus-prevention-and-solution-by-drfone-ios/"><u>Reset iTunes Backup Password Of Apple iPhone 15 Plus Prevention & Solution</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/solving-common-usb-connectivity-problems-on-windows-a-step-by-step-guide-yl-tech-solutions/"><u>Solving Common USB Connectivity Problems on Windows: A Step-by-Step Guide - YL Tech Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/yl-computing-unique-solo-shotacon-wallpaper-and-image-collections/"><u>YL Computing: Unique Solo Shotacon Wallpaper & Image Collections</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/be-thumbnails-top-20-font-selection-tips/"><u>YouTube Thumbnails Top 20 Font Selection Tips</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/meilleurs-logiciels-de-sauvegarde-pour-ordinateurs-windows-solutions-personnelles-et-professionnelles/"><u>« Meilleurs Logiciels De Sauvegarde Pour Ordinateurs Windows : Solutions Personnelles Et Professionnelles »</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-streamline-learning-processes-with-detailed-chaptering-for-educational-youtube-videos/"><u>[Updated] In 2024, Streamline Learning Processes with Detailed Chaptering for Educational YouTube Videos</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iuoajoodhplusocuoocvplusodqplusodleocqeodvoodoos9noaikoobruwwgumwgowutuodquocueodidrkv53pmbrjgrvjgqjgrjg7zjgplkuk3lv4pjgajjgzfjgzjg4hjgqfjg4pjgqjg6rjgrnjg4j1/"><u>「デジタルフォーム作成の専門家リスト:保険セクターを中心としたチェックリストガイド」</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/free-youtube-outro-kings-6-top-suggestions-for-2024/"><u>Free YouTube Outro Kings 6 TOP Suggestions for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-explore-the-best-free-drawing-software-for-mac-users/"><u>In 2024, Explore the Best FREE Drawing Software for Mac Users</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Vivo Y55s 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-poco-m6-pro-4g-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Poco M6 Pro 4G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-apple-iphone-15-plus-location-is-wrong-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix My Apple iPhone 15 Plus Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-with-ocr-convert-pdfs-and-jpgs-using-finereader/"><u>IPhone Document Scanning with OCR: Convert PDFs & JPGs Using FineReader</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-improved-online-traffic-and-user-interaction/"><u>Leverage Cookiebot Technology for Improved Online Traffic & User Interaction</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/top-trending-digital-assets-unveiling-the-leading-cryptocurrencies-insights-from-yl-computing/"><u>Top Trending Digital Assets: Unveiling the Leading Cryptocurrencies - Insights From YL Computing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
 </ul></div>
 
