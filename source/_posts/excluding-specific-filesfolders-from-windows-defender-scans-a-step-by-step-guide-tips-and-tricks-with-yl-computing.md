@@ -1,7 +1,7 @@
 ---
 title: "Excluding Specific Files/Folders From Windows Defender Scans: A Step-by-Step Guide - Tips & Tricks with YL Computing"
-date: 2025-01-09T21:19:58.115Z
-updated: 2025-01-12T09:14:28.659Z
+date: 2025-01-12T17:11:06.200Z
+updated: 2025-01-17T19:30:30.074Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,19 +56,16 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-marvelous.techidaily.com/meilleurs-logiciels-de-sauvegarde-pour-ordinateurs-windows-solutions-personnelles-et-professionnelles/"><u>« Meilleurs Logiciels De Sauvegarde Pour Ordinateurs Windows : Solutions Personnelles Et Professionnelles »</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-streamline-learning-processes-with-detailed-chaptering-for-educational-youtube-videos/"><u>[Updated] In 2024, Streamline Learning Processes with Detailed Chaptering for Educational YouTube Videos</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iuoajoodhplusocuoocvplusodqplusodleocqeodvoodoos9noaikoobruwwgumwgowutuodquocueodidrkv53pmbrjgrvjgqjgrjg7zjgplkuk3lv4pjgajjgzfjgzjg4hjgqfjg4pjgqjg6rjgrnjg4j1/"><u>「デジタルフォーム作成の専門家リスト:保険セクターを中心としたチェックリストガイド」</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/free-youtube-outro-kings-6-top-suggestions-for-2024/"><u>Free YouTube Outro Kings 6 TOP Suggestions for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-explore-the-best-free-drawing-software-for-mac-users/"><u>In 2024, Explore the Best FREE Drawing Software for Mac Users</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Vivo Y55s 5G (2023)? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-poco-m6-pro-4g-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Poco M6 Pro 4G Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-apple-iphone-15-plus-location-is-wrong-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix My Apple iPhone 15 Plus Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/iphone-document-scanning-with-ocr-convert-pdfs-and-jpgs-using-finereader/"><u>IPhone Document Scanning with OCR: Convert PDFs & JPGs Using FineReader</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/leverage-cookiebot-technology-for-improved-online-traffic-and-user-interaction/"><u>Leverage Cookiebot Technology for Improved Online Traffic & User Interaction</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/maximizing-productivity-in-public-institutions-how-abbyy-software-streamlines-processes-saves-days/"><u>Maximizing Productivity in Public Institutions: How ABBYY Software Streamlines Processes, Saves Days</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/new-appointment-alert-markus-pichler-ascends-as-evp-for-european-commercial-business-at-dabbyy-official-news-release/"><u>New Appointment Alert: Markus Pichler Ascends as EVP for European Commercial Business at D'ABBYY - Official News Release</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/top-trending-digital-assets-unveiling-the-leading-cryptocurrencies-insights-from-yl-computing/"><u>Top Trending Digital Assets: Unveiling the Leading Cryptocurrencies - Insights From YL Computing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/uncovering-the-determinants-of-effective-vs-ineffective-intelligent-automation-insights-from-an-abbyy-report/"><u>Uncovering the Determinants of Effective Vs. Ineffective Intelligent Automation - Insights From an ABBYY Report</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-master-the-art-of-editing-your-tiktok-number/"><u>[New] 2024 Approved Master the Art of Editing Your TikTok Number</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-incorporating-external-audio-into-inshot-playlists/"><u>[New] Incorporating External Audio Into InShot Playlists</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hythm-reversal-top-10-audio-distortors-for-devices-for-2024/"><u>[New] Rhythm Reversal Top 10 Audio Distortors for Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/engaging-audiences-with-wirecast-hosted-facebook-streams/"><u>Engaging Audiences with Wirecast-Hosted Facebook Streams</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-your-marketing-analytics-using-cookiebot-technology/"><u>Enhance Your Marketing Analytics Using Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-engagement-with-cookiebot-technology-integration/"><u>Enhancing Engagement with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-resolve-discord-voice-call-problems-a-step-by-step-solution/"><u>How to Resolve 'Discord Voice Call Problems': A Step-by-Step Solution</u></a></li>
+<li><a href="https://driver-download.techidaily.com/your-ultimate-guide-to-get-and-set-up-epson-xp-410-printing-drivers-for-windows-pcs/"><u>Your Ultimate Guide to Get and Set Up Epson XP-410 Printing Drivers for Windows PCs</u></a></li>
 </ul></div>
 
