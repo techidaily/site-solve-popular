@@ -1,7 +1,7 @@
 ---
 title: "Excluding Specific Files/Folders From Windows Defender Scans: A Step-by-Step Guide - Tips & Tricks with YL Computing"
-date: 2025-01-12T17:11:06.200Z
-updated: 2025-01-17T19:30:30.074Z
+date: 2025-01-17T20:52:03.496Z
+updated: 2025-01-23T23:11:34.607Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,16 +56,24 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-master-the-art-of-editing-your-tiktok-number/"><u>[New] 2024 Approved Master the Art of Editing Your TikTok Number</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-incorporating-external-audio-into-inshot-playlists/"><u>[New] Incorporating External Audio Into InShot Playlists</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/hythm-reversal-top-10-audio-distortors-for-devices-for-2024/"><u>[New] Rhythm Reversal Top 10 Audio Distortors for Devices for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/engaging-audiences-with-wirecast-hosted-facebook-streams/"><u>Engaging Audiences with Wirecast-Hosted Facebook Streams</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-your-marketing-analytics-using-cookiebot-technology/"><u>Enhance Your Marketing Analytics Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-engagement-with-cookiebot-technology-integration/"><u>Enhancing Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/entdecken-sie-die-neueste-ki-innovationen-von-abbyy-in-den-m-files/"><u>Entdecken Sie Die Neueste KI-Innovationen Von ABBYY in Den M-Files</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-resolve-discord-voice-call-problems-a-step-by-step-solution/"><u>How to Resolve 'Discord Voice Call Problems': A Step-by-Step Solution</u></a></li>
-<li><a href="https://driver-download.techidaily.com/your-ultimate-guide-to-get-and-set-up-epson-xp-410-printing-drivers-for-windows-pcs/"><u>Your Ultimate Guide to Get and Set Up Epson XP-410 Printing Drivers for Windows PCs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-elevating-your-tiktok-unboxing-content-with-effective-strategies-for-2024/"><u>[New] Elevating Your TikTok Unboxing Content with Effective Strategies for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1-discover-essential-free-diagnostic-and-repair-utilities-for-your-computer-insights-from-yl-computing/"><u>1. Discover Essential Free Diagnostic & Repair Utilities for Your Computer - Insights From YL Computing</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-blending-audio-from-youtube-into-video-mediums/"><u>2024 Approved Blending Audio From YouTube Into Video Mediums</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/pc-2023/"><u>前十个最烂的PC视频编辑软件 - 2023度冠军</u></a></li>
+<li><a href="https://win-able.techidaily.com/dealing-with-latency-and-drops-during-high-stakes-gaming-tips-for-call-of-duty-modern-warfare-3s-fps-woes/"><u>Dealing with Latency and Drops During High-Stakes Gaming - Tips for Call of Duty: Modern Warfare 3'S FPS Woes</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ensuring-your-pcs-peak-efficiency-a-comprehensive-guide-by-yl-computing/"><u>Ensuring Your PC's Peak Efficiency: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/how-to-engaging-the-millennial-bride-market-as-a-dj-insights-from-djntv-exclusive/"><u>How-To: Engaging the Millennial Bride Market as a DJ - Insights From #DJNTV Exclusive!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/identifying-and-addressing-unusual-sounds-from-your-computer-expert-advice/"><u>Identifying and Addressing Unusual Sounds From Your Computer: Expert Advice</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-oneplus-11-5g-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from OnePlus 11 5G to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/quick-fixes-for-a-lethargic-laptop-enhance-with-yl-software-solutions/"><u>Quick Fixes for a Lethargic Laptop: Enhance with YL Software Solutions</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/resurrecting-broken-films-using-sample-data/"><u>Resurrecting Broken Films: Using Sample Data</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/streamline-your-life-quick-tips-to-beginning-on-discord-broadcasts-for-2024/"><u>Streamline Your Life Quick Tips to Beginning on Discord Broadcasts for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/tackling-the-drain-a-comprehensive-guide-to-spotting-and-deleting-pc-bandwidth-gluttons/"><u>Tackling the Drain: A Comprehensive Guide to Spotting and Deleting PC Bandwidth Gluttons.</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/taiwans-gao-jin-su-mei-disputes-deputy-role-rumors-with-foxconn-ceo-terry-gou-and-chen-zheng-zong-partnership-for-legislator-race-yl-tech-insights/"><u>Taiwan's Gao Jin Su-Mei Disputes Deputy Role Rumors with Foxconn CEO Terry Gou & Chen Zheng Zong Partnership for Legislator Race - YL Tech Insights</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-honor-x50i-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Honor X50i Phone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-magsafe-chargers-comprehensive-reviews-by-tech-experts/"><u>Top-Rated MagSafe Chargers : Comprehensive Reviews by Tech Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-mystery-fbs-insider-speaking-out/"><u>Unveiling The Mystery: FB's Insider Speaking Out</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/yl-computing-or-yl-software/"><u>YL Computing or YL Software.</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/yl-solutions-for-easy-file-relocation-across-folders-in-windows-os-a-complete-how-to/"><u>YL Solutions for Easy File Relocation Across Folders in Windows OS – A Complete How-To</u></a></li>
 </ul></div>
 
