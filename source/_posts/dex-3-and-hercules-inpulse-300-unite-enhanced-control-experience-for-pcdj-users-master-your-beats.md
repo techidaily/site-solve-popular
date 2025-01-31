@@ -1,7 +1,7 @@
 ---
 title: "DEX 3 & Hercules Inpulse 300 Unite: Enhanced Control Experience for PCDJ Users - Master Your Beats"
-date: 2025-01-17T10:09:34.823Z
-updated: 2025-01-23T20:39:55.148Z
+date: 2025-01-26T18:59:03.361Z
+updated: 2025-01-31T21:40:57.773Z
 tags:
   - product
 categories:
@@ -27,13 +27,13 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hercules DJControl Inpulse 300 Specifications:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Audio
@@ -43,7 +43,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Headphones out: 1/8” stereo (3.5 mm)Resolution: 24-bit/44.1 kHz
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls Per Deck
@@ -55,7 +55,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Browser controls: Rotary encoder + 2 load keys + Assistant key
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls On Mixer
@@ -83,7 +83,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 _Have questions about the **Hercules DJ Control Inpulse 300** and how it works with our DEX 3 **DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -105,24 +105,18 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2020/06/inpulse300.jpg?fit=1114%2C
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-swift-techniques-for-authenticating-insta-networks/"><u>[New] 2024 Approved Swift Techniques for Authenticating Insta Networks</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-transforming-viewership-a-proven-guide-to-implementing-youtubes-featured-listings-for-2024/"><u>[Updated] Transforming Viewership A Proven Guide to Implementing Youtube's Featured Listings for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/3gp-format-converter-seamless-transformation-from-3gp-to-various-outputs-mpeg-mkv/"><u>3GP Format Converter - Seamless Transformation From 3GP to Various Outputs (MPEG, MKV)</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/best-holiday-illuminations-and-festive-tunes-playlist-your-ultimate-reference/"><u>Best Holiday Illuminations & Festive Tunes Playlist - Your Ultimate Reference</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/crafting-visionary-art-top-10-apps-for-vector-enthusiasts-for-2024/"><u>Crafting Visionary Art Top 10 Apps for Vector Enthusiasts for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-y78t-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Y78t.</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-lyrx-version-14-a-complete-guide-to-the-revamped-karaokenet-platform-video-walkthrough/"><u>Exploring LYRX Version 1.4: A Complete Guide to the Revamped Karaoke.net Platform - Video Walkthrough</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/extensive-analysis-samsungs-immersive-sphere-technology-for-2024/"><u>Extensive Analysis Samsung's Immersive Sphere Technology for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/getting-to-know-the-latest-apple-airpod-lineup-key-distinctions-revealed/"><u>Getting to Know the Latest Apple AirPod Lineup - Key Distinctions Revealed!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/guide-to-detecting-and-fixing-hard-drive-issues-a-comprehensive-tutorial-by-yl-software/"><u>Guide to Detecting & Fixing Hard Drive Issues: A Comprehensive Tutorial by YL Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-does-windows-file-recovery-work-unveiling-the-techniques-from-yl-softwares-latest-tool/"><u>How Does Windows File Recovery Work? Unveiling the Techniques From YL Software's Latest Tool</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-online-here-are-6-easy-ways-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 12 Online? Here are 6 Easy Ways</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Samsung Galaxy M34? | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/professional-astronomy-visuals-for-pc-hd-astronaut-imagery-and-digital-artwork-by-yl-software-solutions/"><u>Professional Astronomy Visuals for PC: HD Astronaut Imagery & Digital Artwork by YL Software Solutions</u></a></li>
-<li><a href="https://change-location.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Samsung Galaxy A05? | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/restoring-lost-drivers-a-step-by-step-guide-expertise-by-yl-computing/"><u>Restoring Lost Drivers: A Step-by-Step Guide - Expertise by YL Computing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/step-by-step-guide-resolving-paper-jams-in-your-print-device-tips-from-yl-software/"><u>Step-by-Step Guide: Resolving Paper Jams in Your Print Device - Tips From YL Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/uncovering-consequences-the-influence-of-the-opium-conflicts-on-chinas-history-as-explored-by-yl-software/"><u>Uncovering Consequences: The Influence of the Opium Conflicts on China's History as Explored by YL Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/yl-computings-ultimate-trick-for-streaming-mp4-files-directly-in-windows-os/"><u>YL Computing's Ultimate Trick for Streaming MP4 Files Directly in Windows OS</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-demystifying-disconitros-premium-membership-in-minutes/"><u>[Updated] In 2024, Demystifying DiscoNitro's Premium Membership in Minutes</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1728495640303-0/"><u>重新发现被删除文件的秘密：多种场景下0成本提取技巧</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/action-cameras-face-off-gopro-hero-4-vs-ghost-s-drifting/"><u>Action Cameras Face Off GoPro Hero 4 Vs. Ghost-S Drifting</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/data-restoration-techniques-for-compact-flash-cf-storage-devices-expert-tips-and-tricks/"><u>Data Restoration Techniques for Compact Flash (CF) Storage Devices: Expert Tips & Tricks</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/explore-vmware-vsphere-8-essentials-key-insights-into-its-top-8-capabilities/"><u>Explore VMware vSphere 8 Essentials: Key Insights Into Its Top 8 Capabilities</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/guia-para-crear-una-copia-de-seguridad-del-registro-de-archivos-en-microsoft-onedrive-usando-dos-metodos-probados-y-confiables/"><u>Guía Para Crear Una Copia De Seguridad Del Registro De Archivos en Microsoft OneDrive Usando Dos Métodos Probados Y Confiables</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-can-we-unlock-our-motorola-moto-g04-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Motorola Moto G04 Phone Screen?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-do-you-remove-restricted-mode-on-iphone-12-pro-by-drfone-ios/"><u>How Do You Remove Restricted Mode on iPhone 12 Pro</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-key-practices-for-screen-recording-on-phones/"><u>In 2024, Key Practices for Screen Recording on Phones</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/jenis-jenis-praksis-menyelesaikan-kecacauan-video-di-usb-dengan-menggunakan-berbagai-alat-tampil/"><u>Jenis-Jenis Praksis Menyelesaikan Kecacauan Video Di USB Dengan Menggunakan Berbagai Alat Tampil</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/understanding-the-essence-of-luts-for-professional-photography-for-2024/"><u>Understanding the Essence of LUTs for Professional Photography for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-samsung-galaxy-z-fold-5-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Samsung Galaxy Z Fold 5 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-the-complete-guide-to-running-linux-on-a-chromebook-updated-2023/"><u>Updated The Complete Guide to Running Linux on a Chromebook (Updated 2023)</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Download DEX 3.20 Now: Advanced Features for Tracks Mixing with Beats, Bars & Beat-Grid Tools - Available Immediately!"
-date: 2025-01-17T07:50:52.782Z
-updated: 2025-01-23T16:49:58.740Z
+date: 2025-01-29T20:14:32.107Z
+updated: 2025-01-31T17:16:17.641Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ A ‘bar’ is also known as a measure and consists of 4 consecutive beats — a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New in DEX 3.20: Automatic Down-Beat & Bar Detection
@@ -45,17 +45,13 @@ Here’s an overview of the freshly added ‘beat-grid editing’. This powerful
 [![DEX 3 Beat Grid Editor](https://i0.wp.com/pcdj.com/wp-content/uploads/2023/02/grid-editor.jpg?fit=833%2C540&ssl=1)](https://i0.wp.com/pcdj.com/wp-content/uploads/2023/02/grid-editor.jpg?fit=833%2C540&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How is it Done?
@@ -69,7 +65,7 @@ Here’s an overview of the freshly added ‘beat-grid editing’. This powerful
 5. That it. That’s how beat-grid editing works for a track in DEX 3.20 (and up). For songs that have a varying dynamic tempo (such as live-playing bands) or different parts/sections that have a different BPM/beat-grid you can add as many beat-grids throughout the track as you’d like
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in DEX 3.20
@@ -94,6 +90,10 @@ _Not a DEX 3 user? [Download Free Trial](https://tools.techidaily.com/pcdj/produ
 
 _Have questions about the latest 3.20 version of our **Top DJ software**? Please leave them in the comments section below!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### _Related_
 
 https://i1.wp.com/pcdj.com/wp-content/uploads/2023/02/dex3-beat-editor.jpg?fit=876%2C534&ssl=1 534 876 Ryan Sherr https://www.pcdj.com/wp-content/uploads/2021/07/pcdj-main-logo-2.png Ryan Sherr2023-02-24 11:11:022023-04-10 17:03:36DEX 3.20 is Ready for Download | Beats, Bars, and Beat-Grid Editing}
@@ -113,15 +113,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2023/02/dex3-beat-editor.jpg?fit=8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-quick-ways-to-reshuffle-youtube-tracks-on-pcphonetv/"><u>[Updated] 2024 Approved Quick Ways to Reshuffle YouTube Tracks on PC/Phone/TV</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/exclusive-labor-day-discount-at-walmart-grab-apples-airtag-pack-of-four-and-enjoy-savings-up-to-24-shop-now-on-zdnet/"><u>Exclusive Labor Day Discount at Walmart! Grab Apple's AirTag Pack of Four and Enjoy Savings Up to $24 - Shop Now on ZDNET.</u></a></li>
-<li><a href="https://win-data.techidaily.com/immediate-solutions-to-hulus-error-code-ninety-seven-issue-a-step-by-step-guide/"><u>Immediate Solutions to Hulu's Error Code Ninety-Seven Issue: A Step-by-Step Guide</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-vivo-x90s-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Vivo X90S Pattern Lock Screen</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On OnePlus Ace 2 | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-mic-as-monarch-celebrate-your-majestys-moments-new-pop-hits-on-karaoke-cloud-pro-await/"><u>Mastering the Mic as Monarch: Celebrate Your Majesty's Moments - New Pop Hits on Karaoke Cloud Pro Await!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/protecting-your-crypto-investments-strategies-by-yl-software-experts/"><u>Protecting Your Crypto Investments: Strategies by YL Software Experts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/resolving-graphics-card-problems-expert-advice-from-yl-computing/"><u>Resolving Graphics Card Problems: Expert Advice From YL Computing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/step-by-step-guide-fixing-your-printers-paper-jams-expert-advice-from-yl-computing/"><u>Step-by-Step Guide: Fixing Your Printer's Paper Jams - Expert Advice From YL Computing</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unlocking-your-phones-potential-with-custom-android-audio-alerts/"><u>Unlocking Your Phone's Potential with Custom Android Audio Alerts</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-essential-tips-for-switch-gaming-recordings/"><u>[New] In 2024, Essential Tips for Switch Gaming Recordings</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1-mafata-aathhakaraka-apana-us-bin-sa-url-bcaca-panarasathapata-kara-bhaja/"><u>1. मुफ्त आधिकारिक: अपनी US BIN से URL बच्चे पुनर्स्थापित करें - भेजो</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-ultimate-app-review-with-az-screenshotter/"><u>2024 Approved Ultimate App Review with AZ Screenshotter</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/a-full-review-for-itools-virtual-location-and-top-5-alternatives-for-apple-iphone-14ipad-drfone-by-drfone-virtual-ios/"><u>A Full Review for iTools Virtual Location and Top 5 Alternatives For Apple iPhone 14/iPad | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/can-itunes-safeguard-your-messages-during-backup-uncover-the-truth-behind-its-capabilities/"><u>Can iTunes Safeguard Your Messages During Backup? Uncover the Truth Behind Its Capabilities</u></a></li>
+<li><a href="https://article-helps.techidaily.com/discover-the-power-of-nuc-like-amd-ryzen-mini-pc-with-a-stunning-4k-touchscreen-impressive-ryzen-9-6900hx-cpu-and-ultra-fast-storage/"><u>Discover the Power of NUC-Like AMD Ryzen Mini PC with a Stunning 4K Touchscreen, Impressive Ryzen 9 6900HX CPU, and Ultra Fast Storage!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortless-solutions-resolving-non-syncing-icloud-pictures-on-your-windows-11-computer/"><u>Effortless Solutions: Resolving Non-Syncing iCloud Pictures on Your Windows 11 Computer</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/effortlessly-switch-between-devices-transferring-data-seamlessly-from-your-android-phone-to-an-iphone-12-series-device/"><u>Effortlessly Switch Between Devices: Transferring Data Seamlessly From Your Android Phone to an iPhone 12 Series Device</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/etiquette-for-conversing-with-virtual-helpers/"><u>Etiquette for Conversing with Virtual Helpers</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-poco-c65-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://win-tips.techidaily.com/gratis-clonacao-de-unidade-ssd-pcie-para-windows-10-8-ou-7-passo-a-passo/"><u>Gratis Clonação De Unidade SSD PCIe Para Windows 10, 8 Ou 7 - Passo a Passo</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Tecno Spark 20 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/losungsansatze-fur-die-problematik-der-app-die-auf-windows-11-nicht-geoffnet-werden-kann-ausfuhrliche-anleitung-teil-19/"><u>Lösungsansätze Für Die Problematik Der App, Die Auf Windows 11 Nicht Geöffnet Werden Kann – Ausführliche Anleitung Teil 19</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1723862651272-massive-sale-on-lenovo-legion-750-off-for-nvidia-rtx-4080-up-to-240hz-screen/"><u>Massive Sale on Lenovo Legion: $750 Off for NVIDIA RTX 4080 - Up to 240Hz Screen!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/optimale-strategien-fur-die-verwendung-von-wbadmin-bei-der-erstellung-eines-bare-metall-sicherungsplans-ein-umfassender-leitfaden/"><u>Optimale Strategien Für Die Verwendung Von Wbadmin Bei Der Erstellung Eines Bare Metall Sicherungsplans: Ein Umfassender Leitfaden</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/problematik-bei-vollem-google-drive-ohne-sichtbarkeit-auf-daten-problemlosungstipps-and-tools/"><u>Problematik Bei Vollem Google Drive Ohne Sichtbarkeit Auf Daten: Problemlösungstipps & -Tools</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/section-2b-five-factes-on-crop-resistance-to-low-temperatures/"><u>Section 2B: Five Factes on Crop Resistance to Low Temperatures</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/smooth-privacy-tear-away-facial-features/"><u>Smooth Privacy Tear Away Facial Features</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/synctoywindows-11/"><u>SyncToyでWindows 11に合わせた完璧なファイル同期方法:裏付けがあるガイドと代替無料ソリューション</u></a></li>
 </ul></div>
 
