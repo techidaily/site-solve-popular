@@ -1,7 +1,7 @@
 ---
 title: "Download DEX 3.20 Now: Advanced Features for Tracks Mixing with Beats, Bars & Beat-Grid Tools - Available Immediately!"
-date: 2025-01-29T20:14:32.107Z
-updated: 2025-01-31T17:16:17.641Z
+date: 2025-02-06T17:20:33.382Z
+updated: 2025-02-12T23:08:12.049Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ A ‘bar’ is also known as a measure and consists of 4 consecutive beats — a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New in DEX 3.20: Automatic Down-Beat & Bar Detection
@@ -45,13 +45,17 @@ Here’s an overview of the freshly added ‘beat-grid editing’. This powerful
 [![DEX 3 Beat Grid Editor](https://i0.wp.com/pcdj.com/wp-content/uploads/2023/02/grid-editor.jpg?fit=833%2C540&ssl=1)](https://i0.wp.com/pcdj.com/wp-content/uploads/2023/02/grid-editor.jpg?fit=833%2C540&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How is it Done?
@@ -63,10 +67,6 @@ Here’s an overview of the freshly added ‘beat-grid editing’. This powerful
 3. Adjust the beat size until the next beats align correctly with the beats from the waveform — while you adjust the beat size the BPM value also changes.
 4. Repeat the step above (3) as many times as needed to correct the alignment throughout the whole song (for varying BPM tracks, this is a major plus). Start by scrolling slightly past where the initial down-beat was. Then advanced a bit more (around 20-30 seconds at a time) and re-adjust the beat size. Advanced all the way to the end of the track and correct the beat size as you go
 5. That it. That’s how beat-grid editing works for a track in DEX 3.20 (and up). For songs that have a varying dynamic tempo (such as live-playing bands) or different parts/sections that have a different BPM/beat-grid you can add as many beat-grids throughout the track as you’d like
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in DEX 3.20
 
@@ -91,7 +91,7 @@ _Not a DEX 3 user? [Download Free Trial](https://tools.techidaily.com/pcdj/produ
 _Have questions about the latest 3.20 version of our **Top DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -113,24 +113,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2023/02/dex3-beat-editor.jpg?fit=8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-essential-tips-for-switch-gaming-recordings/"><u>[New] In 2024, Essential Tips for Switch Gaming Recordings</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1-mafata-aathhakaraka-apana-us-bin-sa-url-bcaca-panarasathapata-kara-bhaja/"><u>1. मुफ्त आधिकारिक: अपनी US BIN से URL बच्चे पुनर्स्थापित करें - भेजो</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-ultimate-app-review-with-az-screenshotter/"><u>2024 Approved Ultimate App Review with AZ Screenshotter</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/a-full-review-for-itools-virtual-location-and-top-5-alternatives-for-apple-iphone-14ipad-drfone-by-drfone-virtual-ios/"><u>A Full Review for iTools Virtual Location and Top 5 Alternatives For Apple iPhone 14/iPad | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/can-itunes-safeguard-your-messages-during-backup-uncover-the-truth-behind-its-capabilities/"><u>Can iTunes Safeguard Your Messages During Backup? Uncover the Truth Behind Its Capabilities</u></a></li>
-<li><a href="https://article-helps.techidaily.com/discover-the-power-of-nuc-like-amd-ryzen-mini-pc-with-a-stunning-4k-touchscreen-impressive-ryzen-9-6900hx-cpu-and-ultra-fast-storage/"><u>Discover the Power of NUC-Like AMD Ryzen Mini PC with a Stunning 4K Touchscreen, Impressive Ryzen 9 6900HX CPU, and Ultra Fast Storage!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effortless-solutions-resolving-non-syncing-icloud-pictures-on-your-windows-11-computer/"><u>Effortless Solutions: Resolving Non-Syncing iCloud Pictures on Your Windows 11 Computer</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effortlessly-switch-between-devices-transferring-data-seamlessly-from-your-android-phone-to-an-iphone-12-series-device/"><u>Effortlessly Switch Between Devices: Transferring Data Seamlessly From Your Android Phone to an iPhone 12 Series Device</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/etiquette-for-conversing-with-virtual-helpers/"><u>Etiquette for Conversing with Virtual Helpers</u></a></li>
-<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-poco-c65-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Poco C65 | Dr.fone</u></a></li>
-<li><a href="https://win-tips.techidaily.com/gratis-clonacao-de-unidade-ssd-pcie-para-windows-10-8-ou-7-passo-a-passo/"><u>Gratis Clonação De Unidade SSD PCIe Para Windows 10, 8 Ou 7 - Passo a Passo</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Tecno Spark 20 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/losungsansatze-fur-die-problematik-der-app-die-auf-windows-11-nicht-geoffnet-werden-kann-ausfuhrliche-anleitung-teil-19/"><u>Lösungsansätze Für Die Problematik Der App, Die Auf Windows 11 Nicht Geöffnet Werden Kann – Ausführliche Anleitung Teil 19</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1723862651272-massive-sale-on-lenovo-legion-750-off-for-nvidia-rtx-4080-up-to-240hz-screen/"><u>Massive Sale on Lenovo Legion: $750 Off for NVIDIA RTX 4080 - Up to 240Hz Screen!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimale-strategien-fur-die-verwendung-von-wbadmin-bei-der-erstellung-eines-bare-metall-sicherungsplans-ein-umfassender-leitfaden/"><u>Optimale Strategien Für Die Verwendung Von Wbadmin Bei Der Erstellung Eines Bare Metall Sicherungsplans: Ein Umfassender Leitfaden</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/problematik-bei-vollem-google-drive-ohne-sichtbarkeit-auf-daten-problemlosungstipps-and-tools/"><u>Problematik Bei Vollem Google Drive Ohne Sichtbarkeit Auf Daten: Problemlösungstipps & -Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/section-2b-five-factes-on-crop-resistance-to-low-temperatures/"><u>Section 2B: Five Factes on Crop Resistance to Low Temperatures</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/smooth-privacy-tear-away-facial-features/"><u>Smooth Privacy Tear Away Facial Features</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/synctoywindows-11/"><u>SyncToyでWindows 11に合わせた完璧なファイル同期方法:裏付けがあるガイドと代替無料ソリューション</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-digital-puppetry-and-storytelling-movies-maker-edition/"><u>[New] Digital Puppetry and Storytelling Movies Maker Edition</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-intelligent-viewing-syncing-youtube-with-televisions/"><u>[Updated] In 2024, Intelligent Viewing Syncing YouTube with Televisions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-diy-cinematic-tips-fast-ways-to-improve-your-indie-projects/"><u>2024 Approved DIY Cinematic Tips Fast Ways to Improve Your Indie Projects</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-premium-vectors-leading-sites-in-quality-stock/"><u>2024 Approved Premium Vectors Leading Sites in Quality Stock</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/best-holiday-illuminations-and-festive-tunes-playlist-your-ultimate-reference/"><u>Best Holiday Illuminations & Festive Tunes Playlist - Your Ultimate Reference</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/expand-your-pcs-capacity-a-guide-by-yl-software-for-freeing-up-hard-drive-space/"><u>Expand Your PC's Capacity: A Guide by YL Software for Freeing Up Hard Drive Space</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/exploring-lyrx-version-14-a-complete-guide-to-the-revamped-karaokenet-platform-video-walkthrough/"><u>Exploring LYRX Version 1.4: A Complete Guide to the Revamped Karaoke.net Platform - Video Walkthrough</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/flash-sale-ends-may-31st-save-on-karaoke-systems-and-get-karaoke-file-renamer-free/"><u>Flash Sale Ends May 31St - Save on Karaoke Systems & Get Karaoke File Renamer Free!</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/high-resolution-aqualad-wallpaper-download-stunning-hd-visuals-crafted-by-yl-software/"><u>High-Resolution Aqualad Wallpaper Download - Stunning HD Visuals Crafted by YL Software</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Nokia C22? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-a23-5g-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy A23 5G Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-nokia-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Nokia FRP Bypass</u></a></li>
+<li><a href="https://extra-support.techidaily.com/omniimageai-holistic-editing-experience-for-2024/"><u>OmniImageAI Holistic Editing Experience for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/professional-astronomy-visuals-for-pc-hd-astronaut-imagery-and-digital-artwork-by-yl-software-solutions/"><u>Professional Astronomy Visuals for PC: HD Astronaut Imagery & Digital Artwork by YL Software Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/restoring-lost-drivers-a-step-by-step-guide-expertise-by-yl-computing/"><u>Restoring Lost Drivers: A Step-by-Step Guide - Expertise by YL Computing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/superior-20-anime-song-intros-for-2024/"><u>Superior 20 Anime Song Intros for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/surface-hardeners-provide-additional-wear-resistance-for-concrete-exposed-to-mechanical-stress-without-significantly-affecting-permeability/"><u>Surface Hardeners Provide Additional Wear Resistance for Concrete Exposed to Mechanical Stress without Significantly Affecting Permeability.</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/understanding-the-dangers-a-comprehensive-guide-to-cryptocurrency-purchase-risks-yl-computing-solutions/"><u>Understanding the Dangers: A Comprehensive Guide to Cryptocurrency Purchase Risks - YL Computing Solutions</u></a></li>
 </ul></div>
 

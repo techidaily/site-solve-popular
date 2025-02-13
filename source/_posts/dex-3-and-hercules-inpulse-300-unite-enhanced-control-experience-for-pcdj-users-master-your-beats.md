@@ -1,7 +1,7 @@
 ---
 title: "DEX 3 & Hercules Inpulse 300 Unite: Enhanced Control Experience for PCDJ Users - Master Your Beats"
-date: 2025-01-26T18:59:03.361Z
-updated: 2025-01-31T21:40:57.773Z
+date: 2025-02-12T02:47:59.552Z
+updated: 2025-02-12T20:03:02.304Z
 tags:
   - product
 categories:
@@ -27,13 +27,13 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hercules DJControl Inpulse 300 Specifications:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Audio
@@ -43,7 +43,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Headphones out: 1/8” stereo (3.5 mm)Resolution: 24-bit/44.1 kHz
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls Per Deck
@@ -55,7 +55,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Browser controls: Rotary encoder + 2 load keys + Assistant key
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls On Mixer
@@ -83,7 +83,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 _Have questions about the **Hercules DJ Control Inpulse 300** and how it works with our DEX 3 **DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -105,18 +105,22 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2020/06/inpulse300.jpg?fit=1114%2C
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/updated-in-2024-demystifying-disconitros-premium-membership-in-minutes/"><u>[Updated] In 2024, Demystifying DiscoNitro's Premium Membership in Minutes</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1728495640303-0/"><u>重新发现被删除文件的秘密：多种场景下0成本提取技巧</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/action-cameras-face-off-gopro-hero-4-vs-ghost-s-drifting/"><u>Action Cameras Face Off GoPro Hero 4 Vs. Ghost-S Drifting</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/data-restoration-techniques-for-compact-flash-cf-storage-devices-expert-tips-and-tricks/"><u>Data Restoration Techniques for Compact Flash (CF) Storage Devices: Expert Tips & Tricks</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/explore-vmware-vsphere-8-essentials-key-insights-into-its-top-8-capabilities/"><u>Explore VMware vSphere 8 Essentials: Key Insights Into Its Top 8 Capabilities</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/guia-para-crear-una-copia-de-seguridad-del-registro-de-archivos-en-microsoft-onedrive-usando-dos-metodos-probados-y-confiables/"><u>Guía Para Crear Una Copia De Seguridad Del Registro De Archivos en Microsoft OneDrive Usando Dos Métodos Probados Y Confiables</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-can-we-unlock-our-motorola-moto-g04-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Motorola Moto G04 Phone Screen?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-do-you-remove-restricted-mode-on-iphone-12-pro-by-drfone-ios/"><u>How Do You Remove Restricted Mode on iPhone 12 Pro</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-key-practices-for-screen-recording-on-phones/"><u>In 2024, Key Practices for Screen Recording on Phones</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/jenis-jenis-praksis-menyelesaikan-kecacauan-video-di-usb-dengan-menggunakan-berbagai-alat-tampil/"><u>Jenis-Jenis Praksis Menyelesaikan Kecacauan Video Di USB Dengan Menggunakan Berbagai Alat Tampil</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/understanding-the-essence-of-luts-for-professional-photography-for-2024/"><u>Understanding the Essence of LUTs for Professional Photography for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlock-your-samsung-galaxy-z-fold-5-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Samsung Galaxy Z Fold 5 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-the-complete-guide-to-running-linux-on-a-chromebook-updated-2023/"><u>Updated The Complete Guide to Running Linux on a Chromebook (Updated 2023)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uzzing-beats-essential-background-scores-for-viral-video-shorts-for-2024/"><u>[New] Buzzing Beats Essential Background Scores for Viral Video Shorts for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-the-microscope-effect-for-enhanced-video-conferencing/"><u>[New] Mastering the Microscope Effect for Enhanced Video Conferencing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1-mafata-aathhakaraka-apana-us-bin-sa-url-bcaca-panarasathapata-kara-bhaja/"><u>1. मुफ्त आधिकारिक: अपनी US BIN से URL बच्चे पुनर्स्थापित करें - भेजो</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1728489815489-windows/"><u>解決Windows</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1728476483794-sd/"><u>消去できないSDカードへの究極回避策とその実践手順を解明</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/apowersoft-unveils-new-pc-screen-capture-tech-for-2024/"><u>Apowersoft Unveils New PC Screen Capture Tech for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Samsung Galaxy S23? | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/gmailoutlook2/"><u>GmailをOutlookへスムーズな移行とバックアップ:上位2手法</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/peak-level-hd-mastery-in-the-markets-top-recorders/"><u>Peak-Level HD Mastery in the Market's Top Recorders</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/resolved-issue-encountered-during-recovery-drive-creation-process/"><u>Resolved: Issue Encountered During Recovery Drive Creation Process</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/section-2b-five-factes-on-crop-resistance-to-low-temperatures/"><u>Section 2B: Five Factes on Crop Resistance to Low Temperatures</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/solution-de-secure-boot-dysfonctionnel-sur-un-ordinateur-asus-pour-windows-11-methodes-de-reparation-detaillees/"><u>Solution De Secure Boot Dysfonctionnel Sur Un Ordinateur ASUS Pour Windows 11 : Méthodes De Réparation Détaillées</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-plugged-in-but-not-charging-problems-on-your-microsoft-surface/"><u>Solving Plugged In But Not Charging Problems on Your Microsoft Surface</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209733413-9781507212639-the-witchs-book-of-love/"><u>The Witch's Book of Love | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863631-9781732476011-we-are-all-jacobs-children/"><u>We Are All Jacob's Children | Free Book</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/shag-za-shagom-kopirovanie-zhestkogo-diska-na-windows-server-2012-r2-dva-effektivnyh-metoda/"><u>Шаг За Шагом: Копирование Жесткого Диска На Windows Server 2012 R2 - Два Эффективных Метода</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Excluding Specific Files/Folders From Windows Defender Scans: A Step-by-Step Guide - Tips & Tricks with YL Computing"
-date: 2025-01-25T16:29:52.986Z
-updated: 2025-01-31T19:00:45.915Z
+date: 2025-02-10T00:35:06.639Z
+updated: 2025-02-13T07:22:46.939Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,20 +56,15 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-essential-methods-6-steps-for-recording-minecraft-play/"><u>[Updated] Essential Methods 6 Steps for Recording Minecraft Play</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-high-quality-live-streaming-games-via-obs/"><u>[Updated] High-Quality Live Streaming Games via OBS</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-expert-tips-for-safaris-picture-and-window-sharing-feature/"><u>[Updated] In 2024, Expert Tips for Safari's Picture and Window Sharing Feature</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-innovative-uses-of-b-roll-beyond-traditional-applications/"><u>[Updated] In 2024, Innovative Uses of B-Roll Beyond Traditional Applications</u></a></li>
-<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-apple-iphone-7-plus-in-3-ways-drfone-by-drfone-virtual-ios/"><u>Edit and Send Fake Location on Telegram For your Apple iPhone 7 Plus in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-can-i-successfully-add-a-scanner-driver-insights-by-yl-computing/"><u>How Can I Successfully Add a Scanner Driver - Insights by YL Computing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/identifying-factors-behind-subpar-graphics-card-efficiency-insights-from-yl-computing/"><u>Identifying Factors Behind Subpar Graphics Card Efficiency: Insights From YL Computing</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-navigating-the-net-top-tags-for-eye-catching-gamer-content/"><u>In 2024, Navigating the Net Top Tags for Eye-Catching Gamer Content</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-refurbished-apple-iphone-13-mini-everything-you-need-to-know-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Refurbished Apple iPhone 13 mini Everything You Need to Know | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/permanent-file-deletion-on-windows-a-comprehensive-guide-by-yl-computing/"><u>Permanent File Deletion on Windows: A Comprehensive Guide by YL Computing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/prevent-automatic-launch-of-applications-on-windows-boot-expert-advice-by-yl-computing/"><u>Prevent Automatic Launch of Applications on Windows Boot - Expert Advice by YL Computing</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/pro-tips-for-efficient-message-reactions-on-discord/"><u>Pro Tips for Efficient Message Reactions on Discord</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/romantic-image-collection-in-ultra-hd-quality-from-yl-softwares-digital-gallery/"><u>Romantic Image Collection in Ultra-HD Quality From YL Software's Digital Gallery</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/troubleshooting-techniques-when-your-windows-pc-refuses-to-boot-up-essential-tips-and-steps/"><u>Troubleshooting Techniques when Your Windows PC Refuses to Boot Up: Essential Tips and Steps</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ultra-hd-the-flash-theme-collection-premium-background-images-for-desktops-and-mobile-powered-by-yl-software/"><u>Ultra HD The Flash Theme Collection - Premium Background Images for Desktops and Mobile, Powered by YL Software</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twittervidstowebm-direct-media-conversion/"><u>[New] 2024 Approved TwitterVidsToWebM Direct Media Conversion</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-rapidpace-timefreeze-film/"><u>[Updated] 2024 Approved RapidPace TimeFreeze Film</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagram-utilizing-search-to-expand-your-filters/"><u>[Updated] In 2024, Mastering Instagram Utilizing Search to Expand Your Filters</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-streams-weighing-xsplit-against-obs-capabilities/"><u>[Updated] Mastering Streams Weighing XSplit Against OBS Capabilities</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/free-downloads-using-windows-movie-maker-on-windows-11/"><u>Free Downloads: Using Windows Movie Maker on Windows 11</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/hd-video-loop-with-dark-theme-and-soft-azure-motion-effects-by-yl-computing-and-yl-software/"><u>HD Video Loop with Dark Theme and Soft Azure Motion Effects by YL Computing & YL Software</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/how-to-identify-and-troubleshoot-hardware-issues-a-step-by-step-guide-by-yl-computing/"><u>How to Identify and Troubleshoot Hardware Issues: A Step-by-Step Guide by YL Computing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-create-memes-with-kapwing-magic-tool/"><u>In 2024, Create Memes with Kapwing Magic Tool</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-user-management-via-control-panel-insights-from-yl-computing/"><u>Mastering the Art of User Management via Control Panel - Insights From YL Computing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/restoring-registry-data-on-windows-a-comprehensive-backup-restoration-walkthrough-by-yl-software-experts/"><u>Restoring Registry Data on Windows: A Comprehensive Backup Restoration Walkthrough by YL Software Experts</u></a></li>
 </ul></div>
 
