@@ -1,7 +1,7 @@
 ---
 title: "Excluding Specific Files/Folders From Windows Defender Scans: A Step-by-Step Guide - Tips & Tricks with YL Computing"
-date: 2025-02-10T00:35:06.639Z
-updated: 2025-02-13T07:22:46.939Z
+date: 2025-02-28T01:46:46.707Z
+updated: 2025-03-04T01:07:37.954Z
 tags:
   - product
 categories:
@@ -31,10 +31,6 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Post navigation
 
 [What type of maintenance tasks should I be performing on my PC to keep it running efficiently?](https://tools.techidaily.com/pcclean/products/)
@@ -56,15 +52,20 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twittervidstowebm-direct-media-conversion/"><u>[New] 2024 Approved TwitterVidsToWebM Direct Media Conversion</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-rapidpace-timefreeze-film/"><u>[Updated] 2024 Approved RapidPace TimeFreeze Film</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagram-utilizing-search-to-expand-your-filters/"><u>[Updated] In 2024, Mastering Instagram Utilizing Search to Expand Your Filters</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-mastering-streams-weighing-xsplit-against-obs-capabilities/"><u>[Updated] Mastering Streams Weighing XSplit Against OBS Capabilities</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/free-downloads-using-windows-movie-maker-on-windows-11/"><u>Free Downloads: Using Windows Movie Maker on Windows 11</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/hd-video-loop-with-dark-theme-and-soft-azure-motion-effects-by-yl-computing-and-yl-software/"><u>HD Video Loop with Dark Theme and Soft Azure Motion Effects by YL Computing & YL Software</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-to-identify-and-troubleshoot-hardware-issues-a-step-by-step-guide-by-yl-computing/"><u>How to Identify and Troubleshoot Hardware Issues: A Step-by-Step Guide by YL Computing</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-create-memes-with-kapwing-magic-tool/"><u>In 2024, Create Memes with Kapwing Magic Tool</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/mastering-the-art-of-user-management-via-control-panel-insights-from-yl-computing/"><u>Mastering the Art of User Management via Control Panel - Insights From YL Computing</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/restoring-registry-data-on-windows-a-comprehensive-backup-restoration-walkthrough-by-yl-software-experts/"><u>Restoring Registry Data on Windows: A Comprehensive Backup Restoration Walkthrough by YL Software Experts</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-live-video-showdown-which-is-superior-obs-or-twitch-studio/"><u>[New] 2024 Approved Live Video Showdown Which Is Superior, OBS or Twitch Studio?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-money-making-top-13-strategies-for-novice-reddit-users/"><u>[New] Mastering Money-Making Top 13 Strategies for Novice Reddit Users</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-the-ultimate-guide-to-dimming-down-soundtracks-in-premiere-pro/"><u>[Updated] 2024 Approved The Ultimate Guide to Dimming Down Soundtracks in Premiere Pro</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-streaming-services-face-off-facebook-youtube-and-spaces/"><u>[Updated] In 2024, Streaming Services Face-Off FACEbook, YOUTube, & Spaces</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-famebit-alternatives-for-finding-youtube-sponsorships/"><u>2024 Approved FameBit Alternatives for Finding YouTube Sponsorships</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-the-secret-ingredient-behind-tailored-user-experiences/"><u>Cookiebot: The Secret Ingredient Behind Tailored User Experiences</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/digital-twin-evolution-brochure-unlocking-innovations-with-abbyy/"><u>Digital Twin Evolution Brochure - Unlocking Innovations with ABBYY</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-by-cookiebot-optimizing-your-sites-visibility/"><u>Driven by Cookiebot: Optimizing Your Site's Visibility</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/efficiently-managing-insurance-claims-with-ecclesia-the-abbyy-integration/"><u>Efficiently Managing Insurance Claims with Ecclesia: The ABBYY Integration</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-conversion-rates-using-leading-analytics-software/"><u>Enhanced Conversion Rates Using Leading Analytics Software</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhanced-data-collection-with-the-help-of-cookiebot-technology/"><u>Enhanced Data Collection with the Help of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-website-analytics-with-cookiebot-technology/"><u>Enhancing Website Analytics with Cookiebot Technology</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/immediate-entry-bing-chat-no-longer-requires-a-delay/"><u>Immediate Entry: Bing Chat No Longer Requires a Delay</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-sony-xperia-5-v-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Sony Xperia 5 V? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Guide: Restore Functionality of Your Windows 지정 시작 메뉴와 대화형 바"
-date: 2025-01-17T00:45:26.077Z
-updated: 2025-01-23T18:28:33.273Z
+date: 2025-03-03T02:46:46.263Z
+updated: 2025-03-03T23:25:41.657Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d961f8420245056a49851ba62.jpg
@@ -48,17 +48,9 @@ If you are looking for methods on how to recover ransomware-infected files, you 
 
 [![Recover Files From Ransomware](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/others/recover-files-from-ransomware.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to recover files from ransomware attack in 4 ways
 
 Many solutions are available for you to solve how to recover data from ransomware attacks. We have selected some easy-to-implement methods for you. Read below for detailed information. 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 1\. Recover files from ransomware with data recovery software
 
@@ -80,10 +72,6 @@ Run MyRecover, hover the mouse over the drive and click **Scan** to scan.. If yo
 
 [![Select Partition To Scan](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows-recovery/select-partition-to-scan.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2\. Locate and preview your lost/deleted files**
 
 The recovery tool will automatically start looking for all the deleted and lost files.
@@ -95,10 +83,6 @@ The recovery tool will automatically start looking for all the deleted and lost 
 You can expand the Deleted files folder and Other missing files folder to select the desired items, then click **Recover x files** to begin ransomware attack recovery now.
 
 [![Select Deleted Excel Files Click Recover](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows-recovery/select-deleted-excel-files-click-recover.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 2\. Recover ransomware infected files via Backup and Restore
 
@@ -118,10 +102,6 @@ Step 3\. Click **Browse for files** to locate your lost data and choose to save 
 
 [![Browse For Files To Restore](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/browse-for-files-to-restore.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 3\. Get back files from ransomware using File History
 
 If you have used File History to save a copy of your precious data, you can follow the steps below to figure out how to recover encrypted files from ransomware. You can use this tool to [recover permanently deleted folders](https://tools.techidaily.com/ubackup/products/) and files on your computer as well.
@@ -130,10 +110,6 @@ Step 1\. Go to **Control Panel** \> **System and Security**, and click on **File
 
 [![File History](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/file-history.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 2\. Press the **Restore personal files** button on the left panel. Please make sure your File History is turned on.
 
 [![Restore Personal Files](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/restore-personal-files.png)
@@ -141,10 +117,6 @@ Step 2\. Press the **Restore personal files** button on the left panel. Please m
 Step 3\. Find the files you want to recover and click the arrow pointing left or right to choose the version you need. And then, click the **Recover** button.
 
 [![Restore Deleted File](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/restore-deleted-file.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 4\. Recover from ransomware through system restore
 
@@ -183,10 +155,6 @@ To prevent ransomware from attacking your computer and files again, we list seve
 * Report ransomware attacks to let authorities identify the attacker.
 * Regularly back up important data in case of emergencies.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Ransomware can't be prevented. Though there are multiple ways for you to accomplish how to recover files from ransomware, prevention is easier than rescue. We highly recommend you backup your important data periodically.
@@ -223,10 +191,6 @@ Was the provided information useful? Your vote is important to us!
 
 [Yes](https://tools.techidaily.com/ubackup/products/)[No](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Free Get MyRecover Now
 
 Recover deleted & lost data from any disasters in Windows.
@@ -234,10 +198,6 @@ Recover deleted & lost data from any disasters in Windows.
 [**Download Freeware**  Windows 11/10/8.1/8/7](https://tools.techidaily.com/ubackup/products/) 
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Clean & Secure
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://www.ubackup.com/resource/images/ub-mr-theme/ub-article-mr-img-dibu.png)
 
@@ -256,22 +216,21 @@ Recover deleted & lost data from any disasters in Windows.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-explore-top-10-iphoneandroid-intro-creation-software-for-2024/"><u>[New] Explore Top 10 iPhone/Android Intro Creation Software for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-navigating-discords-broadcast-settings-for-easy-streaming/"><u>[New] In 2024, Navigating Discord's Broadcast Settings for Easy Streaming</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-spectral-time-freeze-instruction/"><u>[New] Spectral Time-Freeze Instruction</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-brief-video-joust-the-showdown-between-youtubes-shorts-and-tiktoks-flavor/"><u>[Updated] Brief Video Joust The Showdown Between YouTubes Shorts and TikTok's Flavor</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-crafting-impactful-youtube-channel-logo-tips/"><u>[Updated] In 2024, Crafting Impactful YouTube Channel Logo Tips</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-epic-game-viewing-spots-1-9/"><u>2024 Approved Epic Game Viewing Spots #1-#9</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-multifunctional-toshiba-printer-with-built-in-abbyy-ocr-technology/"><u>Enhanced Multifunctional Toshiba Printer with Built-In ABBYY OCR Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-accounting-efficiency-with-advanced-automated-solutions/"><u>Enhancing Accounting Efficiency with Advanced Automated Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-financial-stability-with-ai-driven-bank-compliance-measures-and-resilience-tactics/"><u>Enhancing Financial Stability with AI-Driven Bank Compliance Measures and Resilience Tactics</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-robotic-process-automation-efficiency-with-advanced-process-analytics-insights-from-the-abbyy-experience/"><u>Enhancing Robotic Process Automation Efficiency with Advanced Process Analytics: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-tools/"><u>Enhancing User Experience Through Smart Data Collection Tools</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-a-look-into-the-efficiency-of-cookiebot-solutions/"><u>Enhancing User Experience Through Smart Data Collection: A Look Into the Efficiency of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-with-advanced-cookiebot-technology/"><u>Enhancing User Experience with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/excellence-recognized-and-best-practices-established/"><u>Excellence Recognized and Best Practices Established!</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-xs-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone XS Without Losing Anything? | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/in-depth-review-discovering-unexpected-delight-in-apples-vision-pro-with-help-from-an-insider-at-the-genius-bar/"><u>In-Depth Review: Discovering Unexpected Delight in Apple's Vision Pro with Help From An Insider at The Genius Bar</u></a></li>
-<li><a href="https://win-great.techidaily.com/latest-release-karaoke-cloud-pro-shine-bright-at-any-venue-with-new-features/"><u>Latest Release: Karaoke Cloud Pro - Shine Bright at Any Venue with New Features!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-convert-your-srt-files-for-free-with-top-websites/"><u>[New] Convert Your SRT Files for FREE with Top Websites</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-kinemaster-app-for-android-a-comprehensive-insight-review/"><u>[Updated] In 2024, KineMaster App for Android A Comprehensive Insight Review</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/4k-spectacle-top-10-monitors-compatible-with-macs-for-2024/"><u>4K Spectacle Top 10 Monitors Compatible with Macs for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/comment-recuperer-votre-contenu-filmique-perdu-aide-pour-la-reconversion-de-videos-adt/"><u>Comment Récupérer Votre Contenu Filmique Perdu : Aide Pour La Reconversion De Vidéos ADT</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/exklusiver-tipp-wie-man-windows-server-2016-daten-erfolgreich-auf-eine-externe-festplatte-speichert/"><u>Exklusiver Tipp: Wie Man Windows Server 2016 Daten Erfolgreich Auf Eine Externe Festplatte Speichert</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-vivo-y100i-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Vivo Y100i</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-photography-refinement-removing-backgrounds-and-blurring-effectively/"><u>In 2024, Photography Refinement Removing Backgrounds & Blurring Effectively</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/mastering-system-restore-in-windows-11-a-complete-guide/"><u>Mastering System Restore in Windows 11: A Complete Guide</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-edit-your-way-to-success-top-vlog-video-editing-software-free-and-paid/"><u>New In 2024, Edit Your Way to Success Top Vlog Video Editing Software Free & Paid</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/notice-missing-or-moved-site-content-http-404/"><u>Notice: Missing or Moved Site Content (HTTP 404)</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/prairie-dogs-using-sophisticated-alarm-calls-to-warn-their-colony-of-specific-predator-threats-with-vocalizations-that-vary-based-on-the-type-size-and-speed84/"><u>Prairie Dogs Using Sophisticated Alarm Calls to Warn Their Colony of Specific Predator Threats with Vocalizations that Vary Based on the Type, Size, and Speed of the Approaching Danger.</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/resolve-windows-11-profile-authentication-issues-fixing-logon-service-problems-quickly/"><u>Resolve Windows 11 Profile Authentication Issues: Fixing Logon Service Problems Quickly</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/samsung-data-transfer-stuck-at-99-expert-tips-for-successful-completion/"><u>Samsung Data Transfer Stuck at 99%? Expert Tips for Successful Completion</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/trimming-mp4-content-a-focus-on-solo-soundtrack/"><u>Trimming MP4 Content A Focus on Solo Soundtrack</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/vital-insights-seamless-strategies-for-moving-your-data-center-to-vmwares-vcsa-platform/"><u>Vital Insights: Seamless Strategies for Moving Your Data Center to VMware's VCSA Platform</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Wat Is De Beste Manier Om Gegevens Te Maken Voor Een Efficiënte WD-Aanlogediestoring?
-date: 2025-01-18T22:11:13.511Z
-updated: 2025-01-23T21:24:59.225Z
+date: 2025-03-02T16:59:24.836Z
+updated: 2025-03-04T07:49:40.602Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/e937e68a5b9ec03875dd350ca4501bcb740dbcf769458408d36b67b305252021.jpg
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/e937e68a5b9ec03875dd350ca4501bcb740dbcf76
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Recover Files from Ransomware Attack \[Full Guide 2022\]
 
@@ -76,10 +72,6 @@ Run MyRecover, hover the mouse over the drive and click **Scan** to scan.. If yo
 
 [![Select Partition To Scan](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows-recovery/select-partition-to-scan.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2\. Locate and preview your lost/deleted files**
 
 The recovery tool will automatically start looking for all the deleted and lost files.
@@ -118,10 +110,6 @@ Step 1\. Go to **Control Panel** \> **System and Security**, and click on **File
 
 [![File History](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/file-history.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 2\. Press the **Restore personal files** button on the left panel. Please make sure your File History is turned on.
 
 [![Restore Personal Files](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/restore-personal-files.png)
@@ -129,14 +117,6 @@ Step 2\. Press the **Restore personal files** button on the left panel. Please m
 Step 3\. Find the files you want to recover and click the arrow pointing left or right to choose the version you need. And then, click the **Recover** button.
 
 [![Restore Deleted File](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/restore-deleted-file.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 4\. Recover from ransomware through system restore
 
@@ -156,19 +136,11 @@ Step 3\. Choose a restore point from the list and tap on **Scan for affected pro
 
 [![Scan For Affected Programs Close](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/scan-for-affected-programs-close.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 4\. Press **Next**. Confirm the selected restore point and click **Finish**. Then, hit **Yes** to begin the [recovery of deleted files](https://tools.techidaily.com/ubackup/products/).
 
 If there is no restore point, it might be because the system protection isn't turned on. You can check **Protection Settings** on the System Protection tab. If the Protection Settings for your system drive shows as **Off**, you can click on **Configure** \> **Turn on System protection**, and then OK to turn it on.
 
 [![Turn On System Protection Ok](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/turn-on-system-protection-ok.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Notes:✎...
 
@@ -182,10 +154,6 @@ To prevent ransomware from attacking your computer and files again, we list seve
 * Don't click on emails and connections sent by strangers.
 * Report ransomware attacks to let authorities identify the attacker.
 * Regularly back up important data in case of emergencies.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -202,10 +170,6 @@ Was the provided information useful? Your vote is important to us!
 [Kelsey](https://tools.techidaily.com/ubackup/products/) · Editor
 
 Kelsey is an English editor of AOMEI Technology. She is passionate about helping people find effective ways to deal with all problems in computer. She has great insights into data backup and recovery, disk partition and clone, and other data protection measures. She likes learn computer skills to improve herself and enjoy quality time with family and friends. 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Related Articles
 
@@ -235,10 +199,6 @@ Recover deleted & lost data from any disasters in Windows.
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Clean & Secure
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://www.ubackup.com/resource/images/ub-mr-theme/ub-article-mr-img-dibu.png)
 
 <ins class="adsbygoogle"
@@ -256,18 +216,24 @@ Recover deleted & lost data from any disasters in Windows.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-breaking-the-screens-top-10-most-popular-female-youtubers/"><u>[New] 2024 Approved Breaking the Screens Top 10 Most Popular Female YouTubers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-comprehensively-understanding-iphone-audio-acquisition/"><u>[New] In 2024, Comprehensively Understanding iPhone Audio Acquisition</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-vivid-visions-the-practical-use-of-color/"><u>[New] Vivid Visions The Practical Use of Color</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/backup-usb-facile-e-rapido-con-il-modo-di-avvio/"><u>Backup USB Facile E Rapido Con Il Modo Di Avvio</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/behute-deinen-bootfahigen-usb-stick-effizient-mit-unserer-schnellen-losung/"><u>Behüte Deinen Bootfähigen USB-Stick Effizient Mit Unserer Schnellen Lösung</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-recuperer-un-fichier-efface-sur-windows-11-guide-rapide-et-facile/"><u>Comment Récupérer Un Fichier Effacé Sur Windows 11 - Guide Rapide Et Facile</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/elevate-your-private-messaging-experience-access-chatgpt-and-additional-secure-options-on-duckduckgo/"><u>Elevate Your Private Messaging Experience: Access ChatGPT and Additional Secure Options on DuckDuckGo</u></a></li>
-<li><a href="https://win-dash.techidaily.com/ensure-optimal-performance-download-updated-epson-perfection-v39-scanner-drivers-for-windows-users-versions-7-10/"><u>Ensure Optimal Performance: Download Updated Epson Perfection V39 Scanner Drivers for Windows Users (Versions 7-10)</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Oppo A58 4G? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-samsung-galaxy-m34-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Samsung Galaxy M34 Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/overwatchs-graphics-issue-is-ahead-of-schedule/"><u>Overwatch's Graphics Issue Is Ahead of Schedule</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/versleutelde-sd-kaartgegevens-een-praktische-handleiding-voor-het-ontcijferen-en-herstellen-van-data/"><u>Versleutelde SD-Kaartgegevens: Een Praktische Handleiding Voor Het Ontcijferen en Herstellen Van Data</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/windows-11-comment-gerer-acces-refuse-et-resoudre-linaccessibilite-d/"><u>Windows 11 : Comment Gérer 'Accès Refusé' Et Résoudre L'inaccessibilité D:</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-copyright-definitions-and-implications-in-music/"><u>[New] Copyright Definitions & Implications in Music</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-a-new-era-of-visual-clarity-the-10-list-of-top-monitors-for-macs/"><u>[Updated] In 2024, A New Era of Visual Clarity The #10 List of Top Monitors for Macs</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-optimal-camera-balance-for-drone-use/"><u>[Updated] Optimal Camera Balance for Drone Use</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/2024-excel/"><u>2024 Excel的三大回复技巧：易于操作的工作表重建方法</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1728489321746-windows-11-6/"><u>解析Windows 11性能瓶颈：为电脑重新获得速度 - 6种改善建议</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1728467000631-iphone/"><u>三种转移iPhone数据的有效技巧：从故障设备改为新机</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/comment-localisez-vous-la-cle-de-decryptage-bitlocker-pour-windows-11/"><u>Comment Localisez-Vous La Clé De Décryptage BitLocker Pour Windows 11?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/debunking-common-misconceptions-about-aurora-hdr/"><u>Debunking Common Misconceptions About Aurora HDR</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-redmi-k70-pro-support-mkv-video-files-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Does Redmi K70 Pro support MKV video files?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-dotx-file-document-with-electronic-digital-signature-tutorial-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Sign .dotx file document with Electronic Digital Signature - (Tutorial)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-assessing-auroraayers-image-processing-strengths/"><u>In 2024, Assessing Aurora'ayer's Image Processing Strengths</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/innovative-ais-face-off-which-wins-llama-3-or-gpt-4/"><u>Innovative AIs Face Off: Which Wins, Llama 3 or GPT-4?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/inside-look-why-philips-somneo-is-leading-as-a-luxury-alarm-clock-option/"><u>Inside Look: Why Philips Somneo Is Leading as a Luxury Alarm Clock Option</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/nasnas/"><u>NASから別のNASへ効率的に自動バックアップするためのフリーツールと最良の方法</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/resolving-issues-with-non-identifiable-partition-tables-on-storage-devices/"><u>Resolving Issues with Non-Identifiable Partition Tables on Storage Devices</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/restorasi-file-terhapus-dari-hard-drive-tanpa-biaya-guan/"><u>Restorasi File Terhapus Dari Hard Drive Tanpa Biaya - Guan</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-tutorial-for-creating-custom-pictures-with-iphones-new-cutouts-in-ios-16/"><u>Step-by-Step Tutorial for Creating Custom Pictures with iPhone's New Cutouts in iOS 16</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/understanding-the-difference-between-rdbms-and-general-purpose-dbms-for-optimal-data-management-strategy/"><u>Understanding the Difference Between RDBMS and General-Purpose DBMS for Optimal Data Management Strategy</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1728493350420-windows-11/"><u>Windows 11 起動時複製制作指南</u></a></li>
 </ul></div>
 

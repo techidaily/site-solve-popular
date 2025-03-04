@@ -1,7 +1,7 @@
 ---
 title: "Step-by-Step Guide: Migrating Data From Your Old iPad to a New One Without Using iCloud"
-date: 2025-01-17T10:16:49.678Z
-updated: 2025-01-24T07:05:52.926Z
+date: 2025-02-25T00:37:17.192Z
+updated: 2025-03-04T01:13:55.893Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/157a979e6aaa82fd4480fbd5cf379bdea463e7fa26b11cd450cfeeb0ec67e8d3.jpg
@@ -27,10 +27,6 @@ Vous obtiendrez le logiciel de sauvegarde NAS Buffalo le plus simple pour Window
 Par[Aurore](https://tools.techidaily.com/ubackup/products/)Publié le 26/06/2024
 
 Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Table des matières** 
 
@@ -77,10 +73,6 @@ Avant de commencer à sauvegarder des fichiers avec le logiciel de sauvegarde NA
 
 [![sauvegarde de fichiers](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/sauvegarde-de-fichiers.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Vous pouvez également choisir _Sauvegarde de disque_ et _Sauvegarde de partition_. Si vous souhaitez sauvegarder le système sur le NAS Buffalo, essayez la fonctionnalité de [Sauvegarde système](https://tools.techidaily.com/ubackup/products/).
 
 **Étape 2.** Sélectionnez les fichiers ou les dossiers sur le lecteur NAS Buffalo.
@@ -93,10 +85,6 @@ Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le nom d'affichage, l'adresse IP, le nom d'utilisateur et le mot de passe pour connecter votre espace de stockage NAS Buffalo. Double-cliquez ensuite dessus dans le volet de gauche et sélectionnez ce que vous souhaitez sauvegarder dans la liste de droite.
 
 [![ajouter périphérique share ou nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/emplacement-reseau.png)
@@ -104,10 +92,6 @@ Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le no
 **Étape 3.** Cliquez là où la flèche pointe et sélectionnez le disque externe préparé comme destination.
 
 [![destination](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/choix-chemin-destinations.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Étape 4.** Pour rendre la sauvegarde simple et efficace, définissez une planification de sauvegarde quotidienne, hebdomadaire ou mensuelle dans l'endroit inférieur et cliquez sur **Démarrer** pour sauvegarder le NAS Buffalo. Si vous cochez la case Réveiller l'ordinateur pour exécuter les tâches planifiées, le logiciel s'ouvrira et exécutera automatiquement cette tâche.
 
@@ -120,10 +104,6 @@ Et la sauvegarde incrémentielle nécessite une récupération plus complexe tan
 De plus, vous pouvez activer la notification par e-mail une fois la tâche terminée. Commenter, fractionner, compresser l'image de sauvegarde ou sélectionner un mode de sauvegarde, etc.
 
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
 
@@ -145,10 +125,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 
 Éditrice senior d'AOMEI Technology qui rédige principalement des articles sur la sauvegarde, la synchronisation, le clonage et la restauration de l'ordinateur, tout dans le but de proposer des solutions simples aux utilisateurs pour protéger les données de leur ordinateur. Grâce à ses expertises informatiques, elle propose souvent des astuces très utiles.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Autres articles connexes
 
 ##### [Meilleur logiciel pour sauvegarder NAS Buffalo sur disque dur externe](https://tools.techidaily.com/ubackup/products/)
@@ -168,10 +144,6 @@ Aidez-nous à améliorer cet article
 Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour nous !
 
 [Oui](https://tools.techidaily.com/ubackup/products/)[Non](https://tools.techidaily.com/ubackup/products/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Obtenez gratuitement AOMEI Backupper
 
@@ -198,20 +170,22 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-building-relationships-one-post-at-a-time-on-fb-for-2024/"><u>[Updated] Building Relationships One Post at a Time on FB for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-the-top-5-youtube-link-reducers/"><u>[Updated] The Ultimate Guide to the Top 5 YouTube Link Reducers</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-shoot-to-spectacle-editing-techniques-for-drones/"><u>2024 Approved From Shoot to Spectacle Editing Techniques for Drones</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-huawei-p60-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Huawei P60 Without Volume Buttons | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/differences-between-robotic-process-automation-rpa-and-intelligent-process-automation-ipa/"><u>Differences Between Robotic Process Automation (RPA) and Intelligent Process Automation (IPA)</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/digitale-revolution-mit-5-leitsatzen-expertenchecklisten-von-abbyy-jetzt-verfugbar-machen/"><u>Digitale Revolution Mit 5 Leitsätzen: Expertenchecklisten Von ABBYY Jetzt Verfügbar Machen!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effiziente-automationstechnologien-im-versicherungssektor/"><u>Effiziente Automa­tionstechnologien Im Versicherungssektor</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-your-digital-presence-using-cookiebots-advanced-solutions/"><u>Elevate Your Digital Presence Using Cookiebot's Advanced Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhance-user-experience-with-our-cookiebot-integration-solutions/"><u>Enhance User Experience with Our Cookiebot Integration Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-customer-insights-with-the-help-of-cookiebot-technology/"><u>Enhanced Customer Insights with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/enhanced-marketing-precision-via-cookiebot-driven-insights/"><u>Enhanced Marketing Precision via Cookiebot-Driven Insights</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-a-comprehensive-guide-to-crafting-memes-on-9gag/"><u>In 2024, A Comprehensive Guide to Crafting Memes on 9GAG</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-blueprint-to-dominate-social-platforms/"><u>In 2024, The Blueprint to Dominate Social Platforms</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/is-it-secure-to-use-external-chatgpt-addons-and-plugins/"><u>Is It Secure to Use External ChatGPT Addons & Plugins?</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/revolutionizing-pc-aesthetics-with-lian-lis-strimer-plus-v2-a-comprehensive-review-of-its-dazzling-psu-cable-illumination-upgrade/"><u>Revolutionizing PC Aesthetics with Lian Li's Strimer Plus V2 - A Comprehensive Review of Its Dazzling PSU Cable Illumination Upgrade</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-elite-videographers-choice-ideal-grabber-software-for-2024/"><u>[New] Elite Videographer's Choice Ideal Grabber Software for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-streamlining-team-discussions-combining-slack-and-filmora-for-professionals-for-2024/"><u>[New] Streamlining Team Discussions Combining Slack and Filmora for Professionals for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-ultimate-powerdirector-insight-comprehensive-2024-walkthrough/"><u>[New] Ultimate PowerDirector Insight Comprehensive 2024 Walkthrough</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-full-tutorial-on-exploiting-googles-ai-driven-speech-transcription-service/"><u>2024 Approved Full Tutorial on Exploiting Google's AI-Driven Speech Transcription Service</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/a-comprehensive-guide-to-understanding-and-utilizing-ntbackup-on-windows-10-8-and-7/"><u>A Comprehensive Guide to Understanding & Utilizing NTBackup on Windows 10, 8 & 7</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automate-clean-up-setting-windows-7-for-auto-delete-aged-backups/"><u>Automate Clean-Up: Setting Windows 7 for Auto-Delete Aged Backups</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/bypassing-the-dvd-shrink-not-working-hurdle-for-windows-10-users-effective-solutions-and-tips/"><u>Bypassing the 'DVD Shrink Not Working' Hurdle for Windows 10 Users: Effective Solutions and Tips</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/come-eseguire-il-ripristino-di-un-sistema-con-nessun-punto-di-ripristino-in-windows-7/"><u>Come Eseguire Il Ripristino Di Un Sistema Con Nessun Punto Di Ripristino in Windows 7</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/convert-mp4-files-to-mov-format-free-quicktime-compatible/"><u>Convert MP4 Files to MOV Format Free: QuickTime Compatible</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/expert-guide-how-to-do-a-clean-slate-refresh-of-your-laptops-os-bypassing-the-need-for-reinstallation/"><u>Expert Guide: How to Do a Clean Slate Refresh of Your Laptop's OS, Bypassing the Need for Reinstallation</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Itel A60s? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-vivo-v30-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Vivo V30 Phone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1728500990758-onedrive-onedrive/"><u>OneDrive 同步阻断手册：如何暫時中止与OneDrive文件同步</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/resolve-windows-10-error-code-0x81000037-with-three-effective-solutions/"><u>Resolve Windows 10 Error Code 0X81000037 with Three Effective Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/seamless-upgrade-transition-your-data-from-windows-server-2016-to-an-ssd-drive-without-the-need-for-fresh-install/"><u>Seamless Upgrade: Transition Your Data From Windows Server 2016 to an SSD Drive Without the Need for Fresh Install</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/the-sentence-plus-if-renovations-are-needed-then-these-could-add-value-too-refers-to-a-potential-change-to-existing-architectural-elements-but-without-speci106/"><u>The Sentence 'Plus if Renovations Are Needed Then These Could Add Value Too.' Refers to a Potential Change to Existing Architectural Elements but without Specific Details, Hence It's Omitted From the Complexity Ranking.</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ultimate-guide-to-choosing-the-perfect-laptop-for-graphic-artists-in-depth-reviews-and-comparisons/"><u>Ultimate Guide to Choosing the Perfect Laptop for Graphic Artists: In-Depth Reviews and Comparisons</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Solution Guide: Fixing the 'Unknown Error Code 0X80070002' On Windows System Recovery"
-date: 2025-01-20T08:07:33.825Z
-updated: 2025-01-23T19:19:53.467Z
+date: 2025-03-02T06:22:51.404Z
+updated: 2025-03-03T21:42:40.253Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/e3e9d05b136f2784c34797b823ce0a57360ca7d16ac3c7f53dfd0d99ef2e7a1b.jpg
@@ -18,27 +18,15 @@ thumbnail: https://thmb.techidaily.com/e3e9d05b136f2784c34797b823ce0a57360ca7d16
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Logiciel de sauvegarde NAS Buffalo le plus efficace ! \[Guide inclus\]
 
 Vous obtiendrez le logiciel de sauvegarde NAS Buffalo le plus simple pour Windows 11/10/8/7/XP/Vista. Apprenez à l'utiliser pour sauvegarder automatiquement des fichiers en quelques étapes simples.
 
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Par[Aurore](https://tools.techidaily.com/ubackup/products/)Publié le 26/06/2024
 
 Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Table des matières** 
 
@@ -93,10 +81,6 @@ Tout d'abord, cliquez sur **Ajouter un dossier** ou **Ajouter un fichier** sur l
 
 [![ajouter un fichier ou un dossier](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ajouter-dossier-fichier.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
@@ -113,10 +97,6 @@ Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le no
 
 [![mode planifier](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/mode-planifier.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Par défaut, ce logiciel créera une sauvegarde complète et 6 sauvegardes incrémentielles si vous définissez une tâche de sauvegarde planifiée. Cela peut entraîner un problème d'espace disque plein à long terme, il est donc recommandé d'activer le [Plan de sauvegarde](https://tools.techidaily.com/ubackup/products/) et de supprimer automatiquement les fichiers de sauvegarde. Pour profiter de ces fonctions, passez à l'édition [Professional](https://tools.techidaily.com/ubackup/products/).
 
 Et la sauvegarde incrémentielle nécessite une récupération plus complexe tandis que la sauvegarde différentielle est beaucoup plus facile. Pour connaître les différences entre elles, consultez « [Sauvegarde incrémentielle ou différentielle](https://tools.techidaily.com/ubackup/products/) ».
@@ -124,10 +104,6 @@ Et la sauvegarde incrémentielle nécessite une récupération plus complexe tan
 De plus, vous pouvez activer la notification par e-mail une fois la tâche terminée. Commenter, fractionner, compresser l'image de sauvegarde ou sélectionner un mode de sauvegarde, etc.
 
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
 
@@ -148,10 +124,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
 
 Éditrice senior d'AOMEI Technology qui rédige principalement des articles sur la sauvegarde, la synchronisation, le clonage et la restauration de l'ordinateur, tout dans le but de proposer des solutions simples aux utilisateurs pour protéger les données de leur ordinateur. Grâce à ses expertises informatiques, elle propose souvent des astuces très utiles.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Autres articles connexes
 
@@ -198,22 +170,24 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-mastering-sound-capture-in-windows-11/"><u>[New] In 2024, Mastering Sound Capture in Windows 11</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-comprehensive-guide-to-premium-no-cost-online-recorders/"><u>2024 Approved Comprehensive Guide to Premium, No-Cost Online Recorders</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-leading-pictorial-storage-hubs/"><u>2024 Approved Leading Pictorial Storage Hubs</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1728489321746-windows-11-6/"><u>解析Windows 11性能瓶颈：为电脑重新获得速度 - 6种改善建议</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-localisez-vous-la-cle-de-decryptage-bitlocker-pour-windows-11/"><u>Comment Localisez-Vous La Clé De Décryptage BitLocker Pour Windows 11?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/conversione-gratuita-di-file-ts-in-avi-online-guida-completa-con-movavi/"><u>Conversione Gratuita Di File TS in AVI Online: Guida Completa Con Movavi</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/endlich-gelost-strategien-zum-reaktivieren-deiner-windows-11-backup-funktion-nach-deaktivierungskonflikten/"><u>Endlich Gelöst: Strategien Zum Reaktivieren Deiner Windows 11 Backup-Funktion Nach Deaktivierungskonflikten</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-to-reset-your-computer-to-original-manufacturer-conditions-using-acer-recovery-manager/"><u>How to Reset Your Computer to Original Manufacturer Conditions Using Acer Recovery Manager</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximize-value-top-7-strategies-for-enjoying-the-full-benefits-of-disneyplus/"><u>Maximize Value: Top 7 Strategies for Enjoying the Full Benefits of Disney+</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/migre-seu-sistema-operacional-para-uma-solucao-de-clonacao-profissional-com-software-sdc/"><u>Migre Seu Sistema Operacional Para Uma Solução De Clonação Profissional Com Software SDC</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/nasnas/"><u>NASから別のNASへ効率的に自動バックアップするためのフリーツールと最良の方法</u></a></li>
-<li><a href="https://fox-that.techidaily.com/resolving-carrier-settings-problems-what-to-do-when-you-get-a-sim-card-not-activated-or-provisioned-error/"><u>Resolving Carrier Settings Problems: What to Do When You Get a 'SIM Card Not Activated or Provisioned' Error</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/resolving-issues-with-non-identifiable-partition-tables-on-storage-devices/"><u>Resolving Issues with Non-Identifiable Partition Tables on Storage Devices</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/restorasi-file-terhapus-dari-hard-drive-tanpa-biaya-guan/"><u>Restorasi File Terhapus Dari Hard Drive Tanpa Biaya - Guan</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/step-by-step-tutorial-on-self-guided-iphone-resetting/"><u>Step-by-Step Tutorial on Self-Guided iPhone Resetting</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1728493350420-windows-11/"><u>Windows 11 起動時複製制作指南</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-mac-gaming-recording-roblox-adventures/"><u>[New] In 2024, Mac Gaming Recording Roblox Adventures</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-maximize-video-impact-with-full-screen-settings/"><u>[New] In 2024, Maximize Video Impact with Full-Screen Settings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/urn-tracks-into-tunes-mp3-to-youtube-conversion-made-simple-for-2024/"><u>[New] Turn Tracks Into Tunes MP3-to-YouTube Conversion Made Simple for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-lively-film-reader-assessment/"><u>[Updated] 2024 Approved Lively Film Reader Assessment</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-youtube-profits-demystified-from-clicks-to-credit/"><u>[Updated] In 2024, YouTube Profits Demystified From Clicks to Credit</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1-seamless-transfer-how-to-move-voicemails-from-one-iphone-to-another-with-fonebackup/"><u>1. Seamless Transfer: How to Move Voicemails From One iPhone to Another with FoneBackup</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1728493735882-sandisk/"><u>這裡是你要解決記憶卡問題的方法：SanDisk修復工具介紹</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/comprehensive-guide-on-initiating-halting-and-resuming-vcenter-operations-in-two-methods/"><u>Comprehensive Guide on Initiating, Halting, and Resuming vCenter Operations in Two Methods</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/efficient-oplage-bestaan-uit-wegwerp-fotos-van-windows-10/"><u>Efficiënt Oplage Bestaan Uit Wegwerp Fotos Van Windows 10</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1728468648806-excel/"><u>Excelファイル作成時に発生するディスク容量不足問題の解決法</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/exclusive-list-of-cost-free-video-downloaders-from-pinterest-for-2024/"><u>Exclusive List of Cost-Free Video Downloaders From Pinterest for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-samsung-galaxy-s24plus-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Samsung Galaxy S24+ Pattern Lock Screen</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/guia-sencilla-para-instalar-un-ssd-como-hdd-principal-en-laptops-con-sistema-operativo-windows-1011/"><u>Guía Sencilla Para Instalar Un SSD Como HDD Principal en Laptops Con Sistema Operativo Windows 10/11</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/how-to-fix-windows-0x0000007b-critical-error-permanently/"><u>How to Fix Windows' 0X0000007B Critical Error Permanently</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/iphone-fotos-and-videos-sicher-auf-computer-speichern-alternativen-zu-itunes-icloud-und-physischen-abzeichen/"><u>IPhone-Fotos & Videos Sicher Auf Computer Speichern: Alternativen Zu iTunes, iCloud Und Physischen Abzeichen</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/maximize-online-engagement-through-cookiebot-solutions/"><u>Maximize Online Engagement Through Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/modo-infallibile-per-ripristinare-il-tuo-indirizzo-email-in-outlook-e-rimuoverlo-definitivamente/"><u>Modo Infallibile per Ripristinare Il Tuo Indirizzo Email in Outlook E Rimuoverlo Definitivamente</u></a></li>
+<li><a href="https://extra-information.techidaily.com/secure-smooth-videos-selecting-premium-tripods-for-youtubers/"><u>Secure Smooth Videos Selecting Premium Tripods for YouTubers</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unavailable-webpage-error-unable-to-retrieve-desired-information/"><u>Unavailable Webpage Error: Unable to Retrieve Desired Information</u></a></li>
 </ul></div>
 

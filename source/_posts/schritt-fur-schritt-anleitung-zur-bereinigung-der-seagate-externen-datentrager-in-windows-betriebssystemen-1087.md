@@ -1,7 +1,7 @@
 ---
 title: Schritt-Für-Schritt Anleitung Zur Bereinigung Der Seagate Externen Datenträger in Windows Betriebssystemen (10/8/7)
-date: 2025-01-19T00:55:30.786Z
-updated: 2025-01-24T03:49:40.647Z
+date: 2025-02-27T00:50:39.131Z
+updated: 2025-03-04T05:51:20.173Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/0fb9e75f25af36e0c595b70caf722719ae176ebbaafa4088d329d674adb3fc6f.jpg
@@ -62,10 +62,6 @@ Vor der dauerhaften Löschung des Papierkorbs sollten Sie sicherstellen, dass ke
 
 [![Windows-Einstellungen Personalisierung](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/windows-settings-personalization.png "Windows-Einstellungen Personalisierung")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Schritt 2**. Klicken Sie auf die Schaltfläche „**Designs**“.
 
 [![Designs](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/themes.png "Designs")
@@ -78,10 +74,6 @@ Vor der dauerhaften Löschung des Papierkorbs sollten Sie sicherstellen, dass ke
 
 [![Papierkorb](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/check-recycle-bin-click-ok.png "Papierkorb")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Teil 2\. Wie kann man den Papierkorb vom Desktop entfernen?
 
 Wenn Sie den Papierkorb mittels erhöhter Eingabeaufforderung zurücksetzen möchten, folgen Sie diesen klaren Schritten:
@@ -90,17 +82,9 @@ Wenn Sie den Papierkorb mittels erhöhter Eingabeaufforderung zurücksetzen möc
 
 [![Als Administrator ausführen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/run-as-administrator.png "Als Administrator ausführen")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Schritt 2**. Geben Sie „**rd /s /q C:\\Papierkorb**“ in das Eingabeaufforderungsfenster ein und drücken Sie „**Enter**“, um den Vorgang zu starten. Wenn erforderlich, ersetzen Sie das Laufwerk C durch Ihren gewünschten Laufwerksbuchstaben.
 
 [![cmd Papierkorb zurücksetzen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/command-prompt/cmd-reset-recycle-bin.png "cmd Papierkorb zurücksetzen")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Teil 3\. Wie kann man gelöschte Dateien aus dem Papierkorb nach dem Leeren wiederherstellen?
 
@@ -126,17 +110,9 @@ Sicherer Download
 
 [![Laufwerk scannen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/data-recovery-disk/windows-recovery/scanning-drive.png "Laufwerk scannen")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Schritt 3**. Gehen Sie zum Papierkorb, um die gewünschten Dateien zu lokalisieren. Klicken Sie dann auf „**x Dateien wiederherstellen**“, um die ausgewählten Dateien wiederherzustellen. Speichern Sie diese wiederhergestellten Dateien bitte an einem neuen Ort.
 
 [![x Dateien wiederherstellen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/data-recovery-disk/windows-recovery/select-deleted-excel-files-click-recover.png "x Dateien wiederherstellen")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Bonus-Tipps: Wie verhindert man Datenverlust auf Computern?**
 
@@ -165,19 +141,11 @@ Sicherer Download
 
 [![aufgabename eingeben](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/de/std/backup/file-backup/task-name.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Schritt** **3**. Klicken Sie auf „**\+ Datei**“ oder „**\+ Ordner**“, damit Sie die Dateien/Ordner auswählen können, die Sie sichern möchten. (Sie können mehrere Ordner und Dateien als Quelle hinzufügen; Sie können auch Ordner und Dateien direkt als Quelle auf den Backupper ziehen).
 
 [![Ordner hinzufügen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/de/std/backup/file-backup/add-folder.png)
 
 **Schritt 4**. Nach Abschluss des Sicherungsvorgangs klicken Sie auf „Fertig“, um das Fenster zu schließen.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Zusammenfassung
 
@@ -214,10 +182,6 @@ Waren die angebotenen Informationen nützlich? Ihre Stimme ist wichtig für uns!
 [Holiday](https://tools.techidaily.com/ubackup/products/) · Editor
 
 Holiday ist seit dem 1\. Juni 2020 bei AOMEI und beschäftigt sich mit Sichern & Wiederherstellen, Festplatten- und Partitionsverwaltung usw. für AOMEI. Ob Arbeit, Studien oder Leben, sie versucht gerne, neue Dinge zu lernen und denkt, dass Überraschungen auf sie warten, egal wann und wo.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Folgende Artikel könnten Sie auch interessieren
 
@@ -268,22 +232,19 @@ Wiederherstellen von gelöschten und verlorenen Daten aus allen Katastrophen in 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-top-5-ios-apps-for-seamless-psp-gaming-experience/"><u>[New] 2024 Approved Top 5 iOS Apps For Seamless PSP Gaming Experience</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-fashion-your-yt-snapshits-with-illuminated-borders/"><u>[Updated] In 2024, Fashion Your YT Snapshits with Illuminated Borders</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-perfect-your-recordings-the-ultimate-guide-to-adobe-presenter/"><u>[Updated] In 2024, Perfect Your Recordings The Ultimate Guide to Adobe Presenter</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-slide-into-style-instagrams-secrets-to-upside-down-visual-content-for-2024/"><u>[Updated] Slide Into Style Instagram's Secrets to Upside-Down Visual Content for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/windows-1011uefi-ssd/"><u>最適化された手順：Windows 10/11をUEFI SSDにクローンするコツ</u></a></li>
-<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-motorola-g24-power-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Motorola G24 Power | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/discovering-huggingchat-gratis-transparent-replacement-to-gpt/"><u>Discovering HuggingChat: Gratis, Transparent Replacement to GPT</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/erec-management/"><u>EREC Managementアプリケーションのダウンロードガイド:意味、使用方法、他の選択肢を掘り下げてみましょう。</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/examining-youtubes-copyright-stance-versus-cc-approach/"><u>Examining Youtube's Copyright Stance Versus CC Approach</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exklusiver-tipp-wie-man-windows-server-2016-daten-erfolgreich-auf-eine-externe-festplatte-speichert/"><u>Exklusiver Tipp: Wie Man Windows Server 2016 Daten Erfolgreich Auf Eine Externe Festplatte Speichert</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/expertise-en-sauvegarde-multiple-sur-windows-10-les-3-techniques-a-connaitre/"><u>Expertise en Sauvegarde Multiple Sur Windows 10 : Les 3 Techniques À Connaître</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-or-disabled-from-apple-iphone-12-pro-7-mehtods-you-cant-miss-by-drfone-ios/"><u>In 2024, Apple ID Locked or Disabled From Apple iPhone 12 Pro? 7 Mehtods You Cant-Miss</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-screenshot-simplicity-compatible-free-capturing-apps-for-windows/"><u>In 2024, Screenshot Simplicity Compatible Free Capturing Apps for Windows</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimize-storage-space-with-these-2-proven-techniques-for-shrinking-vhdx-images-in-hyper-v-environments/"><u>Optimize Storage Space with These 2 Proven Techniques for Shrinking VHDX Images in Hyper-V Environments</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/passwortgeschutzte-dateiverschlusselung-auf-windows-1011-entdecken-sie-die-drei-effizientesten-methoden/"><u>Passwortgeschützte Dateiverschlüsselung Auf Windows 10/11: Entdecken Sie Die Drei Effizientesten Methoden!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/regular-monitoring-is-essential-to-maintain-system-performance-over-time/"><u>Regular Monitoring Is Essential to Maintain System Performance over Time.</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/reveal-concealed-directories-in-windows-versions-1011-top-techniques-explored/"><u>Reveal Concealed Directories in Windows Versions 10/11: Top Techniques Explored</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unzip-the-scripts-crafting-subtitles-from-compressed-files/"><u>[New] 2024 Approved Unzip the Scripts Crafting Subtitles From Compressed Files</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-assessing-shooters-choices-hero-5-black-or-km-170-for-2024/"><u>[New] Assessing Shooters' Choices Hero 5 Black or KM-170 for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/xploring-earning-potential-an-uncomplicated-triad-technique-for-youtube-profit-analysis/"><u>[New] Exploring Earning Potential An Uncomplicated Triad Technique for YouTube Profit Analysis</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-high-fidelity-streaming-archiving-a-practical-approach/"><u>[Updated] High-Fidelity Streaming Archiving A Practical Approach</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/download-and-install-the-free-windows-media-center-on-windows-10-comprehensive-guide/"><u>Download and Install the Free Windows Media Center on Windows 10: Comprehensive Guide</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/expert-tips-on-restoring-files-from-your-usb-memory-stick-prior-to-initialization/"><u>Expert Tips on Restoring Files From Your USB Memory Stick Prior to Initialization</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/fixing-common-issues-with-failed-instagram-story-uploads-a-complete-guide/"><u>Fixing Common Issues with Failed Instagram Story Uploads – A Complete Guide</u></a></li>
+<li><a href="https://discover-best.techidaily.com/impact-analysis-how-did-the-boxer-uprising-reshape-china-explained-with-yl-computing-and-yl-software/"><u>Impact Analysis: How Did the Boxer Uprising Reshape China? - Explained with YL Computing and YL Software</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://fox-where.techidaily.com/mastering-consistent-layout-configuration-the-tab-options-explained/"><u>Mastering Consistent Layout Configuration: The Tab Options Explained</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/mastering-the-mystique-of-windows-server-2022-understanding-its-power-packed-iso/"><u>Mastering the Mystique of Windows Server 2022: Understanding Its Power-Packed ISO</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/top-performant-hard-drive-copier-software-transferring-data-from-hdd-to-ssd/"><u>Top Performant Hard Drive Copier Software: Transferring Data From HDD to SSD</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/troubleshooting-windows-startup-issues-fixing-the-cannot-boot-from-cd-error/"><u>Troubleshooting Windows Startup Issues: Fixing the 'Cannot Boot From CD' Error</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ultimate-guide-expanding-and-mirroring-your-disk-space-on-windows-systems/"><u>Ultimate Guide: Expanding & Mirroring Your Disk Space on Windows Systems</u></a></li>
 </ul></div>
 

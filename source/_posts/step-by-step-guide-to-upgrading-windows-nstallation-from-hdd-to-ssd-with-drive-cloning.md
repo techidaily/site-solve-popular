@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Guide to Upgrading Windows Nstallation From HDD to SSD with Drive Cloning
-date: 2025-01-18T17:35:10.473Z
-updated: 2025-01-24T10:24:34.569Z
+date: 2025-02-26T01:24:11.261Z
+updated: 2025-03-04T03:30:09.547Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/1ccd49c85e9212303a8d46ffca4e2f894288070bb2a09d79b62ee40d21724a7f.jpg
@@ -24,10 +24,6 @@ Vous obtiendrez le logiciel de sauvegarde NAS Buffalo le plus simple pour Window
 
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Par[Aurore](https://tools.techidaily.com/ubackup/products/)Publié le 26/06/2024
 
 Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
@@ -46,10 +42,6 @@ NAS Buffalo est la solution idéale pour la protection des données et peut faci
 À ce stade, vous avez besoin d'un logiciel de sauvegarde NAS Buffalo, de préférence le plus simple. Les Buffalo LinkStation et Buffalo TeraStation sont équipés d'un lecteur NAS pour vous aider à sauvegarder des photos, des vidéos, de la musique, etc. ou à les partager, mais la plupart des appareils ne prennent en charge que le système Linux et certains sont disponibles sur Windows Server 2016\. Que faire si vous utilisez Windows 7/8/10/11 ?
 
 [![buffalo](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/others/image/nas-buffalo.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ne vous inquiétez pas trop. Vous pouvez envisager d'utiliser un logiciel de sauvegarde NAS tiers pour vous aider. [AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/) est un excellent choix en raison de sa grande compatibilité (prise en charge de Windows 7/8/10/11/XP/Vista), de sa gratuité, de sa facilité d'utilisation, de sa flexibilité et de ses fonctionnalités riches.
 
@@ -73,10 +65,6 @@ Meilleur logiciel de sauvegarde Windows gratuit pour usage personnel.
 
 [**Télécharger gratuiciel** Windows 11/10/8.1/8/7](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers
 
 Avant de commencer à sauvegarder des fichiers avec le logiciel de sauvegarde NAS Buffalo pour Windows, veuillez préparer un disque dur externe, une clé USB, etc. pour stocker l'image de sauvegarde. Ensuite, suivez attentivement les étapes ci-dessous.
@@ -84,10 +72,6 @@ Avant de commencer à sauvegarder des fichiers avec le logiciel de sauvegarde NA
 **Étape 1.** Lancez AOMEI Backuppper Standard, cliquez sur **Sauvegarder**, puis sur **Sauvegarde de fichiers**.
 
 [![sauvegarde de fichiers](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/sauvegarde-de-fichiers.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Vous pouvez également choisir _Sauvegarde de disque_ et _Sauvegarde de partition_. Si vous souhaitez sauvegarder le système sur le NAS Buffalo, essayez la fonctionnalité de [Sauvegarde système](https://tools.techidaily.com/ubackup/products/).
 
@@ -100,10 +84,6 @@ Tout d'abord, cliquez sur **Ajouter un dossier** ou **Ajouter un fichier** sur l
 Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le nom d'affichage, l'adresse IP, le nom d'utilisateur et le mot de passe pour connecter votre espace de stockage NAS Buffalo. Double-cliquez ensuite dessus dans le volet de gauche et sélectionnez ce que vous souhaitez sauvegarder dans la liste de droite.
 
@@ -141,10 +121,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
 
 Éditrice senior d'AOMEI Technology qui rédige principalement des articles sur la sauvegarde, la synchronisation, le clonage et la restauration de l'ordinateur, tout dans le but de proposer des solutions simples aux utilisateurs pour protéger les données de leur ordinateur. Grâce à ses expertises informatiques, elle propose souvent des astuces très utiles.
@@ -179,10 +155,6 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -198,22 +170,18 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://network-issues.techidaily.com/fixed-nuclear-dawn-update-issue-xbox-launch-failure/"><u>[FIXED] Nuclear Dawn Update Issue - Xbox Launch Failure</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-youtube-ventures-steps-for-monetizing-content/"><u>[New] 2024 Approved YouTube Ventures Steps for Monetizing Content</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-crafting-engaging-vlog-dialogues-a-step-by-step-guide/"><u>[New] Crafting Engaging Vlog Dialogues A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-ideal-camera-and-recording-apps-for-iphone-and-android-smartphones/"><u>[Updated] Ideal Camera and Recording Apps for iPhone and Android Smartphones</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1-vastgesteld-iphones-kans-om-niet-te-herstellen-na-back-up-proces/"><u>1. '[Vastgesteld]: IPhones Kans Om Niet Te Herstellen Na Back-up-Proces'</u></a></li>
-<li><a href="https://win-webster.techidaily.com/windows-cmdcmd/"><u>啟動Windows CMD課程：深入了解透過CMD處理檔案操作方法</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/all-new-apple-m4-silicon-powering-a-future-of-smart-mac-computers-exclusive-launch-dates/"><u>All-New Apple M4 Silicon: Powering a Future of Smart Mac Computers | Exclusive Launch Dates</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/as-melhores-tecnicas-de-copia-de-seguranca-do-servidor-windows-para-o-armazenamento-em-nuvem-da-qnap-top-3-metodos/"><u>As Melhores Técnicas De Cópia De Segurança Do Servidor Windows Para O Armazenamento Em Nuvem Da QNAP - Top 3 Métodos</u></a></li>
-<li><a href="https://win-blog.techidaily.com/beat-the-delay-effective-solutions-for-high-ping-in-bless-unleashed-for-windows-users/"><u>Beat the Delay: Effective Solutions for High Ping in Bless Unleashed for Windows Users</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/effizientes-kopieren-von-daten-mit-robocopy-in-windows-11-anleitung-sowie-alternativsoftware-zur-verfugung-stellen/"><u>Effizientes Kopieren Von Daten Mit Robocopy in Windows 11 - Anleitung Sowie Alternativsoftware Zur Verfügung Stellen</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/guida-facile-e-rapida-alla-copia-di-un-ssd-su-hard-drive-piu-grande-con-windows-11/"><u>Guida Facile E Rapida Alla Copia Di Un SSD Su Hard Drive Più Grande Con Windows 11</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-10-most-popular-minion-memes-that-moms-are-crazy-about/"><u>In 2024, 10 Most Popular Minion Memes that Moms Are Crazy About</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/in-depth-instructional-guide-on-duplicating-your-steam-decks-ssd-for-enhanced-performance/"><u>In-Depth Instructional Guide on Duplicating Your Steam Deck's SSD for Enhanced Performance</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/protect-and-transfer-4-reliable-techniques-for-iphone-to-computer-backups/"><u>Protect and Transfer: 4 Reliable Techniques for iPhone-to-Computer Backups</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/this-title-emphasizes-the-benefit-expanding-storage-and-provides-clear-instructions-on-what-the-process-will-achieve-it-also-specifies-the-brand-of-ssds-whi168/"><u>This Title Emphasizes the Benefit (Expanding Storage) and Provides Clear Instructions on What the Process Will Achieve. It Also Specifies the Brand of SSDs, Which Is Helpful for Those Specifically Looking to Perform This Task with Samsung Drives.</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/ultimate-tutorial-crafting-a-startup-usb-flash-drive-using-rufus-in-windows-11/"><u>Ultimate Tutorial: Crafting a Startup USB Flash Drive Using Rufus in Windows 11</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-perfecting-zoom-on-snapchat-for-better-snaps-for-2024/"><u>[New] Perfecting Zoom on Snapchat for Better Snaps for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-facebooks-ultimate-guide-to-full-screen-video/"><u>[Updated] Facebook's Ultimate Guide to Full Screen Video</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-understanding-the-role-of-dimensions-in-youtubes-viewer-engagement/"><u>[Updated] In 2024, Understanding the Role of Dimensions in YOUTUBE's Viewer Engagement</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1728463445137-usb/"><u>「USBメモリから抹消された情報を回復する戦略」</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/decouvrez-7-solutions-efficaces-pour-resoudre-les-problemes-de-nettoyage-du-disque-sous-windows-11/"><u>Découvrez 7 Solutions Efficaces Pour Résoudre Les Problèmes De Nettoyage Du Disque Sous Windows 11</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>Hacks to do pokemon go trainer battles For Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-pen-to-pixel-best-photography-caption-apps-iosandroid/"><u>In 2024, Pen to Pixel Best Photography Caption Apps (iOS/Android)</u></a></li>
+<li><a href="https://techtrends.techidaily.com/latest-method-how-to-successfully-perform-an-os-update-on-your-samsung-tv/"><u>Latest Method: How to Successfully Perform an OS Update on Your Samsung TV</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/page-unavailable-error-message-404-encountered/"><u>Page Unavailable: Error Message 404 Encountered</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-expert-advice-on-eradicating-the-vexing-red-screen-dilemma-once-and-for-all/"><u>Resolved: Expert Advice on Eradicating the Vexing Red Screen Dilemma Once and For All</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/step-by-step-tutorial-on-downgrading-windows-system-time-to-a-past-date/"><u>Step-by-Step Tutorial on Downgrading Windows ^System Time to a Past Date</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/uncover-these-7-solutions-make-your-itunes-bought-tracks-appear-on-device/"><u>Uncover These 7 Solutions: Make Your ITunes Bought Tracks Appear on Device</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/wie-man-mithilfe-von-bluetooth-dateien-von-einem-android-gerat-erfolgreich-auf-ein-iphone-ubertragen-kann/"><u>Wie Man Mithilfe Von Bluetooth Dateien Von Einem Android-Gerät Erfolgreich Auf Ein iPhone Übertragen Kann</u></a></li>
 </ul></div>
 

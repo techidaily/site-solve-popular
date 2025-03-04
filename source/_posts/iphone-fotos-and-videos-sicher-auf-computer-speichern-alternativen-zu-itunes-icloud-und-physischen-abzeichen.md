@@ -1,7 +1,7 @@
 ---
 title: "IPhone-Fotos & Videos Sicher Auf Computer Speichern: Alternativen Zu iTunes, iCloud Und Physischen Abzeichen"
-date: 2025-01-22T17:02:02.720Z
-updated: 2025-01-24T04:17:47.710Z
+date: 2025-02-24T23:24:34.725Z
+updated: 2025-03-04T03:55:14.761Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/0c1d83719ebb98dea5d90c27c0b6408d258894840f31fa00d9902a55d5e2ce32.jpg
@@ -18,19 +18,11 @@ thumbnail: https://thmb.techidaily.com/0c1d83719ebb98dea5d90c27c0b6408d258894840
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Recover Files from Ransomware Attack \[Full Guide 2022\]
 
 This page covers 4 ways on how to recover files from ransomware and offers some tips that can help you prevent ransomware attacks.
 
 ![Kelsey](https://www.ubackup.com/assets/images/author/kelsey-avatar.jpg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 By[Kelsey](https://tools.techidaily.com/ubackup/products/)/ Updated on April 2, 2024
 
@@ -55,10 +47,6 @@ When a storage device or computer is infected by a ransomware virus, your files 
 If you are looking for methods on how to recover ransomware-infected files, you have come to the right place. In the following chapter, we will show you some practical ways to [recover lost data](https://tools.techidaily.com/ubackup/products/) from ransomware attacks.
 
 [![Recover Files From Ransomware](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/others/recover-files-from-ransomware.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to recover files from ransomware attack in 4 ways
 
@@ -90,10 +78,6 @@ The recovery tool will automatically start looking for all the deleted and lost 
 
 [![Scan Lost Data](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows-recovery/scan-lost-data.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3\. Recover selected files**
 
 You can expand the Deleted files folder and Other missing files folder to select the desired items, then click **Recover x files** to begin ransomware attack recovery now.
@@ -118,10 +102,6 @@ Step 3\. Click **Browse for files** to locate your lost data and choose to save 
 
 [![Browse For Files To Restore](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/browse-for-files-to-restore.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 3\. Get back files from ransomware using File History
 
 If you have used File History to save a copy of your precious data, you can follow the steps below to figure out how to recover encrypted files from ransomware. You can use this tool to [recover permanently deleted folders](https://tools.techidaily.com/ubackup/products/) and files on your computer as well.
@@ -134,17 +114,9 @@ Step 2\. Press the **Restore personal files** button on the left panel. Please m
 
 [![Restore Personal Files](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/restore-personal-files.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 3\. Find the files you want to recover and click the arrow pointing left or right to choose the version you need. And then, click the **Recover** button.
 
 [![Restore Deleted File](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/restore-deleted-file.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 4\. Recover from ransomware through system restore
 
@@ -159,10 +131,6 @@ Step 1\. Press **Win + S** to open the Windows search box, type **Create a resto
 Step 2\. Click on **System Restore** \> **Next**.
 
 [![System Drive On System Restore Next](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/system-drive-on-system-restore-next.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 3\. Choose a restore point from the list and tap on **Scan for affected programs** to check the items that will be deleted after the restore. Then, click **Close**.
 
@@ -187,10 +155,6 @@ To prevent ransomware from attacking your computer and files again, we list seve
 * Report ransomware attacks to let authorities identify the attacker.
 * Regularly back up important data in case of emergencies.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Ransomware can't be prevented. Though there are multiple ways for you to accomplish how to recover files from ransomware, prevention is easier than rescue. We highly recommend you backup your important data periodically.
@@ -202,10 +166,6 @@ Was the provided information useful? Your vote is important to us!
 [Yes](https://tools.techidaily.com/ubackup/products/)[No](https://tools.techidaily.com/ubackup/products/)
 
 ![Kelsey](https://www.ubackup.com/assets/images/author/kelsey-avatar.jpg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [Kelsey](https://tools.techidaily.com/ubackup/products/) · Editor
 
@@ -256,17 +216,18 @@ Recover deleted & lost data from any disasters in Windows.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-use-creative-commons-copyright-licenses-complete-guide/"><u>[New] 2024 Approved How to Use Creative Commons Copyright Licenses [Complete Guide]</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-create-captivating-videos-with-free-intros-for-2024/"><u>[New] Create Captivating Videos with Free Intros for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-prime-vr-options-enhancing-drone-operations/"><u>[Updated] 2024 Approved Prime VR Options Enhancing Drone Operations</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-tactics-for-transforming-youtube-list-layouts/"><u>2024 Approved Tactics for Transforming YouTube List Layouts</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/expand-your-pcs-capacity-a-guide-by-yl-software-for-freeing-up-hard-drive-space/"><u>Expand Your PC's Capacity: A Guide by YL Software for Freeing Up Hard Drive Space</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/flash-sale-ends-may-31st-save-on-karaoke-systems-and-get-karaoke-file-renamer-free/"><u>Flash Sale Ends May 31St - Save on Karaoke Systems & Get Karaoke File Renamer Free!</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/high-resolution-aqualad-wallpaper-download-stunning-hd-visuals-crafted-by-yl-software/"><u>High-Resolution Aqualad Wallpaper Download - Stunning HD Visuals Crafted by YL Software</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/iphone-cinematic-techniques-top-8-strategies-for-ultimate-video-quality/"><u>IPhone Cinematic Techniques Top 8 Strategies for Ultimate Video Quality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nvidia-shield-tv-pro-evaluation-the-preeminent-choice-for-interactive-streaming/"><u>Nvidia Shield TV Pro Evaluation - The Preeminent Choice for Interactive Streaming</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/professional-astronomy-visuals-for-pc-hd-astronaut-imagery-and-digital-artwork-by-yl-software-solutions/"><u>Professional Astronomy Visuals for PC: HD Astronaut Imagery & Digital Artwork by YL Software Solutions</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/understanding-the-dangers-a-comprehensive-guide-to-cryptocurrency-purchase-risks-yl-computing-solutions/"><u>Understanding the Dangers: A Comprehensive Guide to Cryptocurrency Purchase Risks - YL Computing Solutions</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-oneplus-12r-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For OnePlus 12R Phones</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-maximizing-fb-instream-ad-impact-configuration-techniques-and-metrics-for-2024/"><u>[New] Maximizing FB Instream Ad Impact Configuration Techniques and Metrics for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-win11s-ultimate-app-selection-for-quality-recording/"><u>[Updated] 2024 Approved Win11's Ultimate App Selection for Quality Recording</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-high-res-aerial-showdown-dji-vs-gopro-capture/"><u>[Updated] In 2024, High-Res Aerial Showdown DJi vs GoPro Capture</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-telegram-promotion-techniques-for-marketing-beginners-for-2024/"><u>[Updated] Telegram Promotion Techniques For Marketing Beginners for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1-unexpected-computer-shutdowns-solutions-and-prevention-tips-yl-tech-insights/"><u>1. Unexpected Computer Shutdowns: Solutions & Prevention Tips - YL Tech Insights</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-capturing-elegance-ideal-websites-for-photo-framing/"><u>2024 Approved Capturing Elegance Ideal Websites for Photo Framing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/addressing-device-conflicts-on-your-pc-with-yl-softwares-troubleshooting-guide-for-windows/"><u>Addressing Device Conflicts on Your PC with YL Software's Troubleshooting Guide for Windows</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/exploring-windows-control-panel-features-a-comprehensive-guide-by-yl-computing/"><u>Exploring Windows Control Panel Features: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/fixing-empty-output-overcoming-scanner-glitches-with-tips-from-yl-computing-and-yl-software-professionals/"><u>Fixing Empty Output: Overcoming Scanner Glitches with Tips From YL Computing and YL Software Professionals</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-revolutionary-entry-tool-for-all-devices-this-year/"><u>In 2024, Revolutionary Entry Tool for All Devices This Year</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/step-by-step-guide-overcoming-challenges-in-installing-your-printers-drivers-by-yl-software-experts/"><u>Step-by-Step Guide: Overcoming Challenges in Installing Your Printer's Drivers by YL Software Experts</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/step-by-step-guide-using-windows-defender-to-perform-thorough-malware-scans-tips-by-yl-computing/"><u>Step-by-Step Guide: Using Windows Defender to Perform Thorough Malware Scans - Tips by YL Computing</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/top-rated-os-choices-revealed-by-yl-computing-your-ultimate-guide/"><u>Top Rated OS Choices Revealed by YL Computing - Your Ultimate Guide</u></a></li>
 </ul></div>
 
